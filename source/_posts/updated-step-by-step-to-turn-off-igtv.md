@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Step-by-Step to Turn Off IGTV\""
-date: 2024-05-21T17:11:02.127Z
-updated: 2024-05-22T17:11:02.127Z
+date: 2024-07-04T18:25:19.836Z
+updated: 2024-07-05T18:25:19.836Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Step-by-Step to Turn Off IGTV\""
 excerpt: "\"This Article Describes [Updated] Step-by-Step to Turn Off IGTV\""
 keywords: "Turn Off IGTV Guide,IGTV Shutdown Steps,Disable IGTV Feature,Stop IGTV Playback,How to Deactivate IGTV,Exit IGTV Streaming,Cease IGTV Service"
-thumbnail: https://www.lifewire.com/thmb/VQxgGoC9v6PZDxcDaOZkNzYORfU=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/how-to-connect-multiple-bluetooth-speakers-4173788-311e11fa61fd439f9528c27402f47cb9.png
+thumbnail: https://thmb.techidaily.com/e31e2df1b932fa534e864f0527ff09c3f70b9b1af5b4d099ffd7c19407e1d66e.png
 ---
 
 ## Step-by-Step to Turn Off IGTV

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  How Inauthentic Affection Impacts Your Feed's Credibility\""
-date: 2024-05-21T17:43:00.266Z
-updated: 2024-05-22T17:43:00.266Z
+date: 2024-07-04T18:25:14.083Z
+updated: 2024-07-05T18:25:14.083Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: How Inauthentic Affection Impacts Your Feed's Credibility\""
 excerpt: "\"This Article Describes 2024 Approved: How Inauthentic Affection Impacts Your Feed's Credibility\""
 keywords: "Authenticity in Relationships,Feedback Trustworthiness,Online Interaction Honesty,Content Credibility Concerns,Engagement Integrity Growth,Digital Affection Validation,Social Media Reputation Safeguarding"
-thumbnail: https://www.lifewire.com/thmb/tWm_3-fejj4MLIPW_R3ZbdeFcPI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/TrillerLogo-09e3121256944e57b51d8030ad72b32c.jpg
+thumbnail: https://thmb.techidaily.com/aad91a6ecd7769da95953b80a90f8da974d1c7ad664fe779b0bcf99c2c1168c7.jpg
 ---
 
 ## How Inauthentic Affection Impacts Your Feed's Credibility

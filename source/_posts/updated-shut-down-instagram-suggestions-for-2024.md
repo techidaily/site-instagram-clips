@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Shut Down Instagram Suggestions for 2024"
-date: 2024-05-21T17:16:59.681Z
-updated: 2024-05-22T17:16:59.681Z
+date: 2024-07-04T18:25:14.582Z
+updated: 2024-07-05T18:25:14.582Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] Shut Down Instagram Suggestions for 2024"
 excerpt: "This Article Describes [Updated] Shut Down Instagram Suggestions for 2024"
 keywords: "Stop Insta Suggestions,Block Instagram Recommendations,Disable Insta Suggestion Feature,Turn Off Insta Suggests,Remove Instagram Suggestions,Halt Instagram Recommends,Eliminate Instagram Prompts"
-thumbnail: https://www.lifewire.com/thmb/VQxgGoC9v6PZDxcDaOZkNzYORfU=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/how-to-connect-multiple-bluetooth-speakers-4173788-311e11fa61fd439f9528c27402f47cb9.png
+thumbnail: https://thmb.techidaily.com/e31e2df1b932fa534e864f0527ff09c3f70b9b1af5b4d099ffd7c19407e1d66e.png
 ---
 
 ## Shut Down Instagram Suggestions
@@ -59,7 +59,7 @@ Here's what you need to do:
 
 **Step 1:** Open your Instagram account and if you are not logged in, simply enter your credentials to log in. You can do this by visiting your Instagram mobile app or via the browser. Once your account is open, instead of going to your profile, stay on the home page, which shows you the latest posts of people you are following.
 
-![ suggestions for you on Ins](https://images.wondershare.com/filmora/article-images/instagram-suggestions-for-you.jpg)
+![suggestions for you on Ins](https://images.wondershare.com/filmora/article-images/instagram-suggestions-for-you.jpg)
 
 **Step 2:** Go to the home page, where you can see posts of the people you follow. Now, scroll down towards the end and stop when you see the "you're all caught up" message.
 
@@ -107,7 +107,7 @@ Just like Instagram show you suggested users and posts, your account gets recomm
 
 **Step 3:** Scroll down towards the bottom, and you will find the similar account suggestions section. In this section, you will see a checkbox. You need to uncheck that if you don't want your name to appear as a suggested user.
 
-![ uncheck the similar account suggestions box](https://images.wondershare.com/filmora/article-images/uncheck-similar-account-suggestions.jpg)
+![uncheck the similar account suggestions box](https://images.wondershare.com/filmora/article-images/uncheck-similar-account-suggestions.jpg)
 
 ## Part 5: How Does Instagram Suggestions Work?
 
@@ -171,7 +171,7 @@ Here's what you need to do:
 
 **Step 1:** Open your Instagram account and if you are not logged in, simply enter your credentials to log in. You can do this by visiting your Instagram mobile app or via the browser. Once your account is open, instead of going to your profile, stay on the home page, which shows you the latest posts of people you are following.
 
-![ suggestions for you on Ins](https://images.wondershare.com/filmora/article-images/instagram-suggestions-for-you.jpg)
+![suggestions for you on Ins](https://images.wondershare.com/filmora/article-images/instagram-suggestions-for-you.jpg)
 
 **Step 2:** Go to the home page, where you can see posts of the people you follow. Now, scroll down towards the end and stop when you see the "you're all caught up" message.
 
@@ -219,7 +219,7 @@ Just like Instagram show you suggested users and posts, your account gets recomm
 
 **Step 3:** Scroll down towards the bottom, and you will find the similar account suggestions section. In this section, you will see a checkbox. You need to uncheck that if you don't want your name to appear as a suggested user.
 
-![ uncheck the similar account suggestions box](https://images.wondershare.com/filmora/article-images/uncheck-similar-account-suggestions.jpg)
+![uncheck the similar account suggestions box](https://images.wondershare.com/filmora/article-images/uncheck-similar-account-suggestions.jpg)
 
 ## Part 5: How Does Instagram Suggestions Work?
 
@@ -283,7 +283,7 @@ Here's what you need to do:
 
 **Step 1:** Open your Instagram account and if you are not logged in, simply enter your credentials to log in. You can do this by visiting your Instagram mobile app or via the browser. Once your account is open, instead of going to your profile, stay on the home page, which shows you the latest posts of people you are following.
 
-![ suggestions for you on Ins](https://images.wondershare.com/filmora/article-images/instagram-suggestions-for-you.jpg)
+![suggestions for you on Ins](https://images.wondershare.com/filmora/article-images/instagram-suggestions-for-you.jpg)
 
 **Step 2:** Go to the home page, where you can see posts of the people you follow. Now, scroll down towards the end and stop when you see the "you're all caught up" message.
 
@@ -331,7 +331,7 @@ Just like Instagram show you suggested users and posts, your account gets recomm
 
 **Step 3:** Scroll down towards the bottom, and you will find the similar account suggestions section. In this section, you will see a checkbox. You need to uncheck that if you don't want your name to appear as a suggested user.
 
-![ uncheck the similar account suggestions box](https://images.wondershare.com/filmora/article-images/uncheck-similar-account-suggestions.jpg)
+![uncheck the similar account suggestions box](https://images.wondershare.com/filmora/article-images/uncheck-similar-account-suggestions.jpg)
 
 ## Part 5: How Does Instagram Suggestions Work?
 
@@ -395,7 +395,7 @@ Here's what you need to do:
 
 **Step 1:** Open your Instagram account and if you are not logged in, simply enter your credentials to log in. You can do this by visiting your Instagram mobile app or via the browser. Once your account is open, instead of going to your profile, stay on the home page, which shows you the latest posts of people you are following.
 
-![ suggestions for you on Ins](https://images.wondershare.com/filmora/article-images/instagram-suggestions-for-you.jpg)
+![suggestions for you on Ins](https://images.wondershare.com/filmora/article-images/instagram-suggestions-for-you.jpg)
 
 **Step 2:** Go to the home page, where you can see posts of the people you follow. Now, scroll down towards the end and stop when you see the "you're all caught up" message.
 
@@ -443,7 +443,7 @@ Just like Instagram show you suggested users and posts, your account gets recomm
 
 **Step 3:** Scroll down towards the bottom, and you will find the similar account suggestions section. In this section, you will see a checkbox. You need to uncheck that if you don't want your name to appear as a suggested user.
 
-![ uncheck the similar account suggestions box](https://images.wondershare.com/filmora/article-images/uncheck-similar-account-suggestions.jpg)
+![uncheck the similar account suggestions box](https://images.wondershare.com/filmora/article-images/uncheck-similar-account-suggestions.jpg)
 
 ## Part 5: How Does Instagram Suggestions Work?
 

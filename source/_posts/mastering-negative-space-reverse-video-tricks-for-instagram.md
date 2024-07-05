@@ -1,7 +1,7 @@
 ---
 title: "\"Mastering Negative Space  Reverse Video Tricks for Instagram\""
-date: 2024-05-21T16:40:48.573Z
-updated: 2024-05-22T16:40:48.573Z
+date: 2024-07-04T18:25:12.015Z
+updated: 2024-07-05T18:25:12.015Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Mastering Negative Space: Reverse Video Tricks for Instagram\""
 excerpt: "\"This Article Describes Mastering Negative Space: Reverse Video Tricks for Instagram\""
 keywords: "Negative Space Tactics,Reverse Video Tricks,Instagram Design Hacks,Mastering Visual Balance,Instagram Negative Focus,Creative Space Techniques,Social Media Illusions"
-thumbnail: https://www.lifewire.com/thmb/_XuM0RGQqq3Xr9zgilkTIlHeBSM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Machine-Learning-vs-Deep-Learning-916363798b674c2fb4d481a46ad72789.jpg
+thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b69670867cf0671d294f1cd7b.jpg
 ---
 
 ## Mastering Negative Space: Reverse Video Tricks for Instagram

@@ -1,7 +1,7 @@
 ---
 title: "In 2024, How to Go Live on Instagram"
-date: 2024-05-21T16:19:12.969Z
-updated: 2024-05-22T16:19:12.969Z
+date: 2024-07-04T18:25:19.352Z
+updated: 2024-07-05T18:25:19.352Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes In 2024, How to Go Live on Instagram"
 excerpt: "This Article Describes In 2024, How to Go Live on Instagram"
 keywords: "Live on IG Guide,Start Insta Live,Instagram Live Tips,Beginner's Live Streaming,Live Video Techniques,Go Live Strategies,Mastering Instagram Live"
-thumbnail: https://www.lifewire.com/thmb/DHxaJkZu-_13cCciVcRs3Mq0nj4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/012_how-to-make-video-call-on-android-bd93ab594aa648c7977f4c1ecf42c85b.jpg
+thumbnail: https://thmb.techidaily.com/502b1cdc938497dc65859bd4dea7388cbc83b5388aae8627911832c708fd7626.jpg
 ---
 
 ## Unveiling Yourself: Instagram Live Basics
@@ -49,7 +49,7 @@ Now you should be in your story menu, which will let you choose one of three ava
 
 For the purposes of Instagram live streaming, you'll need to slide on over to the 'Live' option.
 
-Before you begin broadcasting, however, check out your settings to ensure the right people can (or can't) see the broadcast. You can also edit who is allowed to message you about this story, and block anyone you know to be a troll, for example. The 'save shared photos' setting does not work on your live streams, however, you can save your broadcast to your camera roll once you've finished the stream, thanks to a [feature](https://techcrunch.com/2017/03/20/you-can-now-save-your-instagram-live-streams-to-your-camera-roll/)introduced by Instagram last year.
+Before you begin broadcasting, however, check out your settings to ensure the right people can (or can't) see the broadcast. You can also edit who is allowed to message you about this story, and block anyone you know to be a troll, for example. The 'save shared photos' setting does not work on your live streams, however, you can save your broadcast to your camera roll once you've finished the stream, thanks to a [feature](https://techcrunch.com/2017/03/20/you-can-now-save-your-instagram-live-streams-to-your-camera-roll/) introduced by Instagram last year.
 
 Now you're all set. Check that your camera is pointing the right way, take a deep breath, and hit 'Start Live Video' once you're sure you're ready to start.
 
@@ -149,7 +149,7 @@ Now you should be in your story menu, which will let you choose one of three ava
 
 For the purposes of Instagram live streaming, you'll need to slide on over to the 'Live' option.
 
-Before you begin broadcasting, however, check out your settings to ensure the right people can (or can't) see the broadcast. You can also edit who is allowed to message you about this story, and block anyone you know to be a troll, for example. The 'save shared photos' setting does not work on your live streams, however, you can save your broadcast to your camera roll once you've finished the stream, thanks to a [feature](https://techcrunch.com/2017/03/20/you-can-now-save-your-instagram-live-streams-to-your-camera-roll/)introduced by Instagram last year.
+Before you begin broadcasting, however, check out your settings to ensure the right people can (or can't) see the broadcast. You can also edit who is allowed to message you about this story, and block anyone you know to be a troll, for example. The 'save shared photos' setting does not work on your live streams, however, you can save your broadcast to your camera roll once you've finished the stream, thanks to a [feature](https://techcrunch.com/2017/03/20/you-can-now-save-your-instagram-live-streams-to-your-camera-roll/) introduced by Instagram last year.
 
 Now you're all set. Check that your camera is pointing the right way, take a deep breath, and hit 'Start Live Video' once you're sure you're ready to start.
 
@@ -249,7 +249,7 @@ Now you should be in your story menu, which will let you choose one of three ava
 
 For the purposes of Instagram live streaming, you'll need to slide on over to the 'Live' option.
 
-Before you begin broadcasting, however, check out your settings to ensure the right people can (or can't) see the broadcast. You can also edit who is allowed to message you about this story, and block anyone you know to be a troll, for example. The 'save shared photos' setting does not work on your live streams, however, you can save your broadcast to your camera roll once you've finished the stream, thanks to a [feature](https://techcrunch.com/2017/03/20/you-can-now-save-your-instagram-live-streams-to-your-camera-roll/)introduced by Instagram last year.
+Before you begin broadcasting, however, check out your settings to ensure the right people can (or can't) see the broadcast. You can also edit who is allowed to message you about this story, and block anyone you know to be a troll, for example. The 'save shared photos' setting does not work on your live streams, however, you can save your broadcast to your camera roll once you've finished the stream, thanks to a [feature](https://techcrunch.com/2017/03/20/you-can-now-save-your-instagram-live-streams-to-your-camera-roll/) introduced by Instagram last year.
 
 Now you're all set. Check that your camera is pointing the right way, take a deep breath, and hit 'Start Live Video' once you're sure you're ready to start.
 
@@ -349,7 +349,7 @@ Now you should be in your story menu, which will let you choose one of three ava
 
 For the purposes of Instagram live streaming, you'll need to slide on over to the 'Live' option.
 
-Before you begin broadcasting, however, check out your settings to ensure the right people can (or can't) see the broadcast. You can also edit who is allowed to message you about this story, and block anyone you know to be a troll, for example. The 'save shared photos' setting does not work on your live streams, however, you can save your broadcast to your camera roll once you've finished the stream, thanks to a [feature](https://techcrunch.com/2017/03/20/you-can-now-save-your-instagram-live-streams-to-your-camera-roll/)introduced by Instagram last year.
+Before you begin broadcasting, however, check out your settings to ensure the right people can (or can't) see the broadcast. You can also edit who is allowed to message you about this story, and block anyone you know to be a troll, for example. The 'save shared photos' setting does not work on your live streams, however, you can save your broadcast to your camera roll once you've finished the stream, thanks to a [feature](https://techcrunch.com/2017/03/20/you-can-now-save-your-instagram-live-streams-to-your-camera-roll/) introduced by Instagram last year.
 
 Now you're all set. Check that your camera is pointing the right way, take a deep breath, and hit 'Start Live Video' once you're sure you're ready to start.
 

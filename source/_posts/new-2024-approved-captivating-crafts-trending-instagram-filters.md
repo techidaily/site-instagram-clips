@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Captivating Crafts  Trending Instagram Filters\""
-date: 2024-05-21T16:51:58.511Z
-updated: 2024-05-22T16:51:58.511Z
+date: 2024-07-04T18:25:20.332Z
+updated: 2024-07-05T18:25:20.332Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] 2024 Approved: Captivating Crafts: Trending Instagram Filters\""
 excerpt: "\"This Article Describes [New] 2024 Approved: Captivating Crafts: Trending Instagram Filters\""
 keywords: "InstaFiltersTrendy,CraftingViralGlam,ArtisticFilterBuzz,GlossyCraftyHacks,TrendingCraftersArt,StylishCraftyViews,PopularInstaEffects"
-thumbnail: https://www.lifewire.com/thmb/GLP3MMh3fiI21uzbTNxbYmlFrZA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/how-to-check-router-history-5206763-4a35a9ac67f54e978a7f206600e8a8e1.jpg
+thumbnail: https://thmb.techidaily.com/d16299364ff8a12ac1730983e510ad0f5d027390038abb94b7b607447c1cc871.jpg
 ---
 
 ## Captivating Crafts: Trending Instagram Filters

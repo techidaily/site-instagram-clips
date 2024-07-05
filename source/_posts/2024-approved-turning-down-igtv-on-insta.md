@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Turning Down IGTV on Insta\""
-date: 2024-05-21T16:33:23.711Z
-updated: 2024-05-22T16:33:23.711Z
+date: 2024-07-04T18:25:17.956Z
+updated: 2024-07-05T18:25:17.956Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Turning Down IGTV on Insta\""
 excerpt: "\"This Article Describes 2024 Approved: Turning Down IGTV on Insta\""
 keywords: "Reducing IGTV Usage,Minimizing IGTV Content,Lessening IGTV Posts,Decreasing IGTV Shares,Cutting Down IGTV Views,Limiting IGTV Engagement,Lowering Instagram TV Involvement,Reduce IGTV Use,Minimize IGTV,Cut IGTV Posts,Decrease IGTV,Lower IGTV View,Limit IGTV Engagement,Lessen Insta TV"
-thumbnail: https://www.lifewire.com/thmb/erzKASgx244zh90-Q9CR1bmJcrQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/anthem-speaker-set-menu-examples-aaa-58f8bed43df78ca159779250.jpg
+thumbnail: https://thmb.techidaily.com/d1af8070250ed0fc44c0eb3bb732f040d9be0391dec23043dea2f82d9170e773.jpg
 ---
 
 ## Turning Down IGTV on Insta

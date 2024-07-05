@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Off Switch for Instagram's IGTV"
-date: 2024-05-21T16:02:33.431Z
-updated: 2024-05-22T16:02:33.431Z
+date: 2024-07-04T18:25:12.786Z
+updated: 2024-07-05T18:25:12.786Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] In 2024, Off Switch for Instagram's IGTV"
 excerpt: "This Article Describes [Updated] In 2024, Off Switch for Instagram's IGTV"
 keywords: "IGTV Shutdown Guide,Turn Off IGTV,Disable IGTV,Stop IGTV Playback,Halt IGTV Streaming,Pause IGTV Content,End IGTV Views"
-thumbnail: https://www.lifewire.com/thmb/pTgecUKE6R2Q1aR9lgv5fM3H1vc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/003_how-to-turn-on-airplay-on-a-mac-5188718-69fe4c2832ec436b87d513c4ff042e27.jpg
+thumbnail: https://thmb.techidaily.com/79265524b64a96a355aa9c66ef040a78b4c61cd77b813b963d28880dc313d729.jpg
 ---
 
 ## Off Switch for Instagram's IGTV

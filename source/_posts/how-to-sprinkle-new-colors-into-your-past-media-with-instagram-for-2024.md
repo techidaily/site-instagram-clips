@@ -1,7 +1,7 @@
 ---
 title: "How to Sprinkle New Colors Into Your Past Media with Instagram for 2024"
-date: 2024-05-21T16:17:24.797Z
-updated: 2024-05-22T16:17:24.797Z
+date: 2024-07-04T18:25:12.283Z
+updated: 2024-07-05T18:25:12.283Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes How to Sprinkle New Colors Into Your Past Media with Instagram for 2024"
 excerpt: "This Article Describes How to Sprinkle New Colors Into Your Past Media with Instagram for 2024"
 keywords: "Color Infusion on Img,Insta Colored Update,Revamp Img Media,Past Images Reimagined,New Hue Img Tips,Img Media Color Sprinkle,Instagram Color Upgrade"
-thumbnail: https://www.lifewire.com/thmb/oLBXfj1WGWc12eotyU6DKsVHXrw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/watch-free-movies-online-1356647-32f79b8cc3ed484ca1f9f898f503e416.png
+thumbnail: https://thmb.techidaily.com/4e1e135a4b0338f686903eb0c608ba2a349e6fad2f1ea5329a35a6ad22caba43.png
 ---
 
 ## How to Sprinkle New Colors Into Your Past Media with Instagram
@@ -56,19 +56,19 @@ To add Instagram filters, you have to open Instagram and log in to your existing
 
 After you open the stories option, the camera will open first. You can click a photo on the spot or select an existing image from the camera. Look at the bottom left side of the screen; you will see a square box. **Click on the square box** to select an image from your photo gallery.
 
-![  Instgram camera gallery](https://images.wondershare.com/filmora/article-images/select-image-from-instagram-gallery.jpg)
+![Instgram camera gallery](https://images.wondershare.com/filmora/article-images/select-image-from-instagram-gallery.jpg)
 
 **Step 3: press the smiley icon**
 
 After you have selected the image from the gallery, you can apply a filter to it before posting. On top of the screen, you will see a smiley or sparkle emoji. **Click on the smiley emoji** to access the existing or saved filter options to apply to the selected photo.
 
-![  Instgram smile icon for filters](https://images.wondershare.com/filmora/article-images/instagram-smile-icon.jpg)
+![Instgram smile icon for filters](https://images.wondershare.com/filmora/article-images/instagram-smile-icon.jpg)
 
 **Step 4: Select filters**
 
 After clicking on the smiley icon, you will be seeing a lot of saved and existing filer options. **Swipe left** to try out and select a filter you like.
 
-![ select  Instgram filters](https://images.wondershare.com/filmora/article-images/select-instagram-filters.jpg)
+![select  Instgram filters](https://images.wondershare.com/filmora/article-images/select-instagram-filters.jpg)
 
 **Step 4: Click done and post**
 
@@ -113,7 +113,7 @@ On the bottom left of the screen, you will see a square box. **Click on the squa
 
 On the bottom, you will find a search icon which is also called the filter carousel. Through the f**ilter carousel**, you can find various kinds of filters and also type in the filter name if you have any in your mind. **Apply the filter** on the video.
 
-![  Instgram filters carousel](https://images.wondershare.com/filmora/article-images/insatgram-filter-carousel.jpg)
+![Instgram filters carousel](https://images.wondershare.com/filmora/article-images/insatgram-filter-carousel.jpg)
 
 **Step 4: Download or upload**
 
@@ -131,7 +131,7 @@ When you open the app, you will see a **'+' sign** enclosed in the square on the
 
 After you **click next**, you will see a lot of filter options. You can **swipe left to try out filters** and select the one you like. You can double-tap on the chosen filter to **adjust the intensity**.
 
-![  edit Instgram filters ](https://images.wondershare.com/filmora/article-images/edit-instagram-filters.jpg)
+![edit Instgram filters](https://images.wondershare.com/filmora/article-images/edit-instagram-filters.jpg)
 
 **Step 3: Edit the image and post**
 
@@ -145,13 +145,13 @@ A plain Instagram reel without any filters or effects can feel boring to watch. 
 
 Open the story option and **swipe to enable the Reel option**. Once you have the reel option opened, go to the gallery and **select an image** or video of your choice.
 
-![Instgram Reels Gallery ](https://images.wondershare.com/filmora/article-images/instagram-reels-gallery.jpg)
+![Instgram Reels Gallery](https://images.wondershare.com/filmora/article-images/instagram-reels-gallery.jpg)
 
 **Step 2: Click on shine emoji to add filters**
 
 On top, you will see a **shine emoji** option through which you can **browse through filters** and select the one you like; you can **click to apply**.
 
-![Instgram Reels  filters option ](https://images.wondershare.com/filmora/article-images/instagram-reels-filters-effects-option.jpg)
+![Instgram Reels  filters option](https://images.wondershare.com/filmora/article-images/instagram-reels-filters-effects-option.jpg)
 
 **Step 3: post**
 
@@ -216,19 +216,19 @@ To add Instagram filters, you have to open Instagram and log in to your existing
 
 After you open the stories option, the camera will open first. You can click a photo on the spot or select an existing image from the camera. Look at the bottom left side of the screen; you will see a square box. **Click on the square box** to select an image from your photo gallery.
 
-![  Instgram camera gallery](https://images.wondershare.com/filmora/article-images/select-image-from-instagram-gallery.jpg)
+![Instgram camera gallery](https://images.wondershare.com/filmora/article-images/select-image-from-instagram-gallery.jpg)
 
 **Step 3: press the smiley icon**
 
 After you have selected the image from the gallery, you can apply a filter to it before posting. On top of the screen, you will see a smiley or sparkle emoji. **Click on the smiley emoji** to access the existing or saved filter options to apply to the selected photo.
 
-![  Instgram smile icon for filters](https://images.wondershare.com/filmora/article-images/instagram-smile-icon.jpg)
+![Instgram smile icon for filters](https://images.wondershare.com/filmora/article-images/instagram-smile-icon.jpg)
 
 **Step 4: Select filters**
 
 After clicking on the smiley icon, you will be seeing a lot of saved and existing filer options. **Swipe left** to try out and select a filter you like.
 
-![ select  Instgram filters](https://images.wondershare.com/filmora/article-images/select-instagram-filters.jpg)
+![select  Instgram filters](https://images.wondershare.com/filmora/article-images/select-instagram-filters.jpg)
 
 **Step 4: Click done and post**
 
@@ -273,7 +273,7 @@ On the bottom left of the screen, you will see a square box. **Click on the squa
 
 On the bottom, you will find a search icon which is also called the filter carousel. Through the f**ilter carousel**, you can find various kinds of filters and also type in the filter name if you have any in your mind. **Apply the filter** on the video.
 
-![  Instgram filters carousel](https://images.wondershare.com/filmora/article-images/insatgram-filter-carousel.jpg)
+![Instgram filters carousel](https://images.wondershare.com/filmora/article-images/insatgram-filter-carousel.jpg)
 
 **Step 4: Download or upload**
 
@@ -291,7 +291,7 @@ When you open the app, you will see a **'+' sign** enclosed in the square on the
 
 After you **click next**, you will see a lot of filter options. You can **swipe left to try out filters** and select the one you like. You can double-tap on the chosen filter to **adjust the intensity**.
 
-![  edit Instgram filters ](https://images.wondershare.com/filmora/article-images/edit-instagram-filters.jpg)
+![edit Instgram filters](https://images.wondershare.com/filmora/article-images/edit-instagram-filters.jpg)
 
 **Step 3: Edit the image and post**
 
@@ -305,13 +305,13 @@ A plain Instagram reel without any filters or effects can feel boring to watch. 
 
 Open the story option and **swipe to enable the Reel option**. Once you have the reel option opened, go to the gallery and **select an image** or video of your choice.
 
-![Instgram Reels Gallery ](https://images.wondershare.com/filmora/article-images/instagram-reels-gallery.jpg)
+![Instgram Reels Gallery](https://images.wondershare.com/filmora/article-images/instagram-reels-gallery.jpg)
 
 **Step 2: Click on shine emoji to add filters**
 
 On top, you will see a **shine emoji** option through which you can **browse through filters** and select the one you like; you can **click to apply**.
 
-![Instgram Reels  filters option ](https://images.wondershare.com/filmora/article-images/instagram-reels-filters-effects-option.jpg)
+![Instgram Reels  filters option](https://images.wondershare.com/filmora/article-images/instagram-reels-filters-effects-option.jpg)
 
 **Step 3: post**
 
@@ -376,19 +376,19 @@ To add Instagram filters, you have to open Instagram and log in to your existing
 
 After you open the stories option, the camera will open first. You can click a photo on the spot or select an existing image from the camera. Look at the bottom left side of the screen; you will see a square box. **Click on the square box** to select an image from your photo gallery.
 
-![  Instgram camera gallery](https://images.wondershare.com/filmora/article-images/select-image-from-instagram-gallery.jpg)
+![Instgram camera gallery](https://images.wondershare.com/filmora/article-images/select-image-from-instagram-gallery.jpg)
 
 **Step 3: press the smiley icon**
 
 After you have selected the image from the gallery, you can apply a filter to it before posting. On top of the screen, you will see a smiley or sparkle emoji. **Click on the smiley emoji** to access the existing or saved filter options to apply to the selected photo.
 
-![  Instgram smile icon for filters](https://images.wondershare.com/filmora/article-images/instagram-smile-icon.jpg)
+![Instgram smile icon for filters](https://images.wondershare.com/filmora/article-images/instagram-smile-icon.jpg)
 
 **Step 4: Select filters**
 
 After clicking on the smiley icon, you will be seeing a lot of saved and existing filer options. **Swipe left** to try out and select a filter you like.
 
-![ select  Instgram filters](https://images.wondershare.com/filmora/article-images/select-instagram-filters.jpg)
+![select  Instgram filters](https://images.wondershare.com/filmora/article-images/select-instagram-filters.jpg)
 
 **Step 4: Click done and post**
 
@@ -433,7 +433,7 @@ On the bottom left of the screen, you will see a square box. **Click on the squa
 
 On the bottom, you will find a search icon which is also called the filter carousel. Through the f**ilter carousel**, you can find various kinds of filters and also type in the filter name if you have any in your mind. **Apply the filter** on the video.
 
-![  Instgram filters carousel](https://images.wondershare.com/filmora/article-images/insatgram-filter-carousel.jpg)
+![Instgram filters carousel](https://images.wondershare.com/filmora/article-images/insatgram-filter-carousel.jpg)
 
 **Step 4: Download or upload**
 
@@ -451,7 +451,7 @@ When you open the app, you will see a **'+' sign** enclosed in the square on the
 
 After you **click next**, you will see a lot of filter options. You can **swipe left to try out filters** and select the one you like. You can double-tap on the chosen filter to **adjust the intensity**.
 
-![  edit Instgram filters ](https://images.wondershare.com/filmora/article-images/edit-instagram-filters.jpg)
+![edit Instgram filters](https://images.wondershare.com/filmora/article-images/edit-instagram-filters.jpg)
 
 **Step 3: Edit the image and post**
 
@@ -465,13 +465,13 @@ A plain Instagram reel without any filters or effects can feel boring to watch. 
 
 Open the story option and **swipe to enable the Reel option**. Once you have the reel option opened, go to the gallery and **select an image** or video of your choice.
 
-![Instgram Reels Gallery ](https://images.wondershare.com/filmora/article-images/instagram-reels-gallery.jpg)
+![Instgram Reels Gallery](https://images.wondershare.com/filmora/article-images/instagram-reels-gallery.jpg)
 
 **Step 2: Click on shine emoji to add filters**
 
 On top, you will see a **shine emoji** option through which you can **browse through filters** and select the one you like; you can **click to apply**.
 
-![Instgram Reels  filters option ](https://images.wondershare.com/filmora/article-images/instagram-reels-filters-effects-option.jpg)
+![Instgram Reels  filters option](https://images.wondershare.com/filmora/article-images/instagram-reels-filters-effects-option.jpg)
 
 **Step 3: post**
 
@@ -536,19 +536,19 @@ To add Instagram filters, you have to open Instagram and log in to your existing
 
 After you open the stories option, the camera will open first. You can click a photo on the spot or select an existing image from the camera. Look at the bottom left side of the screen; you will see a square box. **Click on the square box** to select an image from your photo gallery.
 
-![  Instgram camera gallery](https://images.wondershare.com/filmora/article-images/select-image-from-instagram-gallery.jpg)
+![Instgram camera gallery](https://images.wondershare.com/filmora/article-images/select-image-from-instagram-gallery.jpg)
 
 **Step 3: press the smiley icon**
 
 After you have selected the image from the gallery, you can apply a filter to it before posting. On top of the screen, you will see a smiley or sparkle emoji. **Click on the smiley emoji** to access the existing or saved filter options to apply to the selected photo.
 
-![  Instgram smile icon for filters](https://images.wondershare.com/filmora/article-images/instagram-smile-icon.jpg)
+![Instgram smile icon for filters](https://images.wondershare.com/filmora/article-images/instagram-smile-icon.jpg)
 
 **Step 4: Select filters**
 
 After clicking on the smiley icon, you will be seeing a lot of saved and existing filer options. **Swipe left** to try out and select a filter you like.
 
-![ select  Instgram filters](https://images.wondershare.com/filmora/article-images/select-instagram-filters.jpg)
+![select  Instgram filters](https://images.wondershare.com/filmora/article-images/select-instagram-filters.jpg)
 
 **Step 4: Click done and post**
 
@@ -593,7 +593,7 @@ On the bottom left of the screen, you will see a square box. **Click on the squa
 
 On the bottom, you will find a search icon which is also called the filter carousel. Through the f**ilter carousel**, you can find various kinds of filters and also type in the filter name if you have any in your mind. **Apply the filter** on the video.
 
-![  Instgram filters carousel](https://images.wondershare.com/filmora/article-images/insatgram-filter-carousel.jpg)
+![Instgram filters carousel](https://images.wondershare.com/filmora/article-images/insatgram-filter-carousel.jpg)
 
 **Step 4: Download or upload**
 
@@ -611,7 +611,7 @@ When you open the app, you will see a **'+' sign** enclosed in the square on the
 
 After you **click next**, you will see a lot of filter options. You can **swipe left to try out filters** and select the one you like. You can double-tap on the chosen filter to **adjust the intensity**.
 
-![  edit Instgram filters ](https://images.wondershare.com/filmora/article-images/edit-instagram-filters.jpg)
+![edit Instgram filters](https://images.wondershare.com/filmora/article-images/edit-instagram-filters.jpg)
 
 **Step 3: Edit the image and post**
 
@@ -625,13 +625,13 @@ A plain Instagram reel without any filters or effects can feel boring to watch. 
 
 Open the story option and **swipe to enable the Reel option**. Once you have the reel option opened, go to the gallery and **select an image** or video of your choice.
 
-![Instgram Reels Gallery ](https://images.wondershare.com/filmora/article-images/instagram-reels-gallery.jpg)
+![Instgram Reels Gallery](https://images.wondershare.com/filmora/article-images/instagram-reels-gallery.jpg)
 
 **Step 2: Click on shine emoji to add filters**
 
 On top, you will see a **shine emoji** option through which you can **browse through filters** and select the one you like; you can **click to apply**.
 
-![Instgram Reels  filters option ](https://images.wondershare.com/filmora/article-images/instagram-reels-filters-effects-option.jpg)
+![Instgram Reels  filters option](https://images.wondershare.com/filmora/article-images/instagram-reels-filters-effects-option.jpg)
 
 **Step 3: post**
 

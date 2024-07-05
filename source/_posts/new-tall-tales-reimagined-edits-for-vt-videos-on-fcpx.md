@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Tall Tales Reimagined  Edits for VT Videos on FCPX\""
-date: 2024-05-21T16:06:50.796Z
-updated: 2024-05-22T16:06:50.796Z
+date: 2024-07-04T18:25:11.791Z
+updated: 2024-07-05T18:25:11.791Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Tall Tales Reimagined: Edits for VT Videos on FCPX\""
 excerpt: "\"This Article Describes [New] Tall Tales Reimagined: Edits for VT Videos on FCPX\""
 keywords: "Tall Tales Edit,Video Transformations,FCPX Updates,Remastered Stories,VT Editing Techniques,Film Revisions,Visual Storytelling"
-thumbnail: https://www.lifewire.com/thmb/iCNb1aLtBF6gQQ80UfUfRfFcn0Y=/300x200/filters:no_upscale():max_bytes(150000):strip_icc()/full-frame-shot-of-speakers-1138109687-33289baddc314b44ae87abc2fc8060cd-e7bccad6d81244509ed97ddf557f89e4.jpg
+thumbnail: https://thmb.techidaily.com/d04c4091c93f7c6e0ae17b31cbbed37cb1d18932b8605027dfc827051ad0a043.jpg
 ---
 
 ## Tall Tales Reimagined: Edits for VT Videos on FCPX

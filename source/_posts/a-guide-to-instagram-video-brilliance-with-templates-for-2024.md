@@ -1,7 +1,7 @@
 ---
 title: "A Guide to Instagram Video Brilliance with Templates for 2024"
-date: 2024-05-21T17:10:24.170Z
-updated: 2024-05-22T17:10:24.170Z
+date: 2024-07-04T18:25:19.163Z
+updated: 2024-07-05T18:25:19.163Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes A Guide to Instagram Video Brilliance with Templates for 2024"
 excerpt: "This Article Describes A Guide to Instagram Video Brilliance with Templates for 2024"
 keywords: "InstaVideoGuide,InstagramTemplateTips,VideoBrillianceInsta,CreativeTemplates,InstaVideoMastery,TempusForInsta,BrilliantInstaContent"
-thumbnail: https://www.lifewire.com/thmb/JGNm5xZw-xwaYndni5IS5fKsDi4=/300x200/filters:no_upscale():max_bytes(150000):strip_icc()/Asset12x-73a1cf0f4a4f4716bcc0caa1176844e6.png
+thumbnail: https://thmb.techidaily.com/70eb207ffd605d91a6b2f543dd9aa1d6c7a04729ab3e1a2ee11529aec8f103fd.png
 ---
 
 ## A Guide to Instagram Video Brilliance with Templates

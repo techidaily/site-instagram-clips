@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How To Cut Video For Instagram On Mac for 2024"
-date: 2024-05-21T15:58:44.125Z
-updated: 2024-05-22T15:58:44.125Z
+date: 2024-07-04T18:25:17.216Z
+updated: 2024-07-05T18:25:17.216Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] How To Cut Video For Instagram On Mac for 2024"
 excerpt: "This Article Describes [Updated] How To Cut Video For Instagram On Mac for 2024"
 keywords: "Instagram Square Video Tutorial,Creating Square iMovie Content,IMovie Square Video Guide,Making Square Instagram Videos,Square Video Filming Techniques,IMovie for Square Instagram Edits,Instagram Squares with iMovie"
-thumbnail: https://www.lifewire.com/thmb/ebrh4pryk1RCkUBx_N34Im614oA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-14050070541-0fc96b82fdc54287bf3bbce3ba323342.jpg
+thumbnail: https://thmb.techidaily.com/d24f731fb7d4e16e9e3dad20fbd83add26d8b00ef3415c454c76fbd282fafbfc.jpg
 ---
 
 ## Easy Reduction of Footage for Instagram on a Mac
