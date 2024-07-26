@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Unseen Screenshots  Tracking Instagram's Hidden Viewer List\""
-date: 2024-06-19T13:19:44.866Z
-updated: 2024-06-20T13:19:44.866Z
+date: 2024-07-24T23:52:31.377Z
+updated: 2024-07-25T23:52:31.377Z
 tags:
   - ai video
   - ai instagram
@@ -39,16 +39,25 @@ There are two methods to see who viewed your post on Instagram. You might find t
 
 [03\. How to see who viewed your Instagram post using third-party apps?](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to see who viewed your Instagram post using Stories
 
 Does it mean you will never know who viewed your post? Yes, you can. You can see who viewed your video or photo only when you upload it through the story. Your story allows you to see who viewed your photo or video. After you have uploaded a photo or a video in your story, you can easily track the people who viewed it by following few simple steps.
 
 **Step 1:** After you have successfully uploaded your video or photo on your Instagram story, wait for some time so that people can see your story. After 5 to 10 minutes, tap on Your Story located at the top left corner of Instagram.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![how to check who view your instagram](https://images.wondershare.com/filmora/article-images/who-viewed-your-instagram-step1.jpg)
 
 **Step 2:** When you tap on 'Your Story', a new window will open up showing you your image or video that you have uploaded. Now at the bottom left corner, you will number of people who have viewed your story, tap on it.
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ![methods to check who viewed your Instagram](https://images.wondershare.com/filmora/article-images/who-viewed-your-instagram-step2.jpg)
 
 **Step 3:** Now you can see the number of people who viewed your story and all those people who have viewed your Instagram story.
@@ -57,16 +66,25 @@ Does it mean you will never know who viewed your post? Yes, you can. You can see
 
 This is the easiest way of how to see who viewed your Instagram post. But if you are thinking about the images and videos that you post your feed or timeline, then you can see the number of people who viewed your post all those who liked it by following these few simple steps.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to see who viewed your Instagram post using likes
 
 **Step 1:** Go to any post that you want to track and see how many people have viewed and who liked it. Below your video or image, you can see 'Liked by'. Click on the 'others' next to the name of the person who liked your post.
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ![use likes to check who viewed your instagram](https://images.wondershare.com/filmora/article-images/viewed-your-instagram-using-likes-step1.png)
 
 **Step 2:** Now at the top of the screen, you will see two numbers. The first number shows how many people have viewed your image or video and the second number shows the number of people who liked it. And the list below these numbers is the list of people who have liked your post.
 
 Since this method doesn't show you who viewed your Instagram post, it gives your few names in people who liked your post. These are the people who also viewed your post. I know this is not complete but Instagram doesn't provide the data of people who viewed your post. So in that case, you can use this data to have an idea about who viewed your post.
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![use Instagram Likes to check who viewed your Instagram](https://images.wondershare.com/filmora/article-images/viewed-your-instagram-using-likes-step2.png)
 
 ## How to see who viewed your Instagram post using third-party apps? Is it really possible?

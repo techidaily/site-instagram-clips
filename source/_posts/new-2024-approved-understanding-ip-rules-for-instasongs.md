@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Understanding IP Rules for InstaSongs\""
-date: 2024-05-21T16:37:28.280Z
-updated: 2024-05-22T16:37:28.280Z
+date: 2024-07-24T23:47:28.900Z
+updated: 2024-07-25T23:47:28.900Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] 2024 Approved: Understanding IP Rules for InstaSongs\""
 excerpt: "\"This Article Describes [New] 2024 Approved: Understanding IP Rules for InstaSongs\""
 keywords: "InstaSong Copyrights,Music Royalties Basics,Digital Audio Rights,IP Licensing Guide,Streaming Service Policies,Sound Recording Law,Content Protection Rules"
-thumbnail: https://www.lifewire.com/thmb/Pb5zO1GNPyBGQRr3Uny72CPxxAc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/004-how-to-see-everyone-on-google-meet-5088410-3eeb6cb239b84b20a4eb9c000cf45dd7.jpg
+thumbnail: https://thmb.techidaily.com/29b1b2904297da87da55ea288cd0a44b14a4d2e985940c7f874a6ef2e9aec11a.jpg
 ---
 
 ## Understanding IP Rules for InstaSongs
@@ -23,6 +23,9 @@ However, you must understand its music copyright rules before sharing your tunes
 
 This article will give you a comprehensive guide to understanding Instagram's rules about copyright music. We'll also discuss a few tips for staying compliant and avoiding any potential copyright issues.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How Does Instagram Detect Copyright Music?
 
 Firstly, let's look into the background of Instagram's working mechanism for copyright music detection.
@@ -65,6 +68,10 @@ There are several workarounds for using **copyrighted music on Instagram:**
 * **Give Credit In Your Caption:** To use copyrighted music on your IG content, give credit to the original creator in your post's caption.
 * **Post Instagram Reel Videos:** Reels are short videos of about 15 seconds with a built-in music feature that applies a sticker to your content with the song's details and can save you from Instagram copyright music issues.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
+The ultimate burning program for all your needs!</a>
+<!-- affiliate ads end -->
 ### (2) A Video Editor To Avoid Copyright Issue And Post Your Videos On Instagram
 
 Copyright can be a tricky thing, especially when it comes to posting music videos on Instagram. However, there is a way to avoid issues and still post your content on the platform.
@@ -84,11 +91,18 @@ Here are some exceptions where you don't need to ask for permission to use copyr
 * **Using Your Music:** You have all the necessary rights to use your music in your IG posts, Livestreams, or IGTV content.
 * **Public Domain Songs:** Public Domain Songs is music with no official owner or official copyright protection and can be used however you want. You can find such soundtracks on the [Open Music Archive,](http://www.openmusicarchive.org/) [PD Info](https://www.pdinfo.com/), and [IMSLP](https://imslp.org/wiki/Main%5FPage) websites.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<!-- affiliate ads end -->
 ![open-music-archive-for-public-domain-songs-for-instagram](https://images.wondershare.com/filmora/article-images/2023/03/open-music-archive-for-public-domain-songs-for-instagram.png)
 
 * **Royalty-Free Music:** It's a type of music content where you have to give credit to the creator or pay some upfront for using their songs in your content. To learn more about this, [click here!](https://tools.techidaily.com/wondershare/filmora/download/)
 * **Creative Commons Music Licensing**: Generally speaking, music in the Creative Commons still has some copyright protection. However, artists who publish under this license usually permit anyone to use their work for free. You can find CC-Music Licensing content on [TakeTones.](https://taketones.com/track/experience)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## Bonus: What Do You Do When Instagram Blocks Your Video?
 
 Even though we have learned about the rules of using copyrighted music on Instagram, what to do if you are or have been in copyright issues?
@@ -137,6 +151,9 @@ Hopefully, you've found this article helpful and can now understand the dos and 
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### (3) Exceptions For Asking Permission To Use The Music
 
 Here are some exceptions where you don't need to ask for permission to use copyrighted music in your IG posts, reels, or Livestreams:
@@ -144,11 +161,26 @@ Here are some exceptions where you don't need to ask for permission to use copyr
 * **Using Your Music:** You have all the necessary rights to use your music in your IG posts, Livestreams, or IGTV content.
 * **Public Domain Songs:** Public Domain Songs is music with no official owner or official copyright protection and can be used however you want. You can find such soundtracks on the [Open Music Archive,](http://www.openmusicarchive.org/) [PD Info](https://www.pdinfo.com/), and [IMSLP](https://imslp.org/wiki/Main%5FPage) websites.
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![open-music-archive-for-public-domain-songs-for-instagram](https://images.wondershare.com/filmora/article-images/2023/03/open-music-archive-for-public-domain-songs-for-instagram.png)
 
 * **Royalty-Free Music:** It's a type of music content where you have to give credit to the creator or pay some upfront for using their songs in your content. To learn more about this, [click here!](https://tools.techidaily.com/wondershare/filmora/download/)
 * **Creative Commons Music Licensing**: Generally speaking, music in the Creative Commons still has some copyright protection. However, artists who publish under this license usually permit anyone to use their work for free. You can find CC-Music Licensing content on [TakeTones.](https://taketones.com/track/experience)
 
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Bonus: What Do You Do When Instagram Blocks Your Video?
 
 Even though we have learned about the rules of using copyrighted music on Instagram, what to do if you are or have been in copyright issues?
@@ -161,6 +193,9 @@ If the original creator has reported you, their details will be displayed along 
 
 Step2Read the notice that says you have permission to share the content in the video and tap the **"I agree"** option.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<!-- affiliate ads end -->
 ![making appeal on instagram](https://images.wondershare.com/filmora/article-images/2023/03/making-appeal-on-instagram.png)
 
 Step3Tap the **"Appeal"** button. You can anticipate a decision within 24 hours. If you have adhered to the rules and possess the authority to use copyrighted music in your content, Instagram should lift all limitations.
@@ -185,6 +220,9 @@ There are some conditions to playing music on your Instagram Live. For instance,
 
 Unfortunately, there's no simple rule on Instagram that says using 5, 15, or 30 seconds of a song is always an acceptable use. So using 30 seconds of copyrighted music on Instagram is not considered a safe bet.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 In this article, we've discussed Instagram's rules about copyrighted music, how the platform detects copyrighted music, and some exceptions in which you don't have to ask permission to use the music in your posts. We've also recommended using the Filmora app to avoid these issues.

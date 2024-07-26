@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Soundscaping Stories  Musical Elements in Reels\""
-date: 2024-05-21T17:29:55.758Z
-updated: 2024-05-22T17:29:55.758Z
+date: 2024-07-24T23:50:43.949Z
+updated: 2024-07-25T23:50:43.949Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Soundscaping Stories: Musical Elements in Reels\""
 excerpt: "\"This Article Describes [New] Soundscaping Stories: Musical Elements in Reels\""
 keywords: "Sound Design Magic,Music In Film,Cinematic Scores,Audio Storytelling,Melodic Narratives,Reel Harmonies,Musical Filmmaking"
-thumbnail: https://www.lifewire.com/thmb/E-A9X9SPpZ3Y3P5rGzbCm_XC7tc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/03LW4149830HeroSquare-75b852929c9e44b4b6e93f27c26f1410.jpg
+thumbnail: https://thmb.techidaily.com/502bcc92fd452403f6c08525ae02c0d2e78a33616170701a3383a08e8dcec924.jpg
 ---
 
 ## Soundscaping Stories: Musical Elements in Reels
@@ -43,6 +43,10 @@ Since Instagram Reels are the coolest new thing to happen to this generation, tr
 
 07 [Add Music to Instagram Reels Business Account](#part7)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ## Part 1: How to Add Background Music to Instagram Reels While Recording
 
 First, let's find out **how to add music to reels on Instagram** when you record something. The steps to follow are easy. Just follow this step-by-step guide, and you will know-how.
@@ -51,6 +55,9 @@ First, let's find out **how to add music to reels on Instagram** when you record
 
 **Step 2:** Once done, look at the bottom of your screen, and you will see the Reels option. Please click on that.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![instagram reels option](https://images.wondershare.com/filmora/article-images/instagram-reels-option.jpg)
 
 **Step 3:** Now, tap on the record option to record something on Reels.
@@ -59,6 +66,9 @@ First, let's find out **how to add music to reels on Instagram** when you record
 
 **Step 4:** While recording it, you can click on the Music icon to add a song. Alternatively, before recording a video for your Reel, you can tap on the Music icon, search for the song you want to add, and add it.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![instagram reels music option](https://images.wondershare.com/filmora/article-images/instagram-reels-music-option.jpg)
 
 **Step 5:** Use the slider bar to select the part of the song that you want to keep. You can adjust the slider to use a different section of the song as well.
@@ -91,12 +101,21 @@ Let's say you have seen a trending song on multiple Instagram Reels and you feel
 
 **Step 3:** The moment you tap on the Use Audio option, you will be taken to your Reel recording page. Start recording the video you want, and the selected song will be played in the background.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<!-- affiliate ads end -->
 ![record instagram reels with trending music](https://images.wondershare.com/filmora/article-images/record-instagram-reels-with-trending-background-music.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 4: How to Add Your Own Background Music to Reels?
 
 In case you don't want to use any of the songs from Reel's music section, instead use something of your own; you can do that too! All you will have to do is use any of the music apps on your phone with your Instagram account. Then, play your favorite song, and while doing that, start recording a reel. The music that is being played will be added to the Reel.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 5: How to Add Your Own Voice to Instagram Reels?
 
 If you don't want to add music as your background sound, instead use your voice as a voiceover; Instagram has the voiceover feature that will let you do that. However, you can apply this feature only after finishing your recording.
@@ -105,18 +124,32 @@ If you don't want to add music as your background sound, instead use your voice 
 
 **Step 2:** If you want to add music, you can do that; if not, just let it be. After the recording is done, you will be taken to another page. Here, you will see some option right at the top of the recorded video. Click on the Microphone icon.
 
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![instagram reels microphone option](https://images.wondershare.com/filmora/article-images/instagram-reels-microphone-option.jpg)
 
 **Step 3:** Now, start recording your voice. Once you are done recording your voice, click on the Done option.
 
 ![record voiceover with instagram reels](https://images.wondershare.com/filmora/article-images/record-voiceover-instagram-reels.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
 ## Part 6: How to Save Reels with Music?
 
 Although the Reels stay there on your profile in the Reels section, they don't get saved on your mobile automatically. So, if you want to know **how to save reels with music** on your device, here are the steps you need to follow:
 
 **Step 1:** Go to your Instagram account and click on your profile picture. When the page appears where you can add a Post, Story, or Reel, you need to click on the top left gear icon, which is the Camera Settings icon.
 
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![instagram reels camera settings](https://images.wondershare.com/filmora/article-images/instagram-reels-camera-settings-option.jpg)
 
 **Step 2:** The Camera Settings will show you three things, Story, Reels, Live. You need to click on the Reels option.
@@ -127,6 +160,9 @@ Although the Reels stay there on your profile in the Reels section, they don't g
 
 ![save instagram reels video automatically](https://images.wondershare.com/filmora/article-images/save-instagram-reels-video-automatically-on-device.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 7: How to Add Music to Instagram Reels Business Account?
 
 Adding music to a regular Instagram Reels account is easy. You can pick any song that you like and add it as a background sound. However, when it comes to business accounts, there is a restriction. Business accounts can't add any recording artists' music to their reels. That's due to some copyright issues. But, if you have original music, you can add that to your Reel. The key is to search for a song with the words "Original Music."
@@ -165,6 +201,9 @@ First, let's find out **how to add music to reels on Instagram** when you record
 
 **Step 2:** Once done, look at the bottom of your screen, and you will see the Reels option. Please click on that.
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![instagram reels option](https://images.wondershare.com/filmora/article-images/instagram-reels-option.jpg)
 
 **Step 3:** Now, tap on the record option to record something on Reels.
@@ -173,10 +212,16 @@ First, let's find out **how to add music to reels on Instagram** when you record
 
 **Step 4:** While recording it, you can click on the Music icon to add a song. Alternatively, before recording a video for your Reel, you can tap on the Music icon, search for the song you want to add, and add it.
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<!-- affiliate ads end -->
 ![instagram reels music option](https://images.wondershare.com/filmora/article-images/instagram-reels-music-option.jpg)
 
 **Step 5:** Use the slider bar to select the part of the song that you want to keep. You can adjust the slider to use a different section of the song as well.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<!-- affiliate ads end -->
 ![choose parts of music for instagram reels](https://images.wondershare.com/filmora/article-images/choose-part-music-instagram-reels.jpg)
 
 Once you are done recording your video along with the background music, click on the preview option to see how your Reel will look like with the audio.
@@ -191,6 +236,9 @@ Instagram lets you add music after you complete your recording as well. This opt
 
 ![add music after  instagram reels video recording](https://images.wondershare.com/filmora/article-images/add-music-instagram-reels-after-recording.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ## Part 3: How to Find Trending Songs and Add Them to Your Reels?
 
 Let's say you have seen a trending song on multiple Instagram Reels and you feel inspired to use the same track for your Reel too. The good news is that you don't have to keep searching for the Music section for the trending track. Instagram ensures to make adding Music as a background sound easy. Follow the steps that we have written below:
@@ -201,16 +249,25 @@ Let's say you have seen a trending song on multiple Instagram Reels and you feel
 
 **Step 2:** After clicking on the song name, you find other Reels who have used the same track. Along with it, you will also see the Use Audio option. Please tap on that.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![instagram reels use audio from others](https://images.wondershare.com/filmora/article-images/instagram-reels-use-audio-option.jpg)
 
 **Step 3:** The moment you tap on the Use Audio option, you will be taken to your Reel recording page. Start recording the video you want, and the selected song will be played in the background.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<!-- affiliate ads end -->
 ![record instagram reels with trending music](https://images.wondershare.com/filmora/article-images/record-instagram-reels-with-trending-background-music.jpg)
 
 ## Part 4: How to Add Your Own Background Music to Reels?
 
 In case you don't want to use any of the songs from Reel's music section, instead use something of your own; you can do that too! All you will have to do is use any of the music apps on your phone with your Instagram account. Then, play your favorite song, and while doing that, start recording a reel. The music that is being played will be added to the Reel.
 
+<!-- affiliate ads begin -->
+<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 5: How to Add Your Own Voice to Instagram Reels?
 
 If you don't want to add music as your background sound, instead use your voice as a voiceover; Instagram has the voiceover feature that will let you do that. However, you can apply this feature only after finishing your recording.
@@ -223,6 +280,10 @@ If you don't want to add music as your background sound, instead use your voice 
 
 **Step 3:** Now, start recording your voice. Once you are done recording your voice, click on the Done option.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
+<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<!-- affiliate ads end -->
 ![record voiceover with instagram reels](https://images.wondershare.com/filmora/article-images/record-voiceover-instagram-reels.jpg)
 
 ## Part 6: How to Save Reels with Music?
@@ -231,6 +292,10 @@ Although the Reels stay there on your profile in the Reels section, they don't g
 
 **Step 1:** Go to your Instagram account and click on your profile picture. When the page appears where you can add a Post, Story, or Reel, you need to click on the top left gear icon, which is the Camera Settings icon.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ![instagram reels camera settings](https://images.wondershare.com/filmora/article-images/instagram-reels-camera-settings-option.jpg)
 
 **Step 2:** The Camera Settings will show you three things, Story, Reels, Live. You need to click on the Reels option.
@@ -241,6 +306,9 @@ Although the Reels stay there on your profile in the Reels section, they don't g
 
 ![save instagram reels video automatically](https://images.wondershare.com/filmora/article-images/save-instagram-reels-video-automatically-on-device.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 7: How to Add Music to Instagram Reels Business Account?
 
 Adding music to a regular Instagram Reels account is easy. You can pick any song that you like and add it as a background sound. However, when it comes to business accounts, there is a restriction. Business accounts can't add any recording artists' music to their reels. That's due to some copyright issues. But, if you have original music, you can add that to your Reel. The key is to search for a song with the words "Original Music."
@@ -279,10 +347,16 @@ First, let's find out **how to add music to reels on Instagram** when you record
 
 **Step 2:** Once done, look at the bottom of your screen, and you will see the Reels option. Please click on that.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![instagram reels option](https://images.wondershare.com/filmora/article-images/instagram-reels-option.jpg)
 
 **Step 3:** Now, tap on the record option to record something on Reels.
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![record instagram reels video](https://images.wondershare.com/filmora/article-images/instagram-reels-record-option.jpg)
 
 **Step 4:** While recording it, you can click on the Music icon to add a song. Alternatively, before recording a video for your Reel, you can tap on the Music icon, search for the song you want to add, and add it.
@@ -325,6 +399,9 @@ Let's say you have seen a trending song on multiple Instagram Reels and you feel
 
 In case you don't want to use any of the songs from Reel's music section, instead use something of your own; you can do that too! All you will have to do is use any of the music apps on your phone with your Instagram account. Then, play your favorite song, and while doing that, start recording a reel. The music that is being played will be added to the Reel.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 5: How to Add Your Own Voice to Instagram Reels?
 
 If you don't want to add music as your background sound, instead use your voice as a voiceover; Instagram has the voiceover feature that will let you do that. However, you can apply this feature only after finishing your recording.
@@ -339,12 +416,18 @@ If you don't want to add music as your background sound, instead use your voice 
 
 ![record voiceover with instagram reels](https://images.wondershare.com/filmora/article-images/record-voiceover-instagram-reels.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ## Part 6: How to Save Reels with Music?
 
 Although the Reels stay there on your profile in the Reels section, they don't get saved on your mobile automatically. So, if you want to know **how to save reels with music** on your device, here are the steps you need to follow:
 
 **Step 1:** Go to your Instagram account and click on your profile picture. When the page appears where you can add a Post, Story, or Reel, you need to click on the top left gear icon, which is the Camera Settings icon.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
 ![instagram reels camera settings](https://images.wondershare.com/filmora/article-images/instagram-reels-camera-settings-option.jpg)
 
 **Step 2:** The Camera Settings will show you three things, Story, Reels, Live. You need to click on the Reels option.
@@ -355,6 +438,9 @@ Although the Reels stay there on your profile in the Reels section, they don't g
 
 ![save instagram reels video automatically](https://images.wondershare.com/filmora/article-images/save-instagram-reels-video-automatically-on-device.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ## Part 7: How to Add Music to Instagram Reels Business Account?
 
 Adding music to a regular Instagram Reels account is easy. You can pick any song that you like and add it as a background sound. However, when it comes to business accounts, there is a restriction. Business accounts can't add any recording artists' music to their reels. That's due to some copyright issues. But, if you have original music, you can add that to your Reel. The key is to search for a song with the words "Original Music."
@@ -385,6 +471,9 @@ Since Instagram Reels are the coolest new thing to happen to this generation, tr
 
 07 [Add Music to Instagram Reels Business Account](#part7)
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 1: How to Add Background Music to Instagram Reels While Recording
 
 First, let's find out **how to add music to reels on Instagram** when you record something. The steps to follow are easy. Just follow this step-by-step guide, and you will know-how.
@@ -393,6 +482,9 @@ First, let's find out **how to add music to reels on Instagram** when you record
 
 **Step 2:** Once done, look at the bottom of your screen, and you will see the Reels option. Please click on that.
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![instagram reels option](https://images.wondershare.com/filmora/article-images/instagram-reels-option.jpg)
 
 **Step 3:** Now, tap on the record option to record something on Reels.
@@ -401,6 +493,9 @@ First, let's find out **how to add music to reels on Instagram** when you record
 
 **Step 4:** While recording it, you can click on the Music icon to add a song. Alternatively, before recording a video for your Reel, you can tap on the Music icon, search for the song you want to add, and add it.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![instagram reels music option](https://images.wondershare.com/filmora/article-images/instagram-reels-music-option.jpg)
 
 **Step 5:** Use the slider bar to select the part of the song that you want to keep. You can adjust the slider to use a different section of the song as well.
@@ -409,6 +504,9 @@ First, let's find out **how to add music to reels on Instagram** when you record
 
 Once you are done recording your video along with the background music, click on the preview option to see how your Reel will look like with the audio.
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: How to Add Music to Reels After Recording?
 
 Instagram lets you add music after you complete your recording as well. This option is suitable for those who often forget to add music while they are recording their video. Here's your **how to add music to reels after recording** steps:
@@ -417,14 +515,28 @@ Instagram lets you add music after you complete your recording as well. This opt
 
 **Step 2:** After recording your video, click on the Music icon, and then you will be taken to the Music library page. On the search bar, type the song name you want to add, and the song will be added to the video.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ![add music after  instagram reels video recording](https://images.wondershare.com/filmora/article-images/add-music-instagram-reels-after-recording.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 3: How to Find Trending Songs and Add Them to Your Reels?
 
 Let's say you have seen a trending song on multiple Instagram Reels and you feel inspired to use the same track for your Reel too. The good news is that you don't have to keep searching for the Music section for the trending track. Instagram ensures to make adding Music as a background sound easy. Follow the steps that we have written below:
 
 **Step 1:** Open the Reel whose background music you like, and you will see the name of the song right at the bottom. You need to click on that.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
 ![instagram reels background music](https://images.wondershare.com/filmora/article-images/instagram-reels-background-music.jpg)
 
 **Step 2:** After clicking on the song name, you find other Reels who have used the same track. Along with it, you will also see the Use Audio option. Please tap on that.
@@ -439,6 +551,9 @@ Let's say you have seen a trending song on multiple Instagram Reels and you feel
 
 In case you don't want to use any of the songs from Reel's music section, instead use something of your own; you can do that too! All you will have to do is use any of the music apps on your phone with your Instagram account. Then, play your favorite song, and while doing that, start recording a reel. The music that is being played will be added to the Reel.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 5: How to Add Your Own Voice to Instagram Reels?
 
 If you don't want to add music as your background sound, instead use your voice as a voiceover; Instagram has the voiceover feature that will let you do that. However, you can apply this feature only after finishing your recording.
@@ -451,14 +566,23 @@ If you don't want to add music as your background sound, instead use your voice 
 
 **Step 3:** Now, start recording your voice. Once you are done recording your voice, click on the Done option.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![record voiceover with instagram reels](https://images.wondershare.com/filmora/article-images/record-voiceover-instagram-reels.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 6: How to Save Reels with Music?
 
 Although the Reels stay there on your profile in the Reels section, they don't get saved on your mobile automatically. So, if you want to know **how to save reels with music** on your device, here are the steps you need to follow:
 
 **Step 1:** Go to your Instagram account and click on your profile picture. When the page appears where you can add a Post, Story, or Reel, you need to click on the top left gear icon, which is the Camera Settings icon.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![instagram reels camera settings](https://images.wondershare.com/filmora/article-images/instagram-reels-camera-settings-option.jpg)
 
 **Step 2:** The Camera Settings will show you three things, Story, Reels, Live. You need to click on the Reels option.

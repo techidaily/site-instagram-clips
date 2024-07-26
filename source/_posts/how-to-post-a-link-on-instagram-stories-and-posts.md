@@ -1,7 +1,7 @@
 ---
 title: "How to Post a Link on Instagram Stories and Posts"
-date: 2024-05-21T17:46:11.468Z
-updated: 2024-05-22T17:46:11.468Z
+date: 2024-07-24T23:51:44.118Z
+updated: 2024-07-25T23:51:44.118Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes How to Post a Link on Instagram Stories and Posts"
 excerpt: "This Article Describes How to Post a Link on Instagram Stories and Posts"
 keywords: "Share Links on Insta,Add URLs to Instagram Story,Posting Links in Insta Feed,Instagram Stories URL Addition,Tweet via Instagram Story,Instagram Post Link Up,Link Sharing on Instagram"
-thumbnail: https://www.lifewire.com/thmb/Y_fXqpvhyxw4rOeBd7HZnANUFdw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/image-twitchnerdhug-59e702d3af5d3a00108ee26e.jpg
+thumbnail: https://thmb.techidaily.com/0a7e98a47c507ce4d17e40879eab668bc44ad83b05fd8fefcba56a2f27460108.jpg
 ---
 
 ## Sharing Sites: Guide for Instagram Story and Post Links
@@ -33,6 +33,9 @@ _I have recently launched my fitness website and its YouTube channel as well. Ca
 
  You can add a clickable link to your Instagram post by putting a link on your profile (bio), running a promotion, and [Instagram Stories](https://tools.techidaily.com/wondershare/filmora/download/). With the detailed processes, we take you through every method.
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ## How to post a link on Instagram
 
  So, you are keen to understand how to post a link on Instagram in detail. Worry not! In this section, we are discussing each of the methods to share links on Instagram and your life gets simple.
@@ -45,6 +48,9 @@ _I have recently launched my fitness website and its YouTube channel as well. Ca
 
  The first method in this segment is adding a link to Instagram through Instagram Stories. The main point here is, one needs to have a verified account by Instagram or a [business profil](https://tools.techidaily.com/wondershare/filmora/download/) with at least 10000 followers. Without either of them, it is not possible to share a link with call to action.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-link-to-ins-1.jpg)
 
  You need to be very popular in order to get your account verified by Instagram to avail this opportunity. It's a big thing to get that, unless you are a public figure. Alternatively, you can just have a text overlay that displays your URL, though, it is not clickable. Future updates might support sharing links on Instagram Stories for all.
@@ -55,6 +61,9 @@ _I have recently launched my fitness website and its YouTube channel as well. Ca
 
 **Step 3** – Once the URL is incorporated, enjoy editing your Story with filters, stickers, text and then tap 'Next'. It is important to add a call to action here. So, you can mention 'Swipe up to know more', 'See more', 'Explore' etc. to guide the users.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<!-- affiliate ads end -->
 ### Section 2: Add a link to main post
 
  You can add a link to your Instagram post, but the only restraint is, it's not clickable. Unless you pay for it, there is no way you can officially add a link to your Instagram photo. You can create paid promotions, in order to access the link posting services with your Instagram main post that would lead to a product page and enable call to action. It is possible to advertise and boost your post, tracks analytics, and links email/phone through the advertising platform of Instagram, without spending much. For this, your account needs to be a business account.
@@ -75,6 +84,9 @@ _I have recently launched my fitness website and its YouTube channel as well. Ca
 
  Here are the steps to do this –
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-link-to-ins-2.jpg)
 
 **Step 1** – Post a picture on Instagram and under the description section mention 'Link in bio' and upload it.
@@ -120,10 +132,16 @@ _I have recently launched my fitness website and its YouTube channel as well. Ca
 * [Add a link to main post](#part2)
 * [Add a link in bio](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->
 ### Section 1: Add a link to Instagram Stories – for verified accounts or business profiles
 
  The first method in this segment is adding a link to Instagram through Instagram Stories. The main point here is, one needs to have a verified account by Instagram or a [business profil](https://tools.techidaily.com/wondershare/filmora/download/) with at least 10000 followers. Without either of them, it is not possible to share a link with call to action.
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-link-to-ins-1.jpg)
 
  You need to be very popular in order to get your account verified by Instagram to avail this opportunity. It's a big thing to get that, unless you are a public figure. Alternatively, you can just have a text overlay that displays your URL, though, it is not clickable. Future updates might support sharing links on Instagram Stories for all.
@@ -148,6 +166,9 @@ _I have recently launched my fitness website and its YouTube channel as well. Ca
 
 **Step 4** \- Browse any picture in your profile and click the blue color 'Promotion' button to get diverted to 'Facebook'. Add a link there and checkout with payment.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Section 3: Add a link in bio
 
  Adding a link to your profile is the traditional way of how to post a link on Instagram without any extra charge. In this case, when you post a new picture, you need to mention 'Link in bio' under the description section, so that the audience comes to the main page of your profile and visit the clickable link found there. Though, you need to always guide the viewers to visit your profile's main page in order to browse the latest updated URL to your product or service page. It's important to give the CTA – call to action, no matter which way you post your link in Instagram.
@@ -171,6 +192,14 @@ _I have recently launched my fitness website and its YouTube channel as well. Ca
 
  So these are the benefits that posting a link to your Instagram account can bring for your business. You can harp the advantages, by playing on the right notes to strike a chord with the right kind of buyers. We know that not everyone out there is a consumer, but passive consumers also get diverted to your website through others. The other people often land on your page and suggest the passive buyers to your products. By learning how to post a link on Instagram, your major problem in online marketing gets sorted.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
+
+ Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
+
+ DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
+ PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -199,6 +228,9 @@ _I have recently launched my fitness website and its YouTube channel as well. Ca
 * [Add a link to main post](#part2)
 * [Add a link in bio](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
 ### Section 1: Add a link to Instagram Stories – for verified accounts or business profiles
 
  The first method in this segment is adding a link to Instagram through Instagram Stories. The main point here is, one needs to have a verified account by Instagram or a [business profil](https://tools.techidaily.com/wondershare/filmora/download/) with at least 10000 followers. Without either of them, it is not possible to share a link with call to action.
@@ -213,6 +245,9 @@ _I have recently launched my fitness website and its YouTube channel as well. Ca
 
 **Step 3** – Once the URL is incorporated, enjoy editing your Story with filters, stickers, text and then tap 'Next'. It is important to add a call to action here. So, you can mention 'Swipe up to know more', 'See more', 'Explore' etc. to guide the users.
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Section 2: Add a link to main post
 
  You can add a link to your Instagram post, but the only restraint is, it's not clickable. Unless you pay for it, there is no way you can officially add a link to your Instagram photo. You can create paid promotions, in order to access the link posting services with your Instagram main post that would lead to a product page and enable call to action. It is possible to advertise and boost your post, tracks analytics, and links email/phone through the advertising platform of Instagram, without spending much. For this, your account needs to be a business account.
@@ -221,12 +256,18 @@ _I have recently launched my fitness website and its YouTube channel as well. Ca
 
 **Step 2** – Now, you need to scroll down and look for the 'Switch to Business Profile' option and tap it.
 
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-link-to-ins-0.jpg)
 
 **Step 3** – You need to click 'Continue' to move forward, in order to make the profile a business one.
 
 **Step 4** \- Browse any picture in your profile and click the blue color 'Promotion' button to get diverted to 'Facebook'. Add a link there and checkout with payment.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Section 3: Add a link in bio
 
  Adding a link to your profile is the traditional way of how to post a link on Instagram without any extra charge. In this case, when you post a new picture, you need to mention 'Link in bio' under the description section, so that the audience comes to the main page of your profile and visit the clickable link found there. Though, you need to always guide the viewers to visit your profile's main page in order to browse the latest updated URL to your product or service page. It's important to give the CTA – call to action, no matter which way you post your link in Instagram.
@@ -250,6 +291,9 @@ _I have recently launched my fitness website and its YouTube channel as well. Ca
 
  So these are the benefits that posting a link to your Instagram account can bring for your business. You can harp the advantages, by playing on the right notes to strike a chord with the right kind of buyers. We know that not everyone out there is a consumer, but passive consumers also get diverted to your website through others. The other people often land on your page and suggest the passive buyers to your products. By learning how to post a link on Instagram, your major problem in online marketing gets sorted.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -270,6 +314,9 @@ _I have recently launched my fitness website and its YouTube channel as well. Ca
 
  You can add a clickable link to your Instagram post by putting a link on your profile (bio), running a promotion, and [Instagram Stories](https://tools.techidaily.com/wondershare/filmora/download/). With the detailed processes, we take you through every method.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
 ## How to post a link on Instagram
 
  So, you are keen to understand how to post a link on Instagram in detail. Worry not! In this section, we are discussing each of the methods to share links on Instagram and your life gets simple.
@@ -278,6 +325,9 @@ _I have recently launched my fitness website and its YouTube channel as well. Ca
 * [Add a link to main post](#part2)
 * [Add a link in bio](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<!-- affiliate ads end -->
 ### Section 1: Add a link to Instagram Stories – for verified accounts or business profiles
 
  The first method in this segment is adding a link to Instagram through Instagram Stories. The main point here is, one needs to have a verified account by Instagram or a [business profil](https://tools.techidaily.com/wondershare/filmora/download/) with at least 10000 followers. Without either of them, it is not possible to share a link with call to action.
@@ -292,6 +342,9 @@ _I have recently launched my fitness website and its YouTube channel as well. Ca
 
 **Step 3** – Once the URL is incorporated, enjoy editing your Story with filters, stickers, text and then tap 'Next'. It is important to add a call to action here. So, you can mention 'Swipe up to know more', 'See more', 'Explore' etc. to guide the users.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Section 2: Add a link to main post
 
  You can add a link to your Instagram post, but the only restraint is, it's not clickable. Unless you pay for it, there is no way you can officially add a link to your Instagram photo. You can create paid promotions, in order to access the link posting services with your Instagram main post that would lead to a product page and enable call to action. It is possible to advertise and boost your post, tracks analytics, and links email/phone through the advertising platform of Instagram, without spending much. For this, your account needs to be a business account.
@@ -300,6 +353,9 @@ _I have recently launched my fitness website and its YouTube channel as well. Ca
 
 **Step 2** – Now, you need to scroll down and look for the 'Switch to Business Profile' option and tap it.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-link-to-ins-0.jpg)
 
 **Step 3** – You need to click 'Continue' to move forward, in order to make the profile a business one.

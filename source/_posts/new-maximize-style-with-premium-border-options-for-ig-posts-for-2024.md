@@ -1,7 +1,7 @@
 ---
 title: "[New] Maximize Style with Premium Border Options for IG Posts for 2024"
-date: 2024-07-04T18:25:19.315Z
-updated: 2024-07-05T18:25:19.315Z
+date: 2024-07-24T23:50:52.540Z
+updated: 2024-07-25T23:50:52.540Z
 tags:
   - ai video
   - ai instagram
@@ -56,20 +56,39 @@ While Instagram does allow you to add borders to your photos, the options Instag
 
 Some apps are only used to add borders solely, while others can also be used to edit photos, add more filters, add enticing borders, and so much more. Let’s take a look at some of the most comprehensive and effective apps to add borders.
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1. VSCO: Photo & Video Editor
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<!-- affiliate ads end -->
 ![VSCO Photo Editor](https://images.wondershare.com/filmora/article-images/vsco-photo-video-editor.jpg)
 
 VSCO is a free app available for [iOS](https://apps.apple.com/us/app/vsco-photo-video-editor/id58801383) and [Android users](https://play.google.com/store/apps/details?id=com.vsco.cam&hl=en&gl=US). You can start using it by creating an account on it. VSCO can edit your Instagram photos and videos. It gives you the option of framing pictures by adding borders to them through the VSCO studio. You just have to select your image and tap on the edit icon. Next, you need to click on the borders icon and add your favorite color frame to your image. It also gives you the option of changing the size and color of the border.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2. Photoshop Express
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 ![Photoshop Express add border to Ins photo](https://images.wondershare.com/filmora/article-images/photoshop-express-photo-editor.jpg)
 
 Photoshop Express is a free app available for [iPhone](https://apps.apple.com/us/app/photoshop-express-photo-editor/id331975235), [Android phones](https://play.google.com/store/apps/details?id=com.adobe.psmobile&hl=en%5FUS&gl=US), tablets, and Windows phones. It helps its users edit their photos and make collages. This app works on devices with Windows 8 or above. Through this app, you can adjust, resize your images and add text to them. To add a border to your image, you have to click on the border option and a frame will be added to your picture. You can also change the color of the border through it. This app also gives you the option of adding watermarks to your images and enhances them by adding different filters on them.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3. Polarr
 
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![use Polarr to add border to Ins photo](https://images.wondershare.com/filmora/article-images/photoshop-express-photo-editor.jpg)
 
 Polarr is a free photo editing app that is easily available for [iOS 12 or above](https://apps.apple.com/us/app/polarr/id988173374), [Android](https://play.google.com/store/apps/details?id=photo.editor.polarr&hl=en&gl=US), Windows, and Mac. Through polar you can add effects, filters, vignettes, shadows, and many more features to your photo. Simple borders can also be added through this app by tapping the borders icon. Even if you know nothing about photography, Polarr will help you become a pro in photo editing through its various enhancing tools.
@@ -80,12 +99,21 @@ Polarr is a free photo editing app that is easily available for [iOS 12 or above
 
 Lightroom is a free photo editing app available for [iOS 12 and above](https://apps.apple.com/us/app/adobe-lightroom-photo-editor/id878783582) and requires [Android 6.0 and above](https://play.google.com/store/apps/details?id=com.adobe.lrmobile&hl=en%5FUS&gl=US). This app has easy-to-use editing tools like filters and sliders. Lightroom is considered to have the best photo editing features. It doesn’t matter even if you are a beginner; Lightroom is a perfect app for all photography levels. To add a border to your image, select your image and switch to print mode. In the bottom left, page setup will appear, click on that. New page size will be created, then add a border to it and scale your image.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<!-- affiliate ads end -->
 ### 5. Snapspeed
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![use Snapseed to add border to Ins photo](https://images.wondershare.com/filmora/article-images/snapseed-photo-editor.jpg)
 
 Snapspeed is a [free photo editing app](https://tools.techidaily.com/wondershare/filmora/download/) available for iPhone and Android users. This app can also be downloaded on Windows and MacBook. This app provides you with several editing features free. This app also enables you to add white borders to your images. Choose a style and texture to add borders to your photos. You will see an option for frames, tap on this option to select a frame. You can also adjust the square frame by repositioning it.
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: Things to Consider When Adding Borders to Instagram Photo
 
 Although it is very easy to add white borders to Instagram photos and make your Instagram feed look attractive. There are a few things that should be kept in mind while adding borders to your image. To add borders, your border sizes should match, if they don’t match your Instagram feed might look old-fashioned.
@@ -143,8 +171,15 @@ VSCO is a free app available for [iOS](https://apps.apple.com/us/app/vsco-photo-
 
 Photoshop Express is a free app available for [iPhone](https://apps.apple.com/us/app/photoshop-express-photo-editor/id331975235), [Android phones](https://play.google.com/store/apps/details?id=com.adobe.psmobile&hl=en%5FUS&gl=US), tablets, and Windows phones. It helps its users edit their photos and make collages. This app works on devices with Windows 8 or above. Through this app, you can adjust, resize your images and add text to them. To add a border to your image, you have to click on the border option and a frame will be added to your picture. You can also change the color of the border through it. This app also gives you the option of adding watermarks to your images and enhances them by adding different filters on them.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ### 3. Polarr
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![use Polarr to add border to Ins photo](https://images.wondershare.com/filmora/article-images/photoshop-express-photo-editor.jpg)
 
 Polarr is a free photo editing app that is easily available for [iOS 12 or above](https://apps.apple.com/us/app/polarr/id988173374), [Android](https://play.google.com/store/apps/details?id=photo.editor.polarr&hl=en&gl=US), Windows, and Mac. Through polar you can add effects, filters, vignettes, shadows, and many more features to your photo. Simple borders can also be added through this app by tapping the borders icon. Even if you know nothing about photography, Polarr will help you become a pro in photo editing through its various enhancing tools.
@@ -200,42 +235,67 @@ The most convenient way to add white borders to the photo is through the Instagr
 
 * Now click done and move forward and put a caption on your photo and share it with your Instagram family. Your white border photo is ready to be seen by your Instagram followers.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<!-- affiliate ads end -->
 ## Part 2: Best Apps to Add Borders to Instagram Photo
 
 While Instagram does allow you to add borders to your photos, the options Instagram provides just aren’t enough. They limit the creative space individuals have - which is why many people turn to third-party apps. These apps provide enhanced borders with a diverse range of colors. This makes their Instagram content stand out even more! Several other apps can help you add **Instagram photo borders** to your photos.
 
 Some apps are only used to add borders solely, while others can also be used to edit photos, add more filters, add enticing borders, and so much more. Let’s take a look at some of the most comprehensive and effective apps to add borders.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<!-- affiliate ads end -->
 ### 1. VSCO: Photo & Video Editor
 
 ![VSCO Photo Editor](https://images.wondershare.com/filmora/article-images/vsco-photo-video-editor.jpg)
 
 VSCO is a free app available for [iOS](https://apps.apple.com/us/app/vsco-photo-video-editor/id58801383) and [Android users](https://play.google.com/store/apps/details?id=com.vsco.cam&hl=en&gl=US). You can start using it by creating an account on it. VSCO can edit your Instagram photos and videos. It gives you the option of framing pictures by adding borders to them through the VSCO studio. You just have to select your image and tap on the edit icon. Next, you need to click on the borders icon and add your favorite color frame to your image. It also gives you the option of changing the size and color of the border.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ### 2. Photoshop Express
 
 ![Photoshop Express add border to Ins photo](https://images.wondershare.com/filmora/article-images/photoshop-express-photo-editor.jpg)
 
 Photoshop Express is a free app available for [iPhone](https://apps.apple.com/us/app/photoshop-express-photo-editor/id331975235), [Android phones](https://play.google.com/store/apps/details?id=com.adobe.psmobile&hl=en%5FUS&gl=US), tablets, and Windows phones. It helps its users edit their photos and make collages. This app works on devices with Windows 8 or above. Through this app, you can adjust, resize your images and add text to them. To add a border to your image, you have to click on the border option and a frame will be added to your picture. You can also change the color of the border through it. This app also gives you the option of adding watermarks to your images and enhances them by adding different filters on them.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### 3. Polarr
 
 ![use Polarr to add border to Ins photo](https://images.wondershare.com/filmora/article-images/photoshop-express-photo-editor.jpg)
 
 Polarr is a free photo editing app that is easily available for [iOS 12 or above](https://apps.apple.com/us/app/polarr/id988173374), [Android](https://play.google.com/store/apps/details?id=photo.editor.polarr&hl=en&gl=US), Windows, and Mac. Through polar you can add effects, filters, vignettes, shadows, and many more features to your photo. Simple borders can also be added through this app by tapping the borders icon. Even if you know nothing about photography, Polarr will help you become a pro in photo editing through its various enhancing tools.
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 4. Adobe Lightroom: Photo Editor
 
+<!-- affiliate ads begin -->
+<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![use Adobe Lightroom to add border to Ins photo](https://images.wondershare.com/filmora/article-images/adobe-lightroom-photo-editor.jpg)
 
 Lightroom is a free photo editing app available for [iOS 12 and above](https://apps.apple.com/us/app/adobe-lightroom-photo-editor/id878783582) and requires [Android 6.0 and above](https://play.google.com/store/apps/details?id=com.adobe.lrmobile&hl=en%5FUS&gl=US). This app has easy-to-use editing tools like filters and sliders. Lightroom is considered to have the best photo editing features. It doesn’t matter even if you are a beginner; Lightroom is a perfect app for all photography levels. To add a border to your image, select your image and switch to print mode. In the bottom left, page setup will appear, click on that. New page size will be created, then add a border to it and scale your image.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 5. Snapspeed
 
 ![use Snapseed to add border to Ins photo](https://images.wondershare.com/filmora/article-images/snapseed-photo-editor.jpg)
 
 Snapspeed is a [free photo editing app](https://tools.techidaily.com/wondershare/filmora/download/) available for iPhone and Android users. This app can also be downloaded on Windows and MacBook. This app provides you with several editing features free. This app also enables you to add white borders to your images. Choose a style and texture to add borders to your photos. You will see an option for frames, tap on this option to select a frame. You can also adjust the square frame by repositioning it.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<!-- affiliate ads end -->
 ## Part 3: Things to Consider When Adding Borders to Instagram Photo
 
 Although it is very easy to add white borders to Instagram photos and make your Instagram feed look attractive. There are a few things that should be kept in mind while adding borders to your image. To add borders, your border sizes should match, if they don’t match your Instagram feed might look old-fashioned.
@@ -275,6 +335,9 @@ The most convenient way to add white borders to the photo is through the Instagr
 
 * Now click done and move forward and put a caption on your photo and share it with your Instagram family. Your white border photo is ready to be seen by your Instagram followers.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: Best Apps to Add Borders to Instagram Photo
 
 While Instagram does allow you to add borders to your photos, the options Instagram provides just aren’t enough. They limit the creative space individuals have - which is why many people turn to third-party apps. These apps provide enhanced borders with a diverse range of colors. This makes their Instagram content stand out even more! Several other apps can help you add **Instagram photo borders** to your photos.
@@ -283,18 +346,30 @@ Some apps are only used to add borders solely, while others can also be used to 
 
 ### 1. VSCO: Photo & Video Editor
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![VSCO Photo Editor](https://images.wondershare.com/filmora/article-images/vsco-photo-video-editor.jpg)
 
 VSCO is a free app available for [iOS](https://apps.apple.com/us/app/vsco-photo-video-editor/id58801383) and [Android users](https://play.google.com/store/apps/details?id=com.vsco.cam&hl=en&gl=US). You can start using it by creating an account on it. VSCO can edit your Instagram photos and videos. It gives you the option of framing pictures by adding borders to them through the VSCO studio. You just have to select your image and tap on the edit icon. Next, you need to click on the borders icon and add your favorite color frame to your image. It also gives you the option of changing the size and color of the border.
 
 ### 2. Photoshop Express
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Photoshop Express add border to Ins photo](https://images.wondershare.com/filmora/article-images/photoshop-express-photo-editor.jpg)
 
 Photoshop Express is a free app available for [iPhone](https://apps.apple.com/us/app/photoshop-express-photo-editor/id331975235), [Android phones](https://play.google.com/store/apps/details?id=com.adobe.psmobile&hl=en%5FUS&gl=US), tablets, and Windows phones. It helps its users edit their photos and make collages. This app works on devices with Windows 8 or above. Through this app, you can adjust, resize your images and add text to them. To add a border to your image, you have to click on the border option and a frame will be added to your picture. You can also change the color of the border through it. This app also gives you the option of adding watermarks to your images and enhances them by adding different filters on them.
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3. Polarr
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![use Polarr to add border to Ins photo](https://images.wondershare.com/filmora/article-images/photoshop-express-photo-editor.jpg)
 
 Polarr is a free photo editing app that is easily available for [iOS 12 or above](https://apps.apple.com/us/app/polarr/id988173374), [Android](https://play.google.com/store/apps/details?id=photo.editor.polarr&hl=en&gl=US), Windows, and Mac. Through polar you can add effects, filters, vignettes, shadows, and many more features to your photo. Simple borders can also be added through this app by tapping the borders icon. Even if you know nothing about photography, Polarr will help you become a pro in photo editing through its various enhancing tools.
@@ -305,8 +380,14 @@ Polarr is a free photo editing app that is easily available for [iOS 12 or above
 
 Lightroom is a free photo editing app available for [iOS 12 and above](https://apps.apple.com/us/app/adobe-lightroom-photo-editor/id878783582) and requires [Android 6.0 and above](https://play.google.com/store/apps/details?id=com.adobe.lrmobile&hl=en%5FUS&gl=US). This app has easy-to-use editing tools like filters and sliders. Lightroom is considered to have the best photo editing features. It doesn’t matter even if you are a beginner; Lightroom is a perfect app for all photography levels. To add a border to your image, select your image and switch to print mode. In the bottom left, page setup will appear, click on that. New page size will be created, then add a border to it and scale your image.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 5. Snapspeed
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![use Snapseed to add border to Ins photo](https://images.wondershare.com/filmora/article-images/snapseed-photo-editor.jpg)
 
 Snapspeed is a [free photo editing app](https://tools.techidaily.com/wondershare/filmora/download/) available for iPhone and Android users. This app can also be downloaded on Windows and MacBook. This app provides you with several editing features free. This app also enables you to add white borders to your images. Choose a style and texture to add borders to your photos. You will see an option for frames, tap on this option to select a frame. You can also adjust the square frame by repositioning it.

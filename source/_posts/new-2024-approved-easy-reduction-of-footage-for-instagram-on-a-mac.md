@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Easy Reduction of Footage for Instagram on a Mac\""
-date: 2024-07-04T18:26:07.139Z
-updated: 2024-07-05T18:26:07.139Z
+date: 2024-07-24T23:52:33.663Z
+updated: 2024-07-25T23:52:33.663Z
 tags:
   - ai video
   - ai instagram
@@ -60,12 +60,18 @@ On your Mac, launch the Filmora video editor, by clicking on this link. Ensure t
 
 You can do this in two simple ways. First, click ‘Import Media Files Here’ to obtain an Instagram video from your desktop. Second, drag and drop the video on the timeline.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![import-video](https://images.wondershare.com/filmora/filmoraX/Guide-Mac/1.index-introduction.jpg)
 
 **Step3\. Cut the Instagram video either from the beginning or end part.**
 
 Trim the video from either end. Start by moving the cursor to either side till the clip changes to the “I” pointer. You can move the pointer within the video length to cut.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![mac select clip1](https://images.wondershare.com/filmora/guide/mac-select-clip1.jpg)
 
 **Step4\. Split the Instagram video into sections.**
@@ -74,6 +80,9 @@ Separate each specific portion you have cut by dragging the slider within your s
 
 In this step, you can click any clips and do more editing. With Wondershare Filmora for Mac guide, you can add elements, transitions, and sound effects to beautify your Instagram videos.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![mac split option2](https://images.wondershare.com/filmora/guide/mac-split-option2.jpg)
 
 You may like: [How to Add Music to IG story](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -82,8 +91,15 @@ You may like: [How to Add Music to IG story](https://tools.techidaily.com/wonder
 
 In this last step, you hit ‘Export’ on the timeline, choose an appropriate format you want the video, and press ‘Export.’ You can upload the edited video directly to Instagram or select where to locate it later.
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<!-- affiliate ads end -->
 ![export file on filmorax](https://images.wondershare.com/filmora/Mac-articles/export-file-on-filmorax.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## Section 2. Speed up the video to fit on Instagram
 
 Increasing the video playback speed can also achieve the effect of shortening the Instagram video length. You can accelerate the speed of your Instagram videos with [Wondershare Filmora X](https://tools.techidaily.com/wondershare/filmora/download/) easily.
@@ -94,6 +110,9 @@ Here is a step-by-step guide;
 
 Import your edited Instagram clips or a new video to edit its speed on Wondershare Filmora. Don’t worry about the format of the video. Filmora supports almost all video formats.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<!-- affiliate ads end -->
 ![import-video-on-mac](https://images.wondershare.com/filmora/Mac-articles/import.jpg)
 
 **Step2\. One-click to speed up the video**
@@ -137,6 +156,9 @@ You may like:[8 Free Instagram Story Savers -Save Instagram Stories without Limi
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 Ollie Mattison
