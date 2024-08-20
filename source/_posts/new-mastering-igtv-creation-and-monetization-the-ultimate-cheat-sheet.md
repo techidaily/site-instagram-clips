@@ -1,0 +1,190 @@
+---
+title: "\"[New] Mastering IGTV Creation & Monetization  The Ultimate Cheat Sheet\""
+date: 2024-08-19T22:27:02.405Z
+updated: 2024-08-20T22:27:02.405Z
+tags:
+  - ai video
+  - ai instagram
+  - ai instagram video
+categories:
+  - ai
+  - instagram
+description: "\"This Article Describes [New] Mastering IGTV Creation & Monetization: The Ultimate Cheat Sheet\""
+excerpt: "\"This Article Describes [New] Mastering IGTV Creation & Monetization: The Ultimate Cheat Sheet\""
+keywords: "IGTV Mastery Guide,IGTV Money Hacks,IGTV Revenue Strategies,IGTV Creation Tips,Cheat Sheet for IGTV,Monetizing IGTV,Ultimate IGTV Guide"
+thumbnail: https://thmb.techidaily.com/3de73e34857cd0f78a7df37ffea6db9e6fc87f29fa552917e2c2599c84130202.jpg
+---
+
+## Mastering IGTV Creation & Monetization: The Ultimate Cheat Sheet
+
+# What is IGTV and How to Use It: Everything You Need to Know
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+ Have you heard of what is IGTV yet? You might have seen it already but haven’t explored it. On June 21, 2018 Instagram launched a product called – IGTV (Instagram). Another announcement during the same time is Instagram crossed one billion users.
+
+[Instagram TV](https://instagram-press.com/blog/2018/06/20/welcome-to-igtv/) or IGTV is opening up better options for influencers. With this new product in the market, influencers can promote and interact with followers in more ways.
+
+ Well! If what is IGTV and how to use IGTV is still sounds unfamiliar, check out this article to explore more!
+
+* [**Part1: What is IGTV**](#part1)
+* [**Part2: How to use IGTV**](#part2)
+* [**Part3: Tips for promoting IGTV**](#part3)
+
+ You may also like: [Top 25 Instagram Hashtags to Get Likes and Followers in 2018 >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## Part 1: What is IGTV
+
+ We are going to divulge what IGTV in this section of the article is. If you are tired of those one minute videos on Instagram and want to publish a longer video. Then IGTV is the ultimate answer for you. These videos on Instagram TV are [vertical](https://www.forbes.com/forbes/welcome/?toURL=https://www.forbes.com/sites/forbescommunicationscouncil/2018/02/02/the-rise-of-vertical-video-how-top-brands-are-adopting-a-new-content-format/&refURL=https://www.google.com.hk/&referrer=https://www.google.com.hk/) and full screen, so you don’t need to rotate the screen to watch a video properly.
+
+ Here we have featured the basic details about features and content specifications for IGTV –
+
+* You get to watch vertical full screen videos by default.
+* You can either use the IGTV app or view content right from Instagram app.
+* You can upload videos from the web or the IGTV app.
+* The videos auto-play when you launch the IGTV app.
+* It supports MP4 file types with a JPG thumbnail.
+* If you have a verified account, then you can post videos between 15 seconds to 60 minutes’ duration. For others the maximum duration is 10 minutes.
+* You can like, comment and use the ‘Direct’ tab to send videos to friends.
+* The video aspect ratio is limited to 9: 16 whereas the file size is up to 3.6GB.
+* Creators have their own YouTube channels. But, anyone can become a creator on IGTV.
+* Presently it doesn’t have any Ads, but Instagram might introduce it to make channel creators earn from their videos.
+
+## Part 2: How to use IGTV step by step
+
+ Are you wondering how to use IGTV? It is as simple as turning on TV. The app optimizes videos depending on your device screen. As soon as you launch the app or tap the IGTV button on Instagram it starts playing right away.
+
+ There is no need of searching content to start watching from people you follow or topics that interest you. You can explore more by swiping the screen up and find ‘For You’, ‘Following’, ‘Continue Watching’, and ‘Popular’.
+
+ Now that you have a fair idea about what is IGTV, and how to use it. Let’s understand how to use IGTV in a step by step manner. Here we are showing how to use IGTV through the Instagram app.
+
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### View and search IGTV channels
+
+* **Step 1**: Launch your Instagram app and tap the IGTV icon adjacent to the DM button.
+* **Step 2**: The IGTV will open right away and you can find ‘For You’, ‘Following’, ‘Popular’, and ‘Continue Watching’.
+* **Step 3**: You can select any of them to watch what videos are there and tap on the respective videos to play it.
+* **Step 4**: To search a video on IGTV, tap the search icon saying ‘Search IGTV’ from the left side of the screen.
+
+![view igtv](https://images.wondershare.com/filmora/article-images/view-igtv.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
+### Create your IGTV channel
+
+* **Step 1**: You can create a channel in IGTV by hitting the ‘Settings’ icon from the right side of the screen. Click the ‘Create Channel’ over there and then tap ‘Next’.
+* **Step 2**: Again click ‘Next’ and the ‘Create Channel’ button afterwards.
+* **Step 3**: Now, your Instagram channel has been created and your profile picture will show up instead of the ‘Settings’ icon.
+
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Upload a video to your IGTV channels
+
+* **Step 1**: To upload a video to your IGTV channel, tap your profile picture in IGTV interface.
+* **Step 2**: Click the ‘+’ sign or the ‘Upload video’ button and then select a video from your phone gallery.
+* **Step 3**: Once the video is selected it starts playing onscreen. Click on the ‘Next’ button found on the top right corner.
+* **Step 4**: On the next page enter the ‘Title’, ‘Description’, and enable or disable the ‘Make visible on Facebook Page’. You can also tap the ‘Edit’ button for changing the thumbnail image.
+* Press the ‘Post’ button right after that. Wait a while to get the video uploaded on your IGTV channel.
+
+![post igtv](https://images.wondershare.com/filmora/article-images/post-igtv.JPG)
+
+## Part 3: Tips for promoting IGTV
+
+ You can promote IGTV with ease, after knowing what IGTV is, and how to use it. Here are some prominent tips to help you in this regard. Keep exploring!
+
+### 1\. Vertical Video is necessary
+
+ For Instagram TV (IGTV), it is important to have vertical videos. The old YouTube horizontal videos need you to rotate your screen to watch them properly. Fix the 1080X1920 pixels dimensions as that of Instagram Stories for IGTV videos. You can alternatively stick to the 9.16 aspect ratio for these IGTV vertical videos.
+
+### 2\. Keep It Short
+
+ Just because you have got a video limit of 10 minutes doesn’t mean you will pester the channel with anything and everything without bothering about the video length. Always keeping it short works, as people rarely stay interested beyond the initial 3-4 minutes of a video. Unless you belong to the film industry and have HD quality videos with breathtaking content don’t rush to post 30-40 minutes long ones. Anything between 2 to 5 minutes is worth.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<!-- affiliate ads end -->
+### 3\. Don’t Just Repost videos
+
+ Unlike Instagram Stories, IGTV content is going to stay there beyond the 24 hours. So, wisely choose content for your channel and keep your followers intact.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
+## Conclusion
+
+ We are optimistic that this article has brought everything that you wanted to know about IGTV. Be it what is IGTV or how does IGTV work. Our elaborate guide on how to use IGTV has certainly made your task easier. Enjoy your new IGTV channel!
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-effortless-tiktok-integration-on-your-macbook-wonderland/"><u>[New] 2024 Approved  Effortless TikTok Integration on Your MacBook Wonderland</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-innovative-methods-for-high-definition-vr-gameplay-recordings/"><u>[New] 2024 Approved  Innovative Methods for High-Definition VR Gameplay Recordings</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-unlocking-potential-tubebuddy-and-channel-mastery/"><u>[New] 2024 Approved  Unlocking Potential  TubeBuddy & Channel Mastery</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-cost-free-match-mastery-how-to-stream-and-slice/"><u>[New] Cost-Free Match Mastery  How to Stream and Slice</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-elevate-your-social-media-impact-secrets-unveiled-in-the-best-facebook-bios/"><u>[New] In 2024, Elevate Your Social Media Impact  Secrets Unveiled in the Best Facebook Bios</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-essential-techniques-for-ps3-gameplay-screencasts/"><u>[New] In 2024, Essential Techniques for PS3 Gameplay Screencasts</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-simplified-guide-to-saving-instagrams-dynamic-content/"><u>[New] Simplified Guide to Saving Instagram's Dynamic Content</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-step-by-step-tutorial-to-elevate-your-slow-motion-videos/"><u>[New] Step-by-Step Tutorial to Elevate Your Slow Motion Videos</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-pro-level-insights-transforming-your-instagram-feed/"><u>[Updated] Pro-Level Insights  Transforming Your Instagram Feed</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-professional-insights-concealed-strategies-for-instagram-success/"><u>[Updated] Professional Insights  Concealed Strategies for Instagram Success</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-reach-and-recognition-viewership-metrics-for-insta-photos/"><u>[Updated] Reach and Recognition  Viewership Metrics for Insta Photos</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-seamless-tactic-for-igtv-stories-integration/"><u>[Updated] Seamless Tactic for IGTV Stories Integration</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-strategizing-with-snapshots-a-guide-to-instagram-video-marketing/"><u>[Updated] Strategizing with Snapshots  A Guide to Instagram Video Marketing</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-streamline-your-social-networking-joining-instagram-and-facebook-seamlessly/"><u>[Updated] Streamline Your Social Networking  Joining Instagram & Facebook Seamlessly</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-swift-sonic-speed-changer-tools-index/"><u>[Updated] Swift Sonic Speed Changer Tools Index</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-enhanced-b2c-strategies-via-brands-and-youtube-collaboration/"><u>2024 Approved  Enhanced B2C Strategies via Brands & YouTube Collaboration</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-sound-symphony-for-social-media-stardom-on-insta-reels/"><u>2024 Approved  Sound Symphony for Social Media Stardom on Insta Reels</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-soundwave-success-adding-audio-to-your-instastory/"><u>2024 Approved  Soundwave Success  Adding Audio to Your InstaStory</u></a></li>
+<li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-motorola-razr-40-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On Motorola Razr 40 | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/captivating-movement-a-guide-to-perfect-canon-timelapses-for-2024/"><u>Captivating Movement  A Guide to Perfect Canon Timelapses for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-leave-a-life360-group-on-realme-11-proplus-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How To Leave a Life360 Group On Realme 11 Pro+ Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-share-location-in-messenger-on-samsung-galaxy-a14-4g-drfone-by-drfone-virtual-android/"><u>How to Share Location in Messenger On Samsung Galaxy A14 4G? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-vivo-t2x-5g-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Vivo T2x 5G</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-reel-mastery-made-simple-with-these-free-apps-to-manage-instagram-videos/"><u>In 2024, Reel Mastery Made Simple with These Free Apps to Manage Instagram Videos</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-reimagine-your-storytelling-with-smartly-scaled-instagram-videos/"><u>In 2024, Reimagine Your Storytelling with Smartly Scaled Instagram Videos</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-save-instastories-infinite-the-liberation-app/"><u>In 2024, Save InstaStories Infinite  The Liberation App</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-size-it-up-right-instagrams-best-videography-practices/"><u>In 2024, Size It Up Right  Instagram's Best Videography Practices</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-step-by-step-guide-to-downloading-igtv-videos-on-pcmac-os/"><u>In 2024, Step-by-Step Guide to Downloading IGTV Videos on PC/Mac OS</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-oppo-k11-5g-device-by-drfone-android/"><u>In 2024, The Ultimate Guide How to Bypass Swipe Screen to Unlock on Oppo K11 5G Device</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-samsung-galaxy-m14-4gfrp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Samsung Galaxy M14 4GFRP Lock</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/professional-insights-top-10-igtv-pros-for-2024/"><u>Professional Insights  Top 10 IGTV Pros for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/rise-in-popularity-top-10-must-try-instagram-hashtags-for-2024/"><u>Rise in Popularity  Top 10 Must-Try Instagram Hashtags for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/scrutinizing-selfies-on-instagram-validation-necessary-for-2024/"><u>Scrutinizing Selfies on Instagram  Validation Necessary for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/seamless-macos-sierra-integration-techniques/"><u>Seamless MacOS Sierra Integration Techniques</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/social-media-savvy-creating-share-worthy-ig-content-for-2024/"><u>Social Media Savvy  Creating Share-Worthy IG Content for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/social-media-savvy-key-hashtags-to-utilize-today-for-2024/"><u>Social Media Savvy  Key Hashtags to Utilize Today for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/solutions-to-spy-on-vivo-y56-5g-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>Solutions to Spy on Vivo Y56 5G with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/straightforward-methods-to-save-insta-story-videos-for-2024/"><u>Straightforward Methods to Save Insta Story Videos for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/successful-strategies-for-dealing-with-red-dead-redemption-2s-unyielding-start-up-hurdle/"><u>Successful Strategies for Dealing with Red Dead Redemption 2'S Unyielding Start-Up Hurdle</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/swift-techniques-for-authenticating-insta-networks-for-2024/"><u>Swift Techniques for Authenticating Insta Networks for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/two-ways-to-track-my-boyfriends-xiaomi-redmi-note-12-proplus-5g-without-him-knowing-drfone-by-drfone-virtual-android/"><u>Two Ways to Track My Boyfriends Xiaomi Redmi Note 12 Pro+ 5G without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-your-potential-income-from-youtube-sponsored-videos/"><u>What's Your Potential Income From YouTube Sponsored Videos?</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-samsung-galaxy-xcover-6-pro-tactical-edition-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On Samsung Galaxy XCover 6 Pro Tactical Edition | Dr.fone</u></a></li>
+</ul></div>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
