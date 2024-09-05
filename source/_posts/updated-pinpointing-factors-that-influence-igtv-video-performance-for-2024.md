@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Pinpointing Factors that Influence IGTV Video Performance for 2024"
-date: 2024-07-24T23:51:49.570Z
-updated: 2024-07-25T23:51:49.570Z
+date: 2024-09-04T08:33:27.676Z
+updated: 2024-09-05T08:33:27.676Z
 tags:
   - ai video
   - ai instagram
@@ -19,9 +19,6 @@ thumbnail: https://www.lifewire.com/thmb/JH9ABBpQILZF0nd_xtnHpy6yUXI=/540x405/fi
 
 # How to Measure the Performance of IGTV Videos?
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -51,149 +48,11 @@ thumbnail: https://www.lifewire.com/thmb/JH9ABBpQILZF0nd_xtnHpy6yUXI=/540x405/fi
 **Engagement Rate –** This option is only available if you’re using an Instagram analytics app, such as [Delmondo](https://delmondo.co/instagram-analytics/) that enables you to measure the engagement rate on each of your IGTV videos.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
-<!-- affiliate ads end -->
-## How and Where to Check the Performance of IGTV Videos?
-
- Accessing the IGTV analytics is a quick and simple process since you just have to open a video and tap on the **three-dot icon**, located next to **Like, Comment and Share buttons**. Once the menu appears on the screen, you just have to select the **View Insights option** and a new window will load on the screen showing you the number of **Views, Likes and Comments** that particular video has at the moment.
-
- The **Audience Retention Graph** is located directly below these statistics, and you can use it at any moment to see **the percentage of viewers** who watched the entire video. These metrics can help you discover the type of content that can attract a large audience on IGTV. It is worth noting that these metrics are only available for IGTV videos, so if you’re also using Instagram and Instagram Stories you might want to consider installing an Instagram analytics app that enables you to conduct a more thorough analysis of the metrics the content you’re sharing is generating.
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
-## How to Promote IGTV Videos and Get More Views?
-
- Focusing on a single social network during an online marketing campaign isn’t necessarily a good choice, since sharing a video on multiple platforms can improve its visibility significantly. That’s why you should share your IGTV videos on Twitter, Facebook and all other popular online destinations that grant you access to a large audience. What’s more, you can also **create a blog post that includes additional information about the topic** a video is covering. If you scripted your IGTV video, then you can simply copy **that script into a blog post and then just embed that IGTV video into the blog post**. Alternatively, you can write a short description of the video that helps potential viewers get a better idea of what the video is about.
-
- Each time you upload a new video to your IGTV channel you can use Instagram stories and Instagram live to promote your new post. The **IGTV’s algorithm is relatively young and it still has a lot of room for improvement**, which is why you have to use all means available to you that allow you to increase the number of views and likes your content is getting.
-
-## Can You See Who Who Watched Your IGTV Videos?
-
- The shortest answer to this question is no. You can never know who watched your videos, just as other IGTV users can’t ever know that you watched a video they shared on their channel. As we already explained you can check how many people watched your video, but you can’t know who they are unless they also liked your video. Don’t trust the people who claim that they can help you find out who watched your videos, because they can’t.
-
-**Conclusion**
-
- Online marketing isn’t an exact science, but that doesn’t mean that you should disregard the statistics and the metrics provided by either IGTV or any other app designed to track the performance of your posts on social media. Do you think that audience retention or engagement rates can be essential for developing a viable online marketing strategy? Leave a comment below and share your opinions with us.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
- Social media have entirely changed the way we communicate, either privately or professionally. Facebook, YouTube or Instagram TV all offer effective ways to advertise the products a company offers and ultimately boost its revenue streams. However, your posts on IGTV or any other social media platform may not be getting the kind of attention you were hoping for. If that’s the case, then you are at the right place because in this article we are going to show you how you can measure the performance of the videos you share on your IGTV channel.
-
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## How to Measure the Performance of IGTV Videos?
-
- It has been less than a year since IGTV was launched, and it is already becoming obvious that this video sharing platform is here to stay. Such state of affairs presents a huge opportunity for anyone who wants to promote their products or services, as well as for video content creators who are looking for a new way to monetize their content.
-
- Getting thousands of likes and comments on each and every post you share on IGTV is far from simple since you need to have the right type of content and a methodical approach to content promotion in order to be able to achieve this. IGTV also offers a few metrics that can help you gather the information you need to draw more attention to the videos you share on this platform.
-
-## Which Metrics Are The Most Important For IGTV Video Analysis?
-
- In this regard, IGTV is fairly similar to any other social network, since the metrics you’re going to need to track are identical to those on YouTube or Facebook. Analyzing the statistics of each of your videos can help you discover the time of day that is the most suitable for posting new content on your channel or what type of videos are the most popular. Here are the metrics that the IGTV platform provides to all of its users.
-
-**Views –** After someone spends more than three seconds watching your IGTV video, that post will get a view. The number of views a video gets indicates the total number of people who interacted with it, even for a period of time that is as brief as a couple of seconds.
-
-**Engagements –** This metric shows you the combined number of likes and comments a video has at any given moment.
-
-**Audience Retention –** A rather important statistic that tells you the percentage of all viewers who watched a video from start to finish.
-
-**Audience Retention Graph –** A visual representation of the percentage of all views a video has at any moment. You can use this graph to see the exact point in the video where people stop watching it, which enables you to improve the content you share on your IGTV channel.
-
-**Engagement Rate –** This option is only available if you’re using an Instagram analytics app, such as [Delmondo](https://delmondo.co/instagram-analytics/) that enables you to measure the engagement rate on each of your IGTV videos.
-
-## How and Where to Check the Performance of IGTV Videos?
-
- Accessing the IGTV analytics is a quick and simple process since you just have to open a video and tap on the **three-dot icon**, located next to **Like, Comment and Share buttons**. Once the menu appears on the screen, you just have to select the **View Insights option** and a new window will load on the screen showing you the number of **Views, Likes and Comments** that particular video has at the moment.
-
- The **Audience Retention Graph** is located directly below these statistics, and you can use it at any moment to see **the percentage of viewers** who watched the entire video. These metrics can help you discover the type of content that can attract a large audience on IGTV. It is worth noting that these metrics are only available for IGTV videos, so if you’re also using Instagram and Instagram Stories you might want to consider installing an Instagram analytics app that enables you to conduct a more thorough analysis of the metrics the content you’re sharing is generating.
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-## How to Promote IGTV Videos and Get More Views?
-
- Focusing on a single social network during an online marketing campaign isn’t necessarily a good choice, since sharing a video on multiple platforms can improve its visibility significantly. That’s why you should share your IGTV videos on Twitter, Facebook and all other popular online destinations that grant you access to a large audience. What’s more, you can also **create a blog post that includes additional information about the topic** a video is covering. If you scripted your IGTV video, then you can simply copy **that script into a blog post and then just embed that IGTV video into the blog post**. Alternatively, you can write a short description of the video that helps potential viewers get a better idea of what the video is about.
-
- Each time you upload a new video to your IGTV channel you can use Instagram stories and Instagram live to promote your new post. The **IGTV’s algorithm is relatively young and it still has a lot of room for improvement**, which is why you have to use all means available to you that allow you to increase the number of views and likes your content is getting.
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
-## Can You See Who Who Watched Your IGTV Videos?
-
- The shortest answer to this question is no. You can never know who watched your videos, just as other IGTV users can’t ever know that you watched a video they shared on their channel. As we already explained you can check how many people watched your video, but you can’t know who they are unless they also liked your video. Don’t trust the people who claim that they can help you find out who watched your videos, because they can’t.
-
-**Conclusion**
-
- Online marketing isn’t an exact science, but that doesn’t mean that you should disregard the statistics and the metrics provided by either IGTV or any other app designed to track the performance of your posts on social media. Do you think that audience retention or engagement rates can be essential for developing a viable online marketing strategy? Leave a comment below and share your opinions with us.
-
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
- Social media have entirely changed the way we communicate, either privately or professionally. Facebook, YouTube or Instagram TV all offer effective ways to advertise the products a company offers and ultimately boost its revenue streams. However, your posts on IGTV or any other social media platform may not be getting the kind of attention you were hoping for. If that’s the case, then you are at the right place because in this article we are going to show you how you can measure the performance of the videos you share on your IGTV channel.
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
-## How to Measure the Performance of IGTV Videos?
-
- It has been less than a year since IGTV was launched, and it is already becoming obvious that this video sharing platform is here to stay. Such state of affairs presents a huge opportunity for anyone who wants to promote their products or services, as well as for video content creators who are looking for a new way to monetize their content.
-
- Getting thousands of likes and comments on each and every post you share on IGTV is far from simple since you need to have the right type of content and a methodical approach to content promotion in order to be able to achieve this. IGTV also offers a few metrics that can help you gather the information you need to draw more attention to the videos you share on this platform.
-
-## Which Metrics Are The Most Important For IGTV Video Analysis?
-
- In this regard, IGTV is fairly similar to any other social network, since the metrics you’re going to need to track are identical to those on YouTube or Facebook. Analyzing the statistics of each of your videos can help you discover the time of day that is the most suitable for posting new content on your channel or what type of videos are the most popular. Here are the metrics that the IGTV platform provides to all of its users.
-
-**Views –** After someone spends more than three seconds watching your IGTV video, that post will get a view. The number of views a video gets indicates the total number of people who interacted with it, even for a period of time that is as brief as a couple of seconds.
-
-**Engagements –** This metric shows you the combined number of likes and comments a video has at any given moment.
-
-**Audience Retention –** A rather important statistic that tells you the percentage of all viewers who watched a video from start to finish.
-
-**Audience Retention Graph –** A visual representation of the percentage of all views a video has at any moment. You can use this graph to see the exact point in the video where people stop watching it, which enables you to improve the content you share on your IGTV channel.
-
-**Engagement Rate –** This option is only available if you’re using an Instagram analytics app, such as [Delmondo](https://delmondo.co/instagram-analytics/) that enables you to measure the engagement rate on each of your IGTV videos.
-
 ## How and Where to Check the Performance of IGTV Videos?
 
  Accessing the IGTV analytics is a quick and simple process since you just have to open a video and tap on the **three-dot icon**, located next to **Like, Comment and Share buttons**. Once the menu appears on the screen, you just have to select the **View Insights option** and a new window will load on the screen showing you the number of **Views, Likes and Comments** that particular video has at the moment.
@@ -201,7 +60,10 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  The **Audience Retention Graph** is located directly below these statistics, and you can use it at any moment to see **the percentage of viewers** who watched the entire video. These metrics can help you discover the type of content that can attract a large audience on IGTV. It is worth noting that these metrics are only available for IGTV videos, so if you’re also using Instagram and Instagram Stories you might want to consider installing an Instagram analytics app that enables you to conduct a more thorough analysis of the metrics the content you’re sharing is generating.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
+  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## How to Promote IGTV Videos and Get More Views?
 
@@ -209,9 +71,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  Each time you upload a new video to your IGTV channel you can use Instagram stories and Instagram live to promote your new post. The **IGTV’s algorithm is relatively young and it still has a lot of room for improvement**, which is why you have to use all means available to you that allow you to increase the number of views and likes your content is getting.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Can You See Who Who Watched Your IGTV Videos?
 
  The shortest answer to this question is no. You can never know who watched your videos, just as other IGTV users can’t ever know that you watched a video they shared on their channel. As we already explained you can check how many people watched your video, but you can’t know who they are unless they also liked your video. Don’t trust the people who claim that they can help you find out who watched your videos, because they can’t.
@@ -234,6 +93,12 @@ Follow @Shanoon Cox
 
  Social media have entirely changed the way we communicate, either privately or professionally. Facebook, YouTube or Instagram TV all offer effective ways to advertise the products a company offers and ultimately boost its revenue streams. However, your posts on IGTV or any other social media platform may not be getting the kind of attention you were hoping for. If that’s the case, then you are at the right place because in this article we are going to show you how you can measure the performance of the videos you share on your IGTV channel.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Measure the Performance of IGTV Videos?
 
  It has been less than a year since IGTV was launched, and it is already becoming obvious that this video sharing platform is here to stay. Such state of affairs presents a huge opportunity for anyone who wants to promote their products or services, as well as for video content creators who are looking for a new way to monetize their content.
@@ -241,7 +106,10 @@ Follow @Shanoon Cox
  Getting thousands of likes and comments on each and every post you share on IGTV is far from simple since you need to have the right type of content and a methodical approach to content promotion in order to be able to achieve this. IGTV also offers a few metrics that can help you gather the information you need to draw more attention to the videos you share on this platform.
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Which Metrics Are The Most Important For IGTV Video Analysis?
 
@@ -269,9 +137,167 @@ Follow @Shanoon Cox
 
  Each time you upload a new video to your IGTV channel you can use Instagram stories and Instagram live to promote your new post. The **IGTV’s algorithm is relatively young and it still has a lot of room for improvement**, which is why you have to use all means available to you that allow you to increase the number of views and likes your content is getting.
 
+## Can You See Who Who Watched Your IGTV Videos?
+
+ The shortest answer to this question is no. You can never know who watched your videos, just as other IGTV users can’t ever know that you watched a video they shared on their channel. As we already explained you can check how many people watched your video, but you can’t know who they are unless they also liked your video. Don’t trust the people who claim that they can help you find out who watched your videos, because they can’t.
+
+**Conclusion**
+
+ Online marketing isn’t an exact science, but that doesn’t mean that you should disregard the statistics and the metrics provided by either IGTV or any other app designed to track the performance of your posts on social media. Do you think that audience retention or engagement rates can be essential for developing a viable online marketing strategy? Leave a comment below and share your opinions with us.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+ Social media have entirely changed the way we communicate, either privately or professionally. Facebook, YouTube or Instagram TV all offer effective ways to advertise the products a company offers and ultimately boost its revenue streams. However, your posts on IGTV or any other social media platform may not be getting the kind of attention you were hoping for. If that’s the case, then you are at the right place because in this article we are going to show you how you can measure the performance of the videos you share on your IGTV channel.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## How to Measure the Performance of IGTV Videos?
+
+ It has been less than a year since IGTV was launched, and it is already becoming obvious that this video sharing platform is here to stay. Such state of affairs presents a huge opportunity for anyone who wants to promote their products or services, as well as for video content creators who are looking for a new way to monetize their content.
+
+ Getting thousands of likes and comments on each and every post you share on IGTV is far from simple since you need to have the right type of content and a methodical approach to content promotion in order to be able to achieve this. IGTV also offers a few metrics that can help you gather the information you need to draw more attention to the videos you share on this platform.
+
+## Which Metrics Are The Most Important For IGTV Video Analysis?
+
+ In this regard, IGTV is fairly similar to any other social network, since the metrics you’re going to need to track are identical to those on YouTube or Facebook. Analyzing the statistics of each of your videos can help you discover the time of day that is the most suitable for posting new content on your channel or what type of videos are the most popular. Here are the metrics that the IGTV platform provides to all of its users.
+
+**Views –** After someone spends more than three seconds watching your IGTV video, that post will get a view. The number of views a video gets indicates the total number of people who interacted with it, even for a period of time that is as brief as a couple of seconds.
+
+**Engagements –** This metric shows you the combined number of likes and comments a video has at any given moment.
+
+**Audience Retention –** A rather important statistic that tells you the percentage of all viewers who watched a video from start to finish.
+
+**Audience Retention Graph –** A visual representation of the percentage of all views a video has at any moment. You can use this graph to see the exact point in the video where people stop watching it, which enables you to improve the content you share on your IGTV channel.
+
+**Engagement Rate –** This option is only available if you’re using an Instagram analytics app, such as [Delmondo](https://delmondo.co/instagram-analytics/) that enables you to measure the engagement rate on each of your IGTV videos.
+
+## How and Where to Check the Performance of IGTV Videos?
+
+ Accessing the IGTV analytics is a quick and simple process since you just have to open a video and tap on the **three-dot icon**, located next to **Like, Comment and Share buttons**. Once the menu appears on the screen, you just have to select the **View Insights option** and a new window will load on the screen showing you the number of **Views, Likes and Comments** that particular video has at the moment.
+
+ The **Audience Retention Graph** is located directly below these statistics, and you can use it at any moment to see **the percentage of viewers** who watched the entire video. These metrics can help you discover the type of content that can attract a large audience on IGTV. It is worth noting that these metrics are only available for IGTV videos, so if you’re also using Instagram and Instagram Stories you might want to consider installing an Instagram analytics app that enables you to conduct a more thorough analysis of the metrics the content you’re sharing is generating.
+
+## How to Promote IGTV Videos and Get More Views?
+
+ Focusing on a single social network during an online marketing campaign isn’t necessarily a good choice, since sharing a video on multiple platforms can improve its visibility significantly. That’s why you should share your IGTV videos on Twitter, Facebook and all other popular online destinations that grant you access to a large audience. What’s more, you can also **create a blog post that includes additional information about the topic** a video is covering. If you scripted your IGTV video, then you can simply copy **that script into a blog post and then just embed that IGTV video into the blog post**. Alternatively, you can write a short description of the video that helps potential viewers get a better idea of what the video is about.
+
+ Each time you upload a new video to your IGTV channel you can use Instagram stories and Instagram live to promote your new post. The **IGTV’s algorithm is relatively young and it still has a lot of room for improvement**, which is why you have to use all means available to you that allow you to increase the number of views and likes your content is getting.
+
+<!-- affiliate ads begin -->
+<span id="1993645">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Can You See Who Who Watched Your IGTV Videos?
+
+ The shortest answer to this question is no. You can never know who watched your videos, just as other IGTV users can’t ever know that you watched a video they shared on their channel. As we already explained you can check how many people watched your video, but you can’t know who they are unless they also liked your video. Don’t trust the people who claim that they can help you find out who watched your videos, because they can’t.
+
+**Conclusion**
+
+ Online marketing isn’t an exact science, but that doesn’t mean that you should disregard the statistics and the metrics provided by either IGTV or any other app designed to track the performance of your posts on social media. Do you think that audience retention or engagement rates can be essential for developing a viable online marketing strategy? Leave a comment below and share your opinions with us.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+ Social media have entirely changed the way we communicate, either privately or professionally. Facebook, YouTube or Instagram TV all offer effective ways to advertise the products a company offers and ultimately boost its revenue streams. However, your posts on IGTV or any other social media platform may not be getting the kind of attention you were hoping for. If that’s the case, then you are at the right place because in this article we are going to show you how you can measure the performance of the videos you share on your IGTV channel.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## How to Measure the Performance of IGTV Videos?
+
+ It has been less than a year since IGTV was launched, and it is already becoming obvious that this video sharing platform is here to stay. Such state of affairs presents a huge opportunity for anyone who wants to promote their products or services, as well as for video content creators who are looking for a new way to monetize their content.
+
+ Getting thousands of likes and comments on each and every post you share on IGTV is far from simple since you need to have the right type of content and a methodical approach to content promotion in order to be able to achieve this. IGTV also offers a few metrics that can help you gather the information you need to draw more attention to the videos you share on this platform.
+
+## Which Metrics Are The Most Important For IGTV Video Analysis?
+
+ In this regard, IGTV is fairly similar to any other social network, since the metrics you’re going to need to track are identical to those on YouTube or Facebook. Analyzing the statistics of each of your videos can help you discover the time of day that is the most suitable for posting new content on your channel or what type of videos are the most popular. Here are the metrics that the IGTV platform provides to all of its users.
+
+**Views –** After someone spends more than three seconds watching your IGTV video, that post will get a view. The number of views a video gets indicates the total number of people who interacted with it, even for a period of time that is as brief as a couple of seconds.
+
+**Engagements –** This metric shows you the combined number of likes and comments a video has at any given moment.
+
+**Audience Retention –** A rather important statistic that tells you the percentage of all viewers who watched a video from start to finish.
+
+**Audience Retention Graph –** A visual representation of the percentage of all views a video has at any moment. You can use this graph to see the exact point in the video where people stop watching it, which enables you to improve the content you share on your IGTV channel.
+
+**Engagement Rate –** This option is only available if you’re using an Instagram analytics app, such as [Delmondo](https://delmondo.co/instagram-analytics/) that enables you to measure the engagement rate on each of your IGTV videos.
+
+<!-- affiliate ads begin -->
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## How and Where to Check the Performance of IGTV Videos?
+
+ Accessing the IGTV analytics is a quick and simple process since you just have to open a video and tap on the **three-dot icon**, located next to **Like, Comment and Share buttons**. Once the menu appears on the screen, you just have to select the **View Insights option** and a new window will load on the screen showing you the number of **Views, Likes and Comments** that particular video has at the moment.
+
+ The **Audience Retention Graph** is located directly below these statistics, and you can use it at any moment to see **the percentage of viewers** who watched the entire video. These metrics can help you discover the type of content that can attract a large audience on IGTV. It is worth noting that these metrics are only available for IGTV videos, so if you’re also using Instagram and Instagram Stories you might want to consider installing an Instagram analytics app that enables you to conduct a more thorough analysis of the metrics the content you’re sharing is generating.
+
+## How to Promote IGTV Videos and Get More Views?
+
+ Focusing on a single social network during an online marketing campaign isn’t necessarily a good choice, since sharing a video on multiple platforms can improve its visibility significantly. That’s why you should share your IGTV videos on Twitter, Facebook and all other popular online destinations that grant you access to a large audience. What’s more, you can also **create a blog post that includes additional information about the topic** a video is covering. If you scripted your IGTV video, then you can simply copy **that script into a blog post and then just embed that IGTV video into the blog post**. Alternatively, you can write a short description of the video that helps potential viewers get a better idea of what the video is about.
+
+ Each time you upload a new video to your IGTV channel you can use Instagram stories and Instagram live to promote your new post. The **IGTV’s algorithm is relatively young and it still has a lot of room for improvement**, which is why you have to use all means available to you that allow you to increase the number of views and likes your content is getting.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Can You See Who Who Watched Your IGTV Videos?
 
@@ -312,3 +338,43 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-audio-alchemy-transforming-instagram-videos-with-sound/"><u>[New] 2024 Approved  Audio Alchemy  Transforming Instagram Videos with Sound</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-a-symphony-for-screens-music-in-instagram-visuals-for-2024/"><u>[New] A Symphony for Screens  Music in Instagram Visuals for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-craft-channels-with-flair-unveiling-10-innovative-design-platforms-for-2024/"><u>[New] Craft Channels with Flair  Unveiling 10 Innovative Design Platforms for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-accelerate-instagram-video-playback-mobile-tips-and-tricks/"><u>[New] In 2024, Accelerate Instagram Video Playback  Mobile Tips & Tricks</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-inside-look-key-aspects-of-srt-mastery/"><u>[New] Inside Look  Key Aspects of SRT Mastery</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-top-10-horizontal-and-vertical-igtv-editing-apps-reviewed/"><u>[New] Top 10 Horizontal & Vertical IGTV Editing Apps Reviewed</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-unlocking-creativity-a-guide-to-instagram-story-archiving/"><u>[New] Unlocking Creativity  A Guide to Instagram Story Archiving</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-weekly-must-see-elite-igtv-talents/"><u>[New] Weekly Must-See  Elite IGTV Talents</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-acclaimed-pioneers-premier-instragram-highlight-makers/"><u>[Updated] 2024 Approved  Acclaimed Pioneers  Premier Instragram Highlight Makers</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-a-step-by-step-guide-to-creating-compelling-instagram-puzzles-for-2024/"><u>[Updated] A Step-by-Step Guide to Creating Compelling Instagram Puzzles for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-peekcapture-review-of-low-res-screen-grabs/"><u>[Updated] PeekCapture Review of Low-Res Screen Grabs</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-uncover-recent-instagram-unfollow-patterns/"><u>[Updated] Uncover Recent Instagram Unfollow Patterns</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-unleash-creativity-on-instagrams-reels-frontier/"><u>[Updated] Unleash Creativity on Instagram's Reels Frontier</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-unlocking-visual-impact-insta-video-tips/"><u>[Updated] Unlocking Visual Impact  Insta Video Tips</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-unlocking-your-potential-for-higher-instagram-video-visibility/"><u>[Updated] Unlocking Your Potential for Higher Instagram Video Visibility</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/1-3-in-ipad-voice-memos-and-recorders/"><u>1-3 in iPad Voice Memos & Recorders</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-perfecting-zoom-techniques-for-tiktok-engagement/"><u>2024 Approved  Perfecting Zoom Techniques for TikTok Engagement</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-tricks-to-faster-and-smoother-instagram-media/"><u>2024 Approved  Tricks to Faster and Smoother Instagram Media</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-uncovering-secrets-in-instagram-story-watchers/"><u>2024 Approved  Uncovering Secrets in Instagram Story Watchers</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-unleash-laughter-and-tears-the-best-instagram-meme-picks/"><u>2024 Approved  Unleash Laughter and Tears  The Best Instagram Meme Picks</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-unveiling-instagrams-background-replace-technique/"><u>2024 Approved  Unveiling Instagram’s Background Replace Technique</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-your-android-and-iphone-companion-to-igtv-downloads/"><u>2024 Approved  Your Android & iPhone Companion to IGTV Downloads</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-free-of-social-media-shackles-untagging-techniques/"><u>Breaking Free of Social Media Shackles: Untagging Techniques</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/comprehensive-review-top-performance-gear-running-watches-of-2024/"><u>Comprehensive Review: Top Performance Gear - Running Watches of 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-oppo-reno-10-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on Oppo Reno 10 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-go-joystick-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Realme C33 2023? | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-easy-guide-to-samsung-galaxy-m14-4g-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Samsung Galaxy M14 4G FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-understanding-when-people-drop-off-on-instagram/"><u>In 2024, Understanding When People Drop Off on Instagram</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-unlocking-instagram-potential-a-comprehensible-guide/"><u>In 2024, Unlocking Instagram Potential  A Comprehensible Guide</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-video-twisting-techniques-boost-your-instagram-media-presentation/"><u>In 2024, Video Twisting Techniques  Boost Your Instagram Media Presentation</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/mastering-minecraft-a-beginners-guide-to-utilizing-the-teleport-command/"><u>Mastering Minecraft: A Beginner's Guide to Utilizing the Teleport Command</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/new-in-2024-top-9-choices-for-video-auto-translate/"><u>New In 2024, Top 9 Choices for Video Auto Translate</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/top-rated-apps-to-elevate-instagram-imagery-for-2024/"><u>Top-Rated Apps to Elevate Instagram Imagery for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/uncovering-10-discreet-instagram-story-aficionados-for-2024/"><u>Uncovering 10 Discreet Instagram Story Aficionados for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/unleash-your-creativity-the-best-10-igtv-techniques-to-skyrocket-your-brand-for-2024/"><u>Unleash Your Creativity  The Best 10 IGTV Techniques to Skyrocket Your Brand for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/unlock-the-potential-of-your-camera-creating-stunning-slow-motion-videos-for-instagram-for-2024/"><u>Unlock the Potential of Your Camera  Creating Stunning Slow-Motion Videos for Instagram for 2024</u></a></li>
+</ul></div>
