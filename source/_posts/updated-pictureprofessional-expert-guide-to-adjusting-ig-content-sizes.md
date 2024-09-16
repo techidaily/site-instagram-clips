@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] PictureProfessional  Expert Guide to Adjusting IG Content Sizes\""
-date: 2024-09-09T19:41:31.352Z
-updated: 2024-09-10T19:41:31.352Z
+date: 2024-09-13T01:43:38.855Z
+updated: 2024-09-15T22:33:05.323Z
 tags:
   - ai video
   - ai instagram
@@ -15,24 +15,12 @@ keywords: "IG Size Guide,Prof Image Resizing,Pro Photography Tips,Photo Adjustme
 thumbnail: https://thmb.techidaily.com/17c25677d8b6f855960d685398c90f557dfcb8867eadfe8568f79af44cbea910.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## PictureProfessional: Expert Guide to Adjusting IG Content Sizes
 
 # Latest Instagram Photo and Video Size Checklist
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121334/18498" target="_top" id="2121334">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121334" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121334/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Shanoon Cox
 
  Mar 27, 2024• Proven solutions
@@ -41,12 +29,6 @@ Taking photos with iPhones and Android Smartphones and posting them to Instagram
 
 Troubles begin when you want to upload photos and videos that weren't captured with a Smartphone to Instagram. In most cases, the photos and videos produced by DSLR cameras and other semi-professional and professional equipment are much larger than the sizes supported by Instagram. That is the reason why we created this guide that will help you post visual content that is perfectly adjusted to Instagram in 2021.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120865/26400?prodsku=mercury" target="_top" id="2120865">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120865/26400?prodsku=mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Types of Files Accepted by Instagram
 
 The first thing you need to pay attention to when uploading images and videos to Instagram is that the files you are uploading are in one of the photo or video formats that Instagram supports.
@@ -63,12 +45,6 @@ Duration of Videos on Instagram
 
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Best Image Sizes for Instagram Posts
 
 A couple of years ago, Instagram has finally allowed its users to upload images that aren't square shaped. In 2021, you can also upload horizontally and vertically oriented photos in addition to the standard square shape. However, in order to create a perfect Instagram post, and prevent the platform from cropping your photos you need to use the Instagram image sizes featured below.
@@ -77,12 +53,6 @@ A couple of years ago, Instagram has finally allowed its users to upload images 
 
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
 
 * **Square**
@@ -107,76 +77,11 @@ The profile pictures on Instagram are tiny, and the optimum size for them is 160
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
-
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-streamlining-your-online-impact-with-correct-fb-video-dimensions/"><u>[New] 2024 Approved  Streamlining Your Online Impact with Correct FB Video Dimensions</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-why-magix-video-pro-x-is-a-game-changer/"><u>[New] 2024 Approved  Why Magix Video Pro X Is a Game-Changer</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-from-zero-to-hero-on-instagram-top-5-tips-with-examples-from-elites/"><u>[New] From Zero to Hero on Instagram  Top 5 Tips with Examples From Elites</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-convincing-audiences-to-join-a-positive-approach/"><u>[New] In 2024, Convincing Audiences to Join  A Positive Approach</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-quick-guide-how-to-revamp-facebook-profile-imagery-for-2024/"><u>[New] Quick Guide  How to Revamp Facebook Profile Imagery for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-capture-every-word-4-tips-for-fb-video-transcripts/"><u>[Updated] 2024 Approved  Capture Every Word  4 Tips for FB Video Transcripts</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-enhancing-selfie-impact-on-instagram-the-zoom-guide-for-2024/"><u>[Updated] Enhancing Selfie Impact on Instagram  The Zoom Guide for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-from-gameplay-to-video-full-guide-on-ps4-with-obs/"><u>[Updated] In 2024, From Gameplay to Video  Full Guide on PS4 with OBS</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-incorporating-borders-in-your-next-video-post/"><u>[Updated] Incorporating Borders in Your Next Video Post</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-infusing-vibrancy-into-stories-a-guide-to-choosing-the-right-emojis/"><u>[Updated] Infusing Vibrancy Into Stories  A Guide to Choosing the Right Emojis</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-instagram-archive-storing-your-iphone-images-and-videos/"><u>[Updated] Instagram Archive  Storing Your iPhone Images and Videos</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-instagram-peak-hours-explained-maximizing-engagement/"><u>[Updated] Instagram Peak Hours Explained  Maximizing Engagement</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-instagram-visuals-adding-value-with-3-strategic-video-descriptions/"><u>[Updated] Instagram Visuals  Adding Value with 3 Strategic Video Descriptions</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-mastering-authenticity-checks-on-instagram/"><u>[Updated] Mastering Authenticity Checks on Instagram</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-superior-fb-videograbber-bundle-high-quality-downloads-for-2024/"><u>[Updated] Superior FB Videograbber Bundle - High-Quality Downloads for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-unleash-the-full-potential-of-your-android-device-with-obs-studio-for-2024/"><u>[Updated] Unleash the Full Potential of Your Android Device with OBS Studio for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/onic-beauty-personalities-to-follow-on-youtube/"><u>10 Iconic Beauty Personalities to Follow on YouTube</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-auditory-purity-in-ffmpeg-a-format-friendly-perspective/"><u>2024 Approved  Auditory Purity in FFmpeg  A Format-Friendly Perspective</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-from-raw-footage-to-instagram-gold-top-10-editor-shortlists/"><u>2024 Approved  From Raw Footage to Instagram Gold - Top 10 Editor Shortlists</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-how-to-speed-up-video-on-instagram/"><u>2024 Approved  How to Speed Up Video on Instagram</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-instagram-flips-mastering-the-video-360-turn/"><u>2024 Approved  Instagram Flips  Mastering the Video 360-Turn</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-instagram-storytelling-mastery-top-video-marketing-tactics-explored/"><u>2024 Approved  Instagram Storytelling Mastery  Top Video Marketing Tactics Explored</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-prime-tools-for-pro-video-creation-on-android-windows/"><u>2024 Approved  Prime Tools for Pro Video Creation on Android, Windows</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-pro-bokeh-tips-for-captivating-instagram-snaps/"><u>2024 Approved  Pro Bokeh Tips for Captivating Instagram Snaps</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-quick-fit-enhance-your-photo-posts-with-automated-mac-video-scaling/"><u>2024 Approved  Quick Fit  Enhance Your Photo Posts with Automated Mac Video Scaling</u></a></li>
-<li><a href="https://fox-that.techidaily.com/bluetooth-101-a-newbies-handbook-for-optimizing-iphones/"><u>Bluetooth 101: A Newbie’s Handbook for Optimizing iPhones</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/elevate-video-storytelling-adding-music-to-instareels-for-2024/"><u>Elevate Video Storytelling  Adding Music to InstaReels for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/elevating-your-social-media-presence-with-igtv-videos-for-2024/"><u>Elevating Your Social Media Presence with IGTV Videos for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/enhance-your-reel-with-rhythms-instagrams-music-guide-for-2024/"><u>Enhance Your Reel with Rhythms  Instagram's Music Guide for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/ensure-your-video-fits-the-instagram-aesthetic-perfectly-for-2024/"><u>Ensure Your Video Fits the Instagram Aesthetic Perfectly for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/harmonize-your-content-a-guide-to-musical-instagrams-for-2024/"><u>Harmonize Your Content  A Guide to Musical Instagrams for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/how-to-amplify-and-modify-your-instagram-voice-for-2024/"><u>How to Amplify and Modify Your Instagram Voice for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/how-to-cut-video-for-instagram-on-mac-for-2024/"><u>How To Cut Video For Instagram On Mac for 2024</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-11-best-pokemon-go-spoofers-for-gps-spoofing-on-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>In 2024, 11 Best Pokemon Go Spoofers for GPS Spoofing on Apple iPhone SE (2022) | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-easy-steps-to-deactivate-igtv/"><u>In 2024, Easy Steps to Deactivate IGTV</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-expert-advice-on-converting-high-quality-ipv-files-to-mp4/"><u>In 2024, Expert Advice on Converting High-Quality IPV Files to MP4</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-from-youtube-to-instagram-sharing-video-content-with-ease/"><u>In 2024, From YouTube to Instagram  Sharing Video Content with Ease</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-insta-film-conversion-blueprints-to-mp3-formats/"><u>In 2024, Insta Film Conversion Blueprints to MP3 Formats</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-instagram-filters-a-comprehensive-guide/"><u>In 2024, Instagram Filters  A Comprehensive Guide</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-instagrams-best-practices-for-influential-engagement-top-5-tips-with-examples/"><u>In 2024, Instagram's Best Practices for Influential Engagement  Top 5 Tips with Examples</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-instagrams-trust-tales-decoding-the-power-of-selfies/"><u>In 2024, Instagram's Trust Tales  Decoding the Power of Selfies</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-mastering-visual-storytelling-on-instagram/"><u>In 2024, Mastering Visual Storytelling on Instagram</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-mastering-yourselfie-instagrams-verification-essentials/"><u>In 2024, Mastering Yourselfie  Instagram's Verification Essentials</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/innovative-social-media-tag-trackers-facebook-tweet-and-instagram-for-2024/"><u>Innovative Social Media Tag Trackers  Facebook, Tweet & Instagram for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/instagram-etiquette-ceasing-connections-for-2024/"><u>Instagram Etiquette  Ceasing Connections for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/inverting-your-instagram-footage-a-detailed-guide-for-2024/"><u>Inverting Your Instagram Footage  A Detailed Guide for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/melody-and-memes-adding-audio-to-instagrams-visual-medley-for-2024/"><u>Melody & Memes  Adding Audio to Instagram's Visual Medley for 2024</u></a></li>
-<li><a href="https://techidaily.com/navigate-and-network-simplified-the-ultimate-guide-to-optimizing-menu-functionality-for-top-level-social-media-engagement-on-facebook-linkedin-and-youtube.m1/"><u>Navigate and Network Simplified: The Ultimate Guide to Optimizing Menu Functionality for Top-Level Social Media Engagement on Facebook, LinkedIn, and YouTube</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-glitch-your-way-to-creativity-top-free-online-tools-for-2024/"><u>New Glitch Your Way to Creativity Top Free Online Tools for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/-play-the-most-popular-female-youtube-personalities-for-2024/"><u>Power Play  The Most Popular Female YouTube Personalities for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/pro-level-editing-10-must-have-applications-for-insta-videos-for-2024/"><u>Pro-Level Editing  10 Must-Have Applications for Insta Videos for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/quick-tips-for-editing-igtv-content-to-stand-out-for-2024/"><u>Quick Tips for Editing IGTV Content to Stand Out for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/secrets-unveiled-amplifying-profile-visibility/"><u>Secrets Unveiled  Amplifying Profile Visibility</u></a></li>
-<li><a href="https://win-blog.techidaily.com/the-deathloop-glitch-on-desktops-is-now-fixed-what-you-need-to-know/"><u>The Deathloop Glitch on Desktops Is Now Fixed – What You Need to Know!</u></a></li>
-<li><a href="https://techidaily.com/vivo-data-recovery-recover-lost-data-from-vivo-v29-by-fonelab-android-recover-data/"><u>Vivo Data Recovery – recover lost data from Vivo V29</u></a></li>
-</ul></div>
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -184,3 +89,26 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-google-meet-on-youtube-streaming-made-easy-step-by-step/"><u>[New] 2024 Approved Google Meet on YouTube Streaming Made Easy, Step by Step</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-embracing-diversity-easeus-tech-assessment/"><u>[Updated] In 2024, Embracing Diversity, EaseUS Tech Assessment</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-in-depth-analysis-of-lgs-latest-360-cameras-for-the-year-2023/"><u>[Updated] In-Depth Analysis of LG's Latest 360 Cameras for the Year 2023</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-the-ultimate-guide-to-audio-integration-on-reels/"><u>[Updated] The Ultimate Guide to Audio Integration on Reels</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/1-guia-gratuita-metodos-efectivos-para-reparar-un-archivo-de-video-mp4-danado-en-computadoras-windows-y-mac/"><u>1. Guía Gratuita: Métodos Efectivos Para Reparar Un Archivo De Video MP4 Dañado en Computadoras Windows Y Mac</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-top-specialists-exceptional-instragram-highlight-artisans/"><u>2024 Approved Top Specialists Exceptional Instragram Highlight Artisans</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/enterprises-dilemma-the-5-significant-reasons-against-chatgpt/"><u>Enterprises' Dilemma: The 5 Significant Reasons Against ChatGPT</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-honor-play-40c-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Honor Play 40C | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/navigating-the-account-termination-steps-on-chatgpt/"><u>Navigating the Account Termination Steps on ChatGPT</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/prevent-ai-data-collection-onsite/"><u>Prevent AI Data Collection Onsite</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/timing-and-frequency-for-2024/"><u>Timing and Frequency for 2024</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
