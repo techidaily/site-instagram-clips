@@ -1,7 +1,7 @@
 ---
 title: "Unlock the Full Potential of Instagram Stories"
-date: 2024-09-10T00:07:52.517Z
-updated: 2024-09-16T01:32:34.403Z
+date: 2024-09-15T22:49:02.856Z
+updated: 2024-09-22T07:00:51.384Z
 tags:
   - ai video
   - ai instagram
@@ -118,20 +118,33 @@ You can add 'Polls', 'Location', and 'Hashtags' to your Insta Stories by tapping
 
 To turn your own face into a sticker, you can tap the camera icon under the 'Stickers' section and take a selfie. Then tap on the selfie to pin it as a sticker on your picture or video, and then share as your Instagram Story.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Use your pen
 
 ![](https://images.wondershare.com/filmora/article-images/instagram-pen.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Now that you have used funny stickers to make your picture (for Insta Story) attractive, how about adding a cute personal note as well? Well, you can do that by tapping on the pen icon right next to 'Stickers'. Select the desired pen type (highlighter, airbrush, eraser, etc.) from the top and then color from the bottom of the screen. You can adjust the pen size using the slider found at the left side. After writing or doodling on the image, tap on the tick mark at the top right corner and you are good to go.
 
 Whoa! You are becoming a sport at how to use Instagram Stories.
+
+<!-- affiliate ads begin -->
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Add text
 
@@ -140,10 +153,10 @@ Whoa! You are becoming a sport at how to use Instagram Stories.
 You can also add text to make your Instagram Stories more attractive. Tap on the 'Aa' icon on the extreme right corner of your screen (in Instagram camera) and start typing. You can change the font style by tapping the style available on top of the screen, as well as select the color of the 'Text'. You can also tag people in 'Text' by typing '@' and then the handle name of the person, then click on their image.
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Add color overlays
@@ -170,19 +183,6 @@ With this complete guide for Instagram Stories, we are hopeful that you are goin
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -198,18 +198,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-the-ultimate-list-best-screencasting-apps-free/"><u>[New] 2024 Approved The Ultimate List Best Screencasting Apps (Free)</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-saving-teams-discussions-tech-for-pcmobile-users/"><u>[Updated] 2024 Approved Saving Teams' Discussions Tech for PC/Mobile Users</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-from-pixels-to-perfection-selecting-the-premier-screen-recording-software/"><u>[Updated] From Pixels to Perfection Selecting the Premier Screen Recording Software</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-why-highlighted-content-flourishes-on-instagram-stories-for-2024/"><u>[Updated] Why Highlighted Content Flourishes on Instagram Stories for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-your-guide-to-genuine-selfies-on-instagrams-canvas-for-2024/"><u>[Updated] Your Guide to Genuine Selfies on Instagram's Canvas for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-the-definitive-guide-to-crafting-memorable-podcast-names-with-inspirations/"><u>2024 Approved The Definitive Guide to Crafting Memorable Podcast Names, with Inspirations</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/boost-your-posts-with-these-8-instagram-scheduling-apps/"><u>Boost Your Posts with These 8 Instagram Scheduling Apps</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/elevate-your-instagram-feed-vertical-video-edits-in-fcpx/"><u>Elevate Your Instagram Feed Vertical Video Edits in FCPX</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/frame-your-cinematic-tales-three-paths-for-instagram-borders/"><u>Frame Your Cinematic Tales Three Paths for Instagram Borders</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/hack-the-art-of-instagram-reels-creation/"><u>Hack the Art of Instagram Reels Creation</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-highest-rated-mobile-video-enhancers-for-gopro-footage/"><u>In 2024, Highest-Rated Mobile Video Enhancers for GoPro Footage</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-photo-viewer-revival-techniques-for-enhanced-windows-11-experience/"><u>In 2024, Photo Viewer Revival Techniques for Enhanced Windows 11 Experience</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-ways-to-stop-parent-tracking-your-oneplus-12-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to stop parent tracking your OnePlus 12 | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-pivot-to-popularity-mastering-video-flip-on-social/"><u>[New] 2024 Approved Pivot to Popularity Mastering Video Flip on Social</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-revealing-the-top-10-hidden-story-supporters/"><u>[New] 2024 Approved Revealing the Top 10 Hidden Story Supporters</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-revolutionize-your-storytelling-6-superior-instagram-reel-apps/"><u>[New] 2024 Approved Revolutionize Your Storytelling 6 Superior Instagram Reel Apps</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-quick-and-easy-conducting-instagram-stories-polls-today/"><u>[New] In 2024, Quick & Easy Conducting Instagram Stories Polls Today</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-quick-guide-to-influential-instagram-hashtags/"><u>[New] In 2024, Quick Guide to Influential #Instagram Hashtags</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-key-landscapes-perfectly-capturing-live-streams-for-2024/"><u>[New] Key Landscapes Perfectly Capturing Live Streams for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-re-imagine-your-igtv-content-the-complete-guide-to-edits-for-2024/"><u>[New] Re-Imagine Your IGTV Content The Complete Guide to Edits for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-how-to-create-a-puzzle-feed-on-instagram-to-catch-attention/"><u>[Updated] In 2024, How to Create a Puzzle Feed on Instagram to Catch Attention</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-predicting-the-new-wave-of-social-media-infographic-style/"><u>[Updated] Predicting the New Wave of Social Media - Infographic Style</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-android-time-lapse-techniques-elevate-your-videos/"><u>2024 Approved Android Time-Lapse Techniques Elevate Your Videos</u></a></li>
+<li><a href="https://driver-download.techidaily.com/canon-eos-d530-freshly-updated-camera-drivers-and-download-links/"><u>Canon EOS D530 - Freshly Updated Camera Drivers & Download Links</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/exclusive-list-of-top-5-iphone-podcast-platforms-for-2024/"><u>Exclusive List of Top 5 iPhone Podcast Platforms for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-the-latest-canon-mg3600-driver-software-here/"><u>Get the Latest Canon MG3600 Driver Software Here!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/linksys-velop-evaluated-a-comprehensive-review-of-its-performance-in-mesh-connectivity/"><u>Linksys Velop Evaluated: A Comprehensive Review of Its Performance in Mesh Connectivity</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/maintaining-access-to-previously-saved-files-on-windows-10-restart/"><u>Maintaining Access to Previously Saved Files on Windows 10 Restart</u></a></li>
+<li><a href="https://win11.techidaily.com/restoring-active-windows-11-context-menus/"><u>Restoring Active Windows 11 Context Menus</u></a></li>
 </ul></div>
 

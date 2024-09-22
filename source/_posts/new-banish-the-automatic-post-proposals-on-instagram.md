@@ -1,7 +1,7 @@
 ---
 title: "[New] Banish the Automatic Post Proposals on Instagram"
-date: 2024-09-10T22:54:54.377Z
-updated: 2024-09-16T02:25:19.087Z
+date: 2024-09-16T09:15:50.910Z
+updated: 2024-09-21T17:31:20.505Z
 tags:
   - ai video
   - ai instagram
@@ -82,10 +82,10 @@ Now, you can apply the same steps for the rest of the posts as well. But do keep
 If you don't want to see suggested users on your Instagram feed, there is a way to remove unknown users actually. You can do it by using your web browser or Instagram mobile app. Whichever is comfortable to use. However, please note that these steps have to be followed for each suggested user. Now, please use that and then follow these steps.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### For Instagram app users
@@ -98,14 +98,14 @@ If you don't want to see suggested users on your Instagram feed, there is a way 
 
 ![click on x symbol to delete suggested users](https://images.wondershare.com/filmora/article-images/delete-instagram-suggestion-post.jpg)
 
-**Step 4:** To delete multiple suggested users, just click on the see all option, and the list of suggested users will appear; now click on the X for each user you want to delete. However, you need to delete everyone one by one individually.
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115944/19272" target="_top" id="2115944">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115944" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+**Step 4:** To delete multiple suggested users, just click on the see all option, and the list of suggested users will appear; now click on the X for each user you want to delete. However, you need to delete everyone one by one individually.
 
 ### For web browsers
 
@@ -122,6 +122,13 @@ Just like Instagram show you suggested users and posts, your account gets recomm
 **Step 3:** Scroll down towards the bottom, and you will find the similar account suggestions section. In this section, you will see a checkbox. You need to uncheck that if you don't want your name to appear as a suggested user.
 
 ![ uncheck the similar account suggestions box](https://images.wondershare.com/filmora/article-images/uncheck-similar-account-suggestions.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 5: How Does Instagram Suggestions Work?
 
@@ -141,13 +148,6 @@ So, now you know **how to remove suggested posts on Instagram feed** and how to 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -163,13 +163,15 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/updated-dissecting-instagrams-maximum-video-duration-rule/"><u>[Updated] Dissecting Instagram's Maximum Video Duration Rule</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-smirk-studio-memomaker/"><u>2024 Approved Smirk Studio MemoMaker</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-ultimate-selection-childrens-drone-choices/"><u>2024 Approved Ultimate Selection Children's Drone Choices</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/decrypt-viewer-counts-unveiling-instagram-audience-numbers-for-2024/"><u>Decrypt Viewer Counts Unveiling Instagram Audience Numbers for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-google-pixel-8-drfone-by-drfone-virtual-android/"><u>Does Life360 Notify When You Log Out On Google Pixel 8? | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/from-production-to-publication-streamlining-video-submission-for-2024/"><u>From Production to Publication Streamlining Video Submission for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-dizzy-with-design-mastering-upside-down-imagery/"><u>In 2024, Dizzy with Design Mastering Upside Down Imagery</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-unlock-apple-id-activation-lock-on-iphone-6-plus-by-drfone-ios/"><u>In 2024, How to Unlock Apple ID Activation Lock On iPhone 6 Plus?</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-prime-tactics-ensuring-quality-in-live-sport-broadcasts/"><u>[New] 2024 Approved Prime Tactics Ensuring Quality in Live Sport Broadcasts</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-inside-instagrams-maximum-video-restriction-policy-for-2024/"><u>[New] Inside Instagram's Maximum Video Restriction Policy for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-insta-flip-fundamentals-rotating-videos-for-maximum-engagement-and-reach-for-2024/"><u>[New] Insta-Flip Fundamentals Rotating Videos for Maximum Engagement and Reach for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-insta-stats-spotlight-pinpointing-viewers-of-your-photos/"><u>[Updated] 2024 Approved Insta Stats Spotlight Pinpointing Viewers of Your Photos</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-instagram-story-upgrade-how-to-add-music-effectively/"><u>[Updated] 2024 Approved Instagram Story Upgrade How to Add Music Effectively</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-essential-strategies-preserving-whatsapp-call-recordings/"><u>2024 Approved Essential Strategies Preserving WhatsApp Call Recordings</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/excel-evolution-unlocked-by-integrating-ai-ingenuity-of-chatgpt/"><u>Excel Evolution Unlocked by Integrating AI Ingenuity of ChatGPT</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-a-previously-synced-google-account-from-your-samsung-galaxy-a25-5g-by-drfone-android/"><u>In 2024, How to Remove a Previously Synced Google Account from Your Samsung Galaxy A25 5G</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/quick-and-easy-guide-to-updating-the-surface-dock-software-on-your-device/"><u>Quick and Easy Guide to Updating the Surface Dock Software on Your Device</u></a></li>
+<li><a href="https://techtrends.techidaily.com/steps-to-set-up-your-psn-profile-on-playstation-network/"><u>Steps to Set Up Your PSN Profile on PlayStation Network</u></a></li>
 </ul></div>
 

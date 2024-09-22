@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Give a Makeover to Existing Images and Videos with IG Filters"
-date: 2024-08-26T13:10:37.265Z
-updated: 2024-08-27T13:10:37.265Z
+date: 2024-09-18T23:51:14.908Z
+updated: 2024-09-22T08:12:59.468Z
 tags:
   - ai video
   - ai instagram
@@ -97,9 +97,6 @@ After selecting the filter of your choice and **applying i**t, **click done on t
 
 ![filmora12](https://images.wondershare.com/filmora/12-filmora/img/filmora12-01.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 2: How to Add Instagram Filters to Existing Videos?
 
 Do you know how to add Instagram filter to existing photo/video? Instagram is now promoting reels through which people can express their creative side. You will see many trending reels on Instagram, and most of them are quite impressive. If you also want to trend on Instagram to gain your followers, your videos should look appealing. You can make your videos get more engagement by adding suitable filters to them. Here is how you can add filters to existing videos:
@@ -151,8 +148,12 @@ Open the story option and **swipe to enable the Reel option**. Once you have the
 ![Instgram Reels Gallery ](https://images.wondershare.com/filmora/article-images/instagram-reels-gallery.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 **Step 2: Click on shine emoji to add filters**
 
 On top, you will see a **shine emoji** option through which you can **browse through filters** and select the one you like; you can **click to apply**.
@@ -160,17 +161,18 @@ On top, you will see a **shine emoji** option through which you can **browse thr
 ![Instgram Reels  filters option ](https://images.wondershare.com/filmora/article-images/instagram-reels-filters-effects-option.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 **Step 3: post**
 
 After you are done adding effects, you can **click on done** to post, and you can also **download the image**.
 
 ![download Instgram Reels   video with filters](https://images.wondershare.com/filmora/article-images/download-instagram-reels-filters-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **FAQs** About Instagram Filters
 
 1. **Can you add Instagram story filters to existing photos?**
@@ -182,66 +184,23 @@ Yes, it is easy to add an Instagram filter to existing photos from your gallery.
 Just swipe left to the stories window and swipe up to select an image from the camera roll. Then click on the smiling emoji on the tab and apply the filter of your choice. You can then share it on Insta or save it to your camera roll.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 Often people do not know how to add Instagram filters to existing photos and videos. It is easy to learn, especially through the steps we have mentioned above. Filters are the ultimate hack to add cohesiveness and attraction to your feed or stories.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
-
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-secrets-to-dynamic-and-effective-igtv-covers/"><u>[New] 2024 Approved  Secrets to Dynamic & Effective IGTV Covers</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-step-by-step-tutorial-for-transforming-profile-photographs-on-social-networks/"><u>[New] 2024 Approved  Step-by-Step Tutorial for Transforming Profile Photographs on Social Networks</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-understanding-ip-rules-for-instasongs/"><u>[New] 2024 Approved  Understanding IP Rules for InstaSongs</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-expertise-in-action-gopro-for-dynamic-time-lapses/"><u>[New] Expertise in Action  GoPro for Dynamic Time-Lapses</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-shorten-videos-for-instagram-a-mac-guide/"><u>[New] In 2024, Shorten Videos for Instagram  A Mac Guide</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-shut-down-instagram-suggestions/"><u>[New] In 2024, Shut Down Instagram Suggestions</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-the-essential-guide-for-adding-depth-and-style-in-instagram-stories/"><u>[New] In 2024, The Essential Guide for Adding Depth & Style in Instagram Stories</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-transformative-techniques-for-high-quality-mp4s-from-instagram/"><u>[New] In 2024, Transformative Techniques for High-Quality MP4s From Instagram</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-transforming-photos-and-videos-from-instagram-to-iphones/"><u>[New] In 2024, Transforming Photos and Videos  From Instagram to iPhones</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-understanding-and-curating-instagram-story-segments-with-ease/"><u>[New] In 2024, Understanding and Curating Instagram Story Segments with Ease</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-spring-to-the-future-innovations-in-screen-capture-tech/"><u>[New] Spring to the Future  Innovations in Screen Capture Tech</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-the-follow-forward-guide-accumulating-1000-likesmonth-on-ig-for-2024/"><u>[New] The Follow-Forward Guide  Accumulating 1,000 Likes/Month on IG for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-understanding-instagrams-tunes-and-their-legal-boundaries-for-2024/"><u>[New] Understanding Instagram’s Tunes and Their Legal Boundaries for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-unleash-your-social-media-potential-with-insta-post-magic-for-2024/"><u>[New] Unleash Your Social Media Potential with Insta Post Magic for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-crafting-your-sound-story-utilizing-auditions-fade-in/"><u>[Updated] 2024 Approved  Crafting Your Sound Story  Utilizing Audition's Fade In</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-starting-point-connecting-seamlessly-via-instagram/"><u>[Updated] 2024 Approved  Starting Point  Connecting Seamlessly via Instagram</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-tips-for-efficiently-editing-videos-for-social-media-engagement/"><u>[Updated] 2024 Approved  Tips for Efficiently Editing Videos for Social Media Engagement</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-unfollow-trail-on-the-social-giant-instagram/"><u>[Updated] 2024 Approved  Unfollow Trail on the Social Giant Instagram</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-harnessing-testimonials-for-genuine-brand-connection/"><u>[Updated] In 2024, Harnessing Testimonials for Genuine Brand Connection</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-storing-your-stories-and-snaps-safely-on-ios-devices/"><u>[Updated] In 2024, Storing Your Stories and Snaps Safely on iOS Devices</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-tailoring-your-content-strategy-for-changed-algorithms/"><u>[Updated] In 2024, Tailoring Your Content Strategy for Changed Algorithms</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-the-complete-instagram-reversal-methodology/"><u>[Updated] In 2024, The Complete Instagram Reversal Methodology</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-rapid-ascension-harness-likes-and-videos-for-insta-success-for-2024/"><u>[Updated] Rapid Ascension  Harness Likes & Videos for Insta Success for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-speedy-surfing-tips-for-youtubes-playback-speed-control/"><u>[Updated] Speedy Surfing Tips for YouTube's Playback Speed Control</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-the-unseen-dos-and-donts-of-instagram-reels-for-2024/"><u>[Updated] The Unseen Dos & Don'ts of Instagram Reels for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-top-ten-image-amplifiers-for-social-media-for-2024/"><u>[Updated] Top Ten Image Amplifiers for Social Media for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-unleash-creativity-with-these-top-10-instagram-reel-apps-for-2024/"><u>[Updated] Unleash Creativity with These Top 10 Instagram Reel Apps for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-your-blueprint-to-lost-youtube-video-accessibility-online/"><u>[Updated] Your Blueprint to Lost YouTube Video Accessibility Online</u></a></li>
-<li><a href="https://win-answers.techidaily.com/conquer-the-battlefield-expert-advice-on-resolving-dota-2-latency-problems/"><u>Conquer the Battlefield: Expert Advice on Resolving Dota 2 Latency Problems</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/elevate-your-viewing-unlocking-the-potential-of-netflixs-pip-for-2024/"><u>Elevate Your Viewing  Unlocking the Potential of Netflix’s PIP for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/essential-fix-it-methods-using-system-file-checker-and-deployment-image-servicing-on-win11/"><u>Essential Fix-It Methods: Using System File Checker and Deployment Image Servicing on Win11</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/1723125142417-get-the-elegoo-neptune-4-pro-for-a-steal-at-only-284/"><u>Get the Elegoo Neptune 4 Pro for a Steal at Only $284</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-samsung-galaxy-xcover-6-pro-tactical-edition-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Samsung Galaxy XCover 6 Pro Tactical Edition? | Dr.fone</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-crafting-compelling-lower-thirds-essential-tips-for-fcpx/"><u>In 2024, Crafting Compelling Lower Thirds Essential Tips for FCPX</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-effective-guide-to-cast-apple-iphone-se-2022-to-macbook-without-hindrance-drfone-by-drfone-ios/"><u>In 2024, Effective Guide to Cast Apple iPhone SE (2022) to MacBook without Hindrance | Dr.fone</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-essential-shortcuts-for-efficient-mac-screen-recording/"><u>In 2024, Essential Shortcuts for Efficient Mac Screen Recording</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/leveraging-fb-livestream-for-post-produced-content-dissemination-for-2024/"><u>Leveraging FB Livestream for Post-Produced Content Dissemination for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/mastermind-knowledge-capture-via-mematics-app-for-2024/"><u>Mastermind Knowledge Capture via Mematic's App for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/progressive-audio-softening-methods-for-2024/"><u>Progressive Audio Softening Methods for 2024</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/the-thrifty-audio-odyssey-unveiling-the-oneplus-buds/"><u>The Thrifty Audio Odyssey – Unveiling the OnePlus Buds</u></a></li>
-</ul></div>
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -249,3 +208,23 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-crafting-musical-instagram-narratives-without/"><u>[New] Crafting Musical Instagram Narratives (Without)</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-elevate-engagement-mastering-the-art-of-looped-videos-for-ig/"><u>[New] Elevate Engagement Mastering the Art of Looped Videos for IG</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-exclusive-tips-for-dominating-the-instagram-story-space/"><u>[Updated] Exclusive Tips for Dominating the Instagram Story Space</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-snapstream-app-rating-analysis/"><u>[Updated] In 2024, SnapStream App Rating Analysis</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-engagement-enhancers-trending-stories-filters/"><u>2024 Approved Engagement Enhancers Trending Stories Filters</u></a></li>
+<li><a href="https://change-location.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-vivo-s17-pro-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Vivo S17 Pro | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/ai-humor-how-chatgpts-joke-crafting-skills-compare-with-human-comedians/"><u>AI Humor: How ChatGPT's Joke-Crafting Skills Compare with Human Comedians</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/crackdown-on-lamptron-the-scandal-of-shipping-counterfeit-keyed-software-with-lcd-gadgets/"><u>Crackdown on Lamptron: The Scandal of Shipping Counterfeit Keyed Software With LCD Gadgets</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/dominate-digital-space-secure-a-chain-of-1k-fansmonth-for-2024/"><u>Dominate Digital Space Secure a Chain of 1K Fans/Month for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/giving-a-fresh-twist-to-pre-filtered-memories-using-instagram-tools-for-2024/"><u>Giving a Fresh Twist to Pre-Filtered Memories Using Instagram Tools for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-elevate-video-storytelling-adding-music-to-instareels/"><u>In 2024, Elevate Video Storytelling Adding Music to InstaReels</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-xiaomi-13t-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Xiaomi 13T | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-lock-apps-on-realme-gt-neo-5-se-to-protect-your-individual-information-by-drfone-android/"><u>In 2024, How to Lock Apps on Realme GT Neo 5 SE to Protect Your Individual Information</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/overcoming-unsupported-device-alert-during-installation-of-new-os/"><u>Overcoming Unsupported Device Alert During Installation of New OS</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-how-to-make-an-emoji-of-yourself-on-android-and-iphone-emoji-yourself/"><u>Updated 2024 Approved How to Make an Emoji of Yourself on Android and iPhone Emoji Yourself</u></a></li>
+</ul></div>
+

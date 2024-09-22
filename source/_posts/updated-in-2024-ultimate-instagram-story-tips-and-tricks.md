@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Ultimate Instagram Story Tips & Tricks"
-date: 2024-08-26T13:09:26.672Z
-updated: 2024-08-27T13:09:26.672Z
+date: 2024-09-16T09:51:48.069Z
+updated: 2024-09-22T05:43:42.042Z
 tags:
   - ai video
   - ai instagram
@@ -102,16 +102,10 @@ Now that you have an idea about all the filters and lenses of Instagram, we thou
 
 Image resource: Ryan Bilello
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Use Stickers
 
 ![](https://images.wondershare.com/filmora/article-images/instagram-stickers.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Using 'Stickers' with your video or images you can spice up your Insta Stories. To use these stickers, first open Instagram, and then capture a video/picture or select one from your gallery. Now, tap on the smiley icon at the top right corner of the picture or video. You will see lot of options under it. Select any of them and then pin it to your picture/video to share. You can resize the 'Stickers' by pinching (to zoom in and out) them.
 
 Here are the most popular 'Stickers' and their usages–
@@ -124,34 +118,46 @@ You can add 'Polls', 'Location', and 'Hashtags' to your Insta Stories by tapping
 
 To turn your own face into a sticker, you can tap the camera icon under the 'Stickers' section and take a selfie. Then tap on the selfie to pin it as a sticker on your picture or video, and then share as your Instagram Story.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Use your pen
 
 ![](https://images.wondershare.com/filmora/article-images/instagram-pen.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Now that you have used funny stickers to make your picture (for Insta Story) attractive, how about adding a cute personal note as well? Well, you can do that by tapping on the pen icon right next to 'Stickers'. Select the desired pen type (highlighter, airbrush, eraser, etc.) from the top and then color from the bottom of the screen. You can adjust the pen size using the slider found at the left side. After writing or doodling on the image, tap on the tick mark at the top right corner and you are good to go.
 
 Whoa! You are becoming a sport at how to use Instagram Stories.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Add text
 
 ![](https://images.wondershare.com/filmora/article-images/add-text-to-instagram.jpg)
 
 You can also add text to make your Instagram Stories more attractive. Tap on the 'Aa' icon on the extreme right corner of your screen (in Instagram camera) and start typing. You can change the font style by tapping the style available on top of the screen, as well as select the color of the 'Text'. You can also tag people in 'Text' by typing '@' and then the handle name of the person, then click on their image.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Add color overlays
 
 ![](https://images.wondershare.com/filmora/article-images/instagram-pen.jpg)
 
 Adorn your creative hat and weave some magic into the Insta Stories now. For adding color overlays to your Insta Story image or video you need to use the 'Pen' tool here and choose a color. Now, click anywhere on the screen and hold for a moment until the entire screen is covered with that color. After that tap on the 'Eraser' tool and uncover specific portions of the picture or video to create interesting Instagram Stories.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Add link
 
@@ -171,80 +177,11 @@ With this complete guide for Instagram Stories, we are hopeful that you are goin
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
-
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-instagram-peak-hours-explained-maximizing-engagement/"><u>[New] 2024 Approved  Instagram Peak Hours Explained  Maximizing Engagement</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-mastering-monetization-an-instagram-income-journey/"><u>[New] 2024 Approved  Mastering Monetization  An Instagram Income Journey</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-mirrored-worldviews-on-insta-discover-100-reflective-captions/"><u>[New] 2024 Approved  Mirrored Worldviews on Insta - Discover 100 Reflective Captions</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-how-to-add-music-to-facebook-videos/"><u>[New] In 2024, How to Add Music to Facebook Videos?</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-making-a-mark-with-square-video-formats-using-imovie-and-instagram/"><u>[New] In 2024, Making a Mark with Square Video Formats Using iMovie and Instagram</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-mastering-social-media-the-finest-6-reel-enhancing-apps/"><u>[New] In 2024, Mastering Social Media  The Finest 6 Reel-Enhancing Apps</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-mastering-subtitles-on-the-social-media-stage-igtv/"><u>[New] In 2024, Mastering Subtitles on the Social Media Stage  IGTV</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-perfect-posts-every-time-mastering-instagram-video-uploads-on-desktop/"><u>[New] In 2024, Perfect Posts Every Time  Mastering Instagram Video Uploads on Desktop</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-photoperfect-optimizing-visuals-and-videos-in-instagram/"><u>[New] In 2024, PhotoPerfect  Optimizing Visuals and Videos in Instagram</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-income-on-instagram-comprehensive-step-by-step-guide-for-2024/"><u>[New] Income on Instagram  Comprehensive Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-instagrams-best-practices-video-sizes-and-formats/"><u>[New] Instagram's Best Practices  Video Sizes and Formats</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-instagrams-icons-navigating-through-its-leading-25-stars-for-2024/"><u>[New] Instagram's Icons  Navigating Through Its Leading 25 Stars for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-masterful-media-management-dynamic-video-scaling-on-mac-for-2024/"><u>[New] Masterful Media Management  Dynamic Video Scaling on Mac for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-mastering-content-and-connections-insta-follower-rise-for-2024/"><u>[New] Mastering Content & Connections  Insta-Follower Rise for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-maximizing-impact-10-key-strategies-for-instagram-video-promotion-for-2024/"><u>[New] Maximizing Impact  10 Key Strategies for Instagram Video Promotion for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-observing-patterns-in-instagram-unlikes-for-2024/"><u>[New] Observing Patterns in Instagram Unlikes for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-ultimate-directory-of-classical-tone-archives/"><u>[New] Ultimate Directory of Classical Tone Archives</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-analytics-tools-for-an-improved-tracking-of-your-instagram-metrics/"><u>[Updated] 2024 Approved  Analytics Tools For an Improved Tracking of Your Instagram Metrics</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-chill-championships-highlighting-cold-climates-sports/"><u>[Updated] 2024 Approved  Chill Championships  Highlighting Cold Climates Sports</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-easy-steps-for-screenshotting-instagrams-story-section/"><u>[Updated] 2024 Approved  Easy Steps for Screenshotting Instagram's Story Section</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-instagram-shines-mastering-the-art-of-content-highlights/"><u>[Updated] 2024 Approved  Instagram Shines  Mastering the Art of Content Highlights</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-instagram-story-viewers-uncharted-territory-explored/"><u>[Updated] 2024 Approved  Instagram Story Viewers  Uncharted Territory Explored</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-instagram-storytelling-with-epic-videos/"><u>[Updated] 2024 Approved  Instagram Storytelling with Epic Videos</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-interpreting-instagrams-per-video-timeframe-rule/"><u>[Updated] 2024 Approved  Interpreting Instagram's Per-Video Timeframe Rule</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-master-the-art-of-fast-instagram-videos/"><u>[Updated] 2024 Approved  Master the Art of Fast Instagram Videos</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-peeking-into-instagram-stories-what-viewers-dont-know/"><u>[Updated] 2024 Approved  Peeking Into Instagram Stories  What Viewers Don’t Know</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-precision-polling-on-instagram-crafting-survey-content/"><u>[Updated] 2024 Approved  Precision Polling on Instagram  Crafting Survey Content</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-transforming-social-media-nostalgia-how-to-edit-lookback/"><u>[Updated] 2024 Approved  Transforming Social Media Nostalgia  How to Edit Lookback</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-how-to-watermark-instagram-photos-for-2024/"><u>[Updated] How to Watermark Instagram Photos for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-ig-management-made-simple-the-best-tools-reviewed-for-2024/"><u>[Updated] IG Management Made Simple  The Best Tools Reviewed for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-igtv-switch-off-a-comprehensible-guide-for-2024/"><u>[Updated] IGTV Switch-Off  A Comprehensible Guide for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-instagram-edge-enhancement-3-essential-methods/"><u>[Updated] In 2024, Instagram Edge Enhancement - 3 Essential Methods</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-instagram-saves-free-and-without-end/"><u>[Updated] In 2024, Instagram Saves  Free and Without End</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-masterful-designers-top-insta-hlv-page-builders/"><u>[Updated] In 2024, Masterful Designers  Top Insta HLV Page Builders</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-mastering-instagrams-latest-features-reels-and-stories/"><u>[Updated] In 2024, Mastering Instagram’s Latest Features  Reels & Stories</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-mastering-the-art-of-loop-creating-impactful-content-for-instagram/"><u>[Updated] In 2024, Mastering the Art of Loop  Creating Impactful Content for Instagram</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-maximizing-visibility-in-a-newly-updated-social-platform/"><u>[Updated] In 2024, Maximizing Visibility in a Newly Updated Social Platform</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-perfecting-instagram-reels-acoustics-with-music-voiceovers/"><u>[Updated] In 2024, Perfecting Instagram Reels Acoustics with Music, Voiceovers</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-perfecting-music-in-instagram-videos-and-stories/"><u>[Updated] In 2024, Perfecting Music in Instagram Videos & Stories</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-proven-methods-for-sensational-instagram-puzzle-creation/"><u>[Updated] In 2024, Proven Methods for Sensational Instagram Puzzle Creation</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-quick-intro-to-instagram-video-chat/"><u>[Updated] In 2024, Quick Intro to Instagram Video Chat</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-instagrowth-hack-secrets-for-scaling-to-1000month-fans-for-2024/"><u>[Updated] InstaGrowth Hack  Secrets for Scaling to 1,000/Month Fans for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-leading-social-media-hash-tracking-software-for-fb-tweet-and-insta-for-2024/"><u>[Updated] Leading Social Media Hash Tracking Software for FB, Tweet & Insta for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-disrupted-beats-best-mobile-music-distortors/"><u>2024 Approved  Disrupted Beats  Best Mobile Music Distortors</u></a></li>
-<li><a href="https://location-fake.techidaily.com/3-ways-to-fake-gps-without-root-on-nokia-c32-drfone-by-drfone-virtual-android/"><u>3 Ways to Fake GPS Without Root On Nokia C32 | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/7-fixes-for-unfortunately-phone-has-stopped-on-infinix-smart-8-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Fixes for Unfortunately, Phone Has Stopped on Infinix Smart 8 Pro | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/all-about-apple-iphone-15-pro-max-unlock-chip-you-need-to-know-by-drfone-ios/"><u>All About Apple iPhone 15 Pro Max Unlock Chip You Need to Know</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/apple-ipad-air-4-vs-samsung-galaxy-tab-s7plus-two-premium-tablets-without-compromise/"><u>Apple iPad Air 4 Vs. Samsung Galaxy Tab S7+: Two Premium Tablets Without Compromise</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/avoiding-pitfalls-with-microsoft-teams-how-to-conquer-error-80080300/"><u>Avoiding Pitfalls with Microsoft Teams: How to Conquer Error 80080300</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-fix-apple-iphone-se-2020-passcode-not-working-drfone-by-drfone-ios/"><u>How to Fix Apple iPhone SE (2020) Passcode not Working? | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fix-samsung-galaxy-s23-tactical-edition-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Samsung Galaxy S23 Tactical Edition Find My Friends No Location Found? | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-call-logs-from-tecno-by-fonelab-android-recover-call-logs/"><u>How to retrieve erased call logs from Tecno ?</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-vivo-x-flip-by-drfone-android/"><u>In 2024, 10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Vivo X Flip</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-itel-s23-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Itel S23 | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-master-your-images-top-10-pixlr-hacks-revealed/"><u>In 2024, Master Your Images  Top 10 Pixlr Hacks Revealed</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-unlock-vivo-y36-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>In 2024, Unlock Vivo Y36 Phone Password Without Factory Reset Full Guide Here</u></a></li>
-<li><a href="https://extra-support.techidaily.com/old-masters-legacy-images-without-limits-for-2024/"><u>Old Masters' Legacy  Images Without Limits for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/optimal-online-sound-snatching/"><u>Optimal Online Sound Snatching</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/phoenixs-fixing-module-corrupt-pdfs/"><u>Phoenix's Fixing Module: Corrupt PDFs</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-motorola-edge-2023-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Motorola Edge 2023 to PC- Detailed Steps | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/quick-fixes-to-repair-microsoft-excel-2016-content-related-error-stellar-by-stellar-guide/"><u>Quick Fixes to Repair Microsoft Excel 2016 Content related error | Stellar</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/unlocking-success-optimizing-gaming-videos-via-smart-use-of-hashtags/"><u>Unlocking Success  Optimizing Gaming Videos via Smart Use of Hashtags</u></a></li>
-</ul></div>
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -252,3 +189,16 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-ultimate-guide-to-gopro-max-or-hero-11/"><u>[New] 2024 Approved Ultimate Guide to GoPro Max or Hero 11?</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-premier-mp4-converter-for-smooth-fb-integration-for-2024/"><u>[Updated] Premier MP4 Converter for Smooth FB Integration for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-leading-tag-tracker-software-on-major-platforms-like-fb-tweet-and-insta/"><u>2024 Approved Leading Tag Tracker Software on Major Platforms Like FB, Tweet & Insta</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/effortlessly-overcoming-asus-pce-ac56-compatibility-hurdles-in-windows-1187-environments/"><u>Effortlessly Overcoming ASUS PCE-AC56 Compatibility Hurdles in Windows 11/8/7 Environments</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-lava-yuva-3-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Lava Yuva 3 | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-keep-your-creativity-alive-with-insta-content-sharing/"><u>In 2024, Keep Your Creativity Alive with Insta Content Sharing</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/launching-professional-instagram-starting-an-enterprise-account-for-2024/"><u>Launching Professional Instagram Starting an Enterprise Account for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/resolving-pc-issues-no-more-spellblock-stop-spellbreak-crashes-now/"><u>Resolving PC Issues: No More Spellblock - Stop Spellbreak Crashes Now</u></a></li>
+</ul></div>
+
