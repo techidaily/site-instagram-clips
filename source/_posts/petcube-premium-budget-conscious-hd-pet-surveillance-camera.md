@@ -170,14 +170,5 @@ Harran is a whole different city at night.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://video-capture.techidaily.com/updated-in-2024-mario-vs-donkey-kong-the-ultimate-switch-fighting-series/"><u>[Updated] In 2024, Mario Vs. Donkey Kong The Ultimate Switch Fighting Series</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/discovering-instagram-de-follows-quickly/"><u>Discovering Instagram De-Follows Quickly</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/eluding-digital-footprints-while-enjoying-instagram-stories-online/"><u>Eluding Digital Footprints While Enjoying Instagram Stories Online</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/enhance-your-video-impact-with-slow-motion-on-ig/"><u>Enhance Your Video Impact with Slow Motion on IG</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/essential-igtv-picks-for-a-creative-edge/"><u>Essential IGTV Picks for a Creative Edge</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-any-itel-a60s-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any Itel A60s Phone Password Using Emergency Call</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-how-to-use-the-background-eraser-tool-in-photoshop-detailed-guide/"><u>In 2024, How To Use The Background Eraser Tool In Photoshop Detailed Guide</u></a></li>
-</ul></div>
+
 
