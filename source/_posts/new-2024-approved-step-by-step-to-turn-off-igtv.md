@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Step-by-Step to Turn Off IGTV\""
-date: 2024-09-21T03:28:34.033Z
-updated: 2024-09-22T08:53:04.957Z
+date: 2024-09-27T19:01:09.516Z
+updated: 2024-09-29T23:12:58.827Z
 tags:
   - ai video
   - ai instagram
@@ -33,6 +33,13 @@ thumbnail: https://thmb.techidaily.com/359889cca1fac1d0cab50a3e170aa122469e4b901
 
  Select the **Push Notifications option**, and then scroll all the way down to the **IGTV Video Updates section** of the Push Notifications menu. Tap on the **Off** option, and you’re done, you’ll no longer receive notifications from IGTV. If at any point you change your mind and you decide that you want to receive notifications from IGTV you can return to the Push Notifications menu and select the **From People I Follow** or **From Everyone** option in the IGTV Video Update section of the Push Notifications menu.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Hide IGTV Videos?
 
  At the moment this feature is only available on iPhones, while users who access IGTV from Android devices only have the option to report a video they find offensive or don’t like for any other reason. Once you open IGTV on your iPhone, you will be able to see the videos the platform suggests you should watch in **the For You** section. When you come across an IGTV video you no longer want to see, simply **swipe down**, and then **tap on the three-dot icon** that is located next to the Like, Comment and Share buttons.
@@ -47,6 +54,13 @@ thumbnail: https://thmb.techidaily.com/359889cca1fac1d0cab50a3e170aa122469e4b901
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -60,12 +74,19 @@ Follow @Shanoon Cox
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-approaches.techidaily.com/new-proiphone-close-ups-techniques-for-captivating-images/"><u>[New] Proiphone Close-Ups Techniques for Captivating Images</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-accessing-zoom-directly-from-google-mail-interface/"><u>[Updated] In 2024, Accessing Zoom Directly From Google Mail Interface</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-transform-into-a-youtuber-best-tutorials-for-novices/"><u>[Updated] In 2024, Transform Into a YouTuber Best Tutorials for Novices</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/download-directly-from-instagram-a-methodology-for-iphone-users/"><u>Download Directly From Instagram A Methodology for iPhone Users</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/engaging-users-with-instagrams-interactive-survey-feature/"><u>Engaging Users with Instagram's Interactive Survey Feature</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/enhance-visibility-in-igtv-6-insider-tips-for-video-size-mastery/"><u>Enhance Visibility in IGTV 6 Insider Tips for Video Size Mastery</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/enhance-your-images-choosing-great-border-options-on-ig/"><u>Enhance Your Images Choosing Great Border Options on IG</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-corrupt-mp4-and-mov-files-of-y200e-5g-using-video-repair-utility-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair corrupt MP4 and MOV files of Y200e 5G using Video Repair Utility on Windows?</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-tips-and-tricks-for-setting-up-your-motorola-edge-40-phone-pattern-lock-by-drfone-android/"><u>In 2024, Tips and Tricks for Setting Up your Motorola Edge 40 Phone Pattern Lock</u></a></li>
+<li><a href="https://win11.techidaily.com/mp4wmawindows-1011/"><u>MP4とWMAの間で素早く変換:Windows 10/11ユーザー向け方法</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-2024-approved-online-learning-module-a-complete-overview/"><u>New 2024 Approved Online Learning Module A Complete Overview</u></a></li>
+<li><a href="https://techtrends.techidaily.com/unlock-smoother-commutes-the-top-7-traffic-management-mobile-apps/"><u>Unlock Smoother Commutes: The Top 7 Traffic Management Mobile Apps</u></a></li>
+</ul></div>
 

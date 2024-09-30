@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Ultimate Instagram Story Tips & Tricks"
-date: 2024-09-16T09:51:48.069Z
-updated: 2024-09-22T05:43:42.042Z
+date: 2024-09-22T16:36:41.392Z
+updated: 2024-09-29T22:50:49.638Z
 tags:
   - ai video
   - ai instagram
@@ -94,13 +94,34 @@ So, you have tried all the options with Instagram camera? Let's go through 'Hand
 
 After you have captured the video using any of the above lenses, you can share them as your Insta Story. We are sure that you have enjoyed reading about these cool camera lenses. It's time to go out and check how to use them for Instagram Stories. So, get ready with your smartphone and start capturing. Click! Click! Click!
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Tips and Tricks
 
 Now that you have an idea about all the filters and lenses of Instagram, we thought of introducing you to some cool add-ons for your captivating Instagram Stories.
 
 ![](https://images.wondershare.com/filmora/article-images/create-insta-stories-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Image resource: Ryan Bilello
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Use Stickers
 
@@ -118,16 +139,16 @@ You can add 'Polls', 'Location', and 'Hashtags' to your Insta Stories by tapping
 
 To turn your own face into a sticker, you can tap the camera icon under the 'Stickers' section and take a selfie. Then tap on the selfie to pin it as a sticker on your picture or video, and then share as your Instagram Story.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Use your pen
 
 ![](https://images.wondershare.com/filmora/article-images/instagram-pen.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Now that you have used funny stickers to make your picture (for Insta Story) attractive, how about adding a cute personal note as well? Well, you can do that by tapping on the pen icon right next to 'Stickers'. Select the desired pen type (highlighter, airbrush, eraser, etc.) from the top and then color from the bottom of the screen. You can adjust the pen size using the slider found at the left side. After writing or doodling on the image, tap on the tick mark at the top right corner and you are good to go.
 
@@ -140,10 +161,10 @@ Whoa! You are becoming a sport at how to use Instagram Stories.
 You can also add text to make your Instagram Stories more attractive. Tap on the 'Aa' icon on the extreme right corner of your screen (in Instagram camera) and start typing. You can change the font style by tapping the style available on top of the screen, as well as select the color of the 'Text'. You can also tag people in 'Text' by typing '@' and then the handle name of the person, then click on their image.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Add color overlays
@@ -151,13 +172,6 @@ You can also add text to make your Instagram Stories more attractive. Tap on the
 ![](https://images.wondershare.com/filmora/article-images/instagram-pen.jpg)
 
 Adorn your creative hat and weave some magic into the Insta Stories now. For adding color overlays to your Insta Story image or video you need to use the 'Pen' tool here and choose a color. Now, click anywhere on the screen and hold for a moment until the entire screen is covered with that color. After that tap on the 'Eraser' tool and uncover specific portions of the picture or video to create interesting Instagram Stories.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Add link
 
@@ -190,5 +204,26 @@ Follow @Shanoon Cox
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-best-photo-boosts-for-perfecting-your-feed/"><u>[New] Best Photo Boosts for Perfecting Your Feed</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-crafting-impressive-instagram-reels-quickly/"><u>[New] Crafting Impressive Instagram Reels Quickly</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-webinar-video-archive-creation-for-2024/"><u>[New] Webinar Video Archive Creation for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-language-liberation-discover-the-top-25-apps-for-flawless-video-conversion/"><u>[Updated] 2024 Approved Language Liberation Discover the Top 25 Apps for Flawless Video Conversion</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-a-tutorial-for-adding-vintage-touches-instagram-filters-on-existing-media/"><u>[Updated] A Tutorial for Adding Vintage Touches Instagram Filters on Existing Media</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-breaking-the-ice-with-instagrams-interactive-audience-queries/"><u>[Updated] Breaking the Ice with Instagram's Interactive Audience Queries</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-bidfarewelltomycam-the-quest-for-improved-options/"><u>[Updated] In 2024, BidFarewellToMyCam The Quest for Improved Options</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-audio-enhancement-for-professional-instagram-posts/"><u>2024 Approved Audio Enhancement for Professional Instagram Posts</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-boost-engagement-on-instagram-with-large-post-combinations/"><u>2024 Approved Boost Engagement on Instagram with Large Post Combinations</u></a></li>
+<li><a href="https://win11.techidaily.com/banishing-defender-tracings-in-windows-1011-environments/"><u>Banishing Defender Tracings in Windows 10/11 Environments</u></a></li>
+<li><a href="https://windows11.techidaily.com/build-your-windows-own-text-to-speech-converter-with-whisper-and-autohotkey/"><u>Build Your Window's Own Text-To-Speech Converter with Whisper and AutoHotkey</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/captioning-for-social-video-content-from-snapchat-to-igtv-for-2024/"><u>Captioning for Social Video Content From Snapchat to IGTV for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/craft-your-future-with-instagram-video-marketing-step-by-step-guide-for-2024/"><u>Craft Your Future with Instagram Video Marketing Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/fortnite-ls-0013-startup-issue-resolved-troubleshooting-steps/"><u>Fortnite LS-0013 Startup Issue Resolved: Troubleshooting Steps</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/iphone-not-playing-sounds-discover-solutions-for-reactivating-your-ringtone-feature/"><u>IPhone Not Playing Sounds? Discover Solutions for Reactivating Your Ringtone Feature</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/1723004742909-team-fortress-not-launching-heres-how-you-can-get-it-running-again/"><u>Team Fortress Not Launching? Here's How You Can Get It Running Again</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/top-10-2d-animation-tools-free-and-paid-options-for-2024/"><u>Top 10 2D Animation Tools Free and Paid Options for 2024</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-2024-approved-make-quick-work-of-long-videos-speed-up-playback-in-quicktime/"><u>Updated 2024 Approved Make Quick Work of Long Videos Speed Up Playback in QuickTime</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/who-likes-what-deciphering-instagram-stats-and-screenshots/"><u>Who Likes What? Deciphering Instagram Stats & Screenshots</u></a></li>
+</ul></div>
 

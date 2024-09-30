@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Capture the Moment in Squares  Mastering iMovie for Instagram Video\""
-date: 2024-09-16T05:02:09.694Z
-updated: 2024-09-22T09:02:34.105Z
+date: 2024-09-22T23:06:10.791Z
+updated: 2024-09-29T21:38:14.694Z
 tags:
   - ai video
   - ai instagram
@@ -91,6 +91,19 @@ To use the crop/zoom feature in iMovie on iPhone, follow these steps:
 
 **Step #10\.** To save your movie to your Camera Roll, tap the square with an arrow icon.
 
+<!-- affiliate ads begin -->
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2\. How to Make a Square Video in iMovie on Mac?
 
 iMovie does not allow you to make square videos! You won't be able to convert your video to square dimensions because there isn't a way to do it. We'll edit the video in iMovie and then modify the proportions in Keynote. Only Keynote will be used to crop the video into square dimensions. On Mac OS, Keynote is a presentation program that comes preloaded. First, use iMovie to edit your video as you typically would. Make all of the necessary modifications to the audio and video. Make use of iMovie's special editing features. After you've finished editing the video, export it from iMovie.
@@ -114,6 +127,13 @@ Let's adjust the dimensions of your video to square using Keynote now that you'v
 **Step #8\.** Finally, click "File" > "Export To" > "Movie..." to export the video. There will be a popup window. Choose a video resolution and then click **Next**.
 
 **Step #9\.** Select a location to save your square video and then click **Export**.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Bonus Tip - How to Easily Make a Square Video for Social Media on Mac?
 
@@ -159,6 +179,13 @@ These steps have been written as an easy guide. Following them step by step is a
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -172,12 +199,26 @@ Follow @Liza Brown
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-visual-storytelling-excellence-10-tactics-for-captivating-instagram-ads/"><u>[New] 2024 Approved Visual Storytelling Excellence 10 Tactics for Captivating Instagram Ads</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-easy-steps-to-setting-up-a-professional-discord-stream-for-2024/"><u>[New] Easy Steps to Setting Up a Professional Discord Stream for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-strategy-breakthroughs-in-packaging/"><u>[New] In 2024, Strategy Breakthroughs in Packaging</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-inside-track-to-optimizing-adobe-and-selective-non-adobe-solutions/"><u>[New] Inside Track to Optimizing Adobe and Selective Non-Adobe Solutions</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-understanding-the-process-of-altering-photo-genders-on-social-networks-for-2024/"><u>[New] Understanding the Process of Altering Photo Genders on Social Networks for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-unleashing-instagrams-filter-power-free-searches-revealed-for-2024/"><u>[New] Unleashing Instagram's Filter Power – Free Searches Revealed for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-unlocking-engagement-strategies-for-instagram-puzzle-creation-for-2024/"><u>[New] Unlocking Engagement Strategies for Instagram Puzzle Creation for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-unveiling-fake-followers-on-instagram-effortlessly-for-2024/"><u>[New] Unveiling Fake Followers on Instagram, Effortlessly for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-unleash-your-artistic-side-using-bokeh-to-dazzle-insta-followers/"><u>[Updated] 2024 Approved Unleash Your Artistic Side Using Bokeh to Dazzle Insta Followers</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-iphone-and-samsung-faces-examining-their-biometric-security/"><u>[Updated] In 2024, IPhone & Samsung Faces Examining Their Biometric Security</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-the-undisclosed-aspects-what-you-dont-notice-as-a-story-viewer/"><u>[Updated] In 2024, The Undisclosed Aspects What You Don’t Notice as a Story Viewer</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-secrets-to-crafting-enthralling-edu-videos-for-the-digital-age/"><u>[Updated] Secrets to Crafting Enthralling Edu-Videos for the Digital Age</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-top-10-invisible-observers-of-instagram-stories-for-2024/"><u>[Updated] Top 10 Invisible Observers of Instagram Stories for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-unlock-your-potential-one-thousand-new-likesmonth-for-2024/"><u>[Updated] Unlock Your Potential One Thousand New Likes/Month for 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/comprehensive-evaluation-of-the-google-pixel-4a-the-perfect-balance-of-features-and-affordability/"><u>Comprehensive Evaluation of the Google Pixel 4A: The Perfect Balance of Features and Affordability</u></a></li>
+<li><a href="https://common-error.techidaily.com/fix-error-there-is-a-problem-with-your-games-setup-origin-games/"><u>Fix Error There Is a Problem with Your Game's Setup | Origin Games</u></a></li>
+<li><a href="https://change-location.techidaily.com/guide-how-to-unbrick-a-bricked-vivo-v29-pro-phone-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Guide How To Unbrick a Bricked Vivo V29 Pro Phone | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-navigate-with-ease-must-know-win11-tricks/"><u>In 2024, Navigate with Ease Must-Know Win11 Tricks</u></a></li>
+<li><a href="https://common-error.techidaily.com/unexpected-shutdowns-on-windows-11/"><u>Unexpected Shutdowns on Windows 11</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] IGTV Shutdown for Beginners"
-date: 2024-09-17T05:43:28.577Z
-updated: 2024-09-21T20:41:03.467Z
+date: 2024-09-24T19:14:58.996Z
+updated: 2024-09-29T21:34:06.229Z
 tags:
   - ai video
   - ai instagram
@@ -33,6 +33,19 @@ thumbnail: https://thmb.techidaily.com/84a7e5fe8a2d746104e06bccf0ffdc78d9a7d9997
 
  Select the **Push Notifications option**, and then scroll all the way down to the **IGTV Video Updates section** of the Push Notifications menu. Tap on the **Off** option, and you’re done, you’ll no longer receive notifications from IGTV. If at any point you change your mind and you decide that you want to receive notifications from IGTV you can return to the Push Notifications menu and select the **From People I Follow** or **From Everyone** option in the IGTV Video Update section of the Push Notifications menu.
 
+<!-- affiliate ads begin -->
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Hide IGTV Videos?
 
  At the moment this feature is only available on iPhones, while users who access IGTV from Android devices only have the option to report a video they find offensive or don’t like for any other reason. Once you open IGTV on your iPhone, you will be able to see the videos the platform suggests you should watch in **the For You** section. When you come across an IGTV video you no longer want to see, simply **swipe down**, and then **tap on the three-dot icon** that is located next to the Like, Comment and Share buttons.
@@ -47,6 +60,13 @@ thumbnail: https://thmb.techidaily.com/84a7e5fe8a2d746104e06bccf0ffdc78d9a7d9997
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -60,12 +80,24 @@ Follow @Shanoon Cox
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-instagram-reel-downloads-quick-save-methods/"><u>[New] Instagram Reel Downloads Quick Save Methods</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-invisible-observers-the-ultimate-list-of-apps/"><u>[New] Invisible Observers The Ultimate List of Apps</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-keeping-track-of-changed-followers-on-instagram/"><u>[New] Keeping Track of Changed Followers on Instagram</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-instagram-harmony-understanding-rights/"><u>[Updated] Instagram Harmony Understanding Rights</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-instagram-sounds-policy-explained/"><u>[Updated] Instagram Sounds Policy Explained</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-instagram-to-origins-the-step-by-step-image-trackback/"><u>2024 Approved Instagram to Origins The Step-by-Step Image Trackback</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-instagram-video-conversion-unlocking-the-mp3-potential/"><u>2024 Approved Instagram Video Conversion - Unlocking the MP3 Potential</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-optimal-6-solutions-for-video-captioning/"><u>2024 Approved Optimal 6 Solutions for Video Captioning</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-spotlight-on-stories-crafting-three-effective-highlights/"><u>2024 Approved Spotlight on Stories Crafting Three Effective Highlights</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-nokia-c210-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For Nokia C210</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/electric-dreams-why-the-world-is-moving-beyond-gasoline-vehicles/"><u>Electric Dreams: Why the World Is Moving Beyond Gasoline Vehicles</u></a></li>
+<li><a href="https://fox-access.techidaily.com/from-novice-to-pro-steps-in-online-streaming-for-2024/"><u>From Novice to Pro Steps in Online Streaming for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-top-picks-timeless-melodies-from-iconic-animes/"><u>In 2024, Top Picks Timeless Melodies From Iconic Animes</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/instaharmony-androidplusios-photo-video-alchemy-for-2024/"><u>InstaHarmony Android+iOS Photo-Video Alchemy for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/swift-sequencing-of-slideshow-videos/"><u>Swift Sequencing of Slideshow Videos</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/tech-talk-decoded-which-will-win-in-the-iphone-vs-android-battle-for-your-preferences/"><u>Tech Talk Decoded: Which Will Win in the iPhone Vs. Android Battle for Your Preferences?</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/web-development-simplified-crafting-interactive-sites-with-chatgpt-integration/"><u>Web Development Simplified: Crafting Interactive Sites with ChatGPT Integration</u></a></li>
+</ul></div>
 

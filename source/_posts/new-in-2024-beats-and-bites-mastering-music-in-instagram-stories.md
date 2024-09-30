@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Beats & Bites  Mastering Music in Instagram Stories\""
-date: 2024-09-15T21:54:16.367Z
-updated: 2024-09-21T16:36:27.226Z
+date: 2024-09-23T21:45:04.986Z
+updated: 2024-09-29T18:21:19.529Z
 tags:
   - ai video
   - ai instagram
@@ -85,17 +85,38 @@ Boomerangs are extremely popular in Instagram stories due to their quick yet int
 
 ![ Boomerangs & Layouts](https://images.wondershare.com/filmora/article-images/boomerangs-layouts.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Use inbuilt Instagram filters
 
 Instagram also keeps rotating different filters that we can add to our stories. You can explore them from the bottom panel and make your stories look visually appealing. There are tons of gradients and stickers here that you can explore and easily add to your story.
 
 ![ Inbuilt IG Filters](https://images.wondershare.com/filmora/article-images/inbuilt-ig-filters.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Add polls, challenges, countdowns, and more
 
 Apart from adding music, Instagram also lets us add tons of other things to our story. You can mention any other user in your story or add a location to get more views. There are also options to add a hashtag or create a poll. You can also find different challenges to explore (like the ice bucket challenge) to post your story under a specific category.
 
 ![ Add Polls and More](https://images.wondershare.com/filmora/article-images/add-polls-challenges.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Ask questions to interact with your audience
 
@@ -111,6 +132,13 @@ There you go! Now when you know how to add music to IG Story, you can easily pos
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -124,18 +152,24 @@ Follow @Shanoon Cox
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-capturexpress-11-professional-for-2024/"><u>[New] CaptureXpress 11 Professional for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-unlocking-creative-expression-an-in-depth-guide-to-snapchat-filters/"><u>[Updated] 2024 Approved Unlocking Creative Expression An In-Depth Guide to Snapchat Filters</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-unveiling-instagrams-policies-a-musicians-legal-primer-for-2024/"><u>[Updated] Unveiling Instagram's Policies A Musician's Legal Primer for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-delighted-user-registration-walkthrough/"><u>2024 Approved Delighted User Registration Walkthrough</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/best-techniques-for-reducing-the-file-size-of-mov-videos-efficiently/"><u>Best Techniques for Reducing the File Size of MOV Videos Efficiently</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/building-a-powerful-brand-presence-with-instagrams-biz-tools/"><u>Building a Powerful Brand Presence with Instagram's Biz Tools</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/bypassing-instagrams-video-roadblocks-effortlessly/"><u>Bypassing Instagram's Video Roadblocks Effortlessly</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/cookiebot-driven-success-harnessing-automation-for-growth/"><u>Cookiebot-Driven Success: Harnessing Automation for Growth</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/discovering-local-insta-stars-finding-your-niches-top-influencers/"><u>Discovering Local Insta Stars Finding Your Niche's Top Influencers</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/driving-traffic-and-likes-a-guide-for-instagram-pros/"><u>Driving Traffic & Likes A Guide for Instagram Pros</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/essential-hardware-know-how-for-enthusiasts-curated-by-tom/"><u>Essential Hardware Know-How for Enthusiasts, Curated by Tom</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/expanding-your-instagram-video-footprint-practical-tips/"><u>Expanding Your Instagram Video Footprint Practical Tips</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/fact-vs-fiction-decoding-the-world-of-instagram-reels/"><u>Fact vs Fiction Decoding the World of Instagram Reels</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fixing-issues-microsofts-print-to-pdf-feature-malfunction-on-windows-10-and-11/"><u>Fixing Issues: Microsoft's Print to PDF Feature Malfunction on Windows 10 & 11</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/from-last-minute-to-first-impression-how-to-rewind-video-on-instagram/"><u>From Last Minute to First Impression How to Rewind Video on Instagram</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/harnessing-the-power-of-instagrams-video-connectivity-for-2024/"><u>Harnessing the Power of Instagram's Video Connectivity for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/photo-editing-basics-unveiled-dive-into-lunapic/"><u>Photo Editing Basics Unveiled Dive Into LunaPic</u></a></li>
+</ul></div>
 

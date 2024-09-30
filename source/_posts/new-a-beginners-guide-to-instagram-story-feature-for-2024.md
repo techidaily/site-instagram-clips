@@ -1,7 +1,7 @@
 ---
 title: "[New] A Beginner's Guide to Instagram Story Feature for 2024"
-date: 2024-09-18T22:15:35.707Z
-updated: 2024-09-22T09:03:34.314Z
+date: 2024-09-27T22:08:06.407Z
+updated: 2024-09-29T16:12:48.370Z
 tags:
   - ai video
   - ai instagram
@@ -37,6 +37,19 @@ Story Highlights allows you to display all sides of your personality, and you ca
 
 An amazing feature of Instagram highlights is that you can group your stories into sections and create them as folder sections (i.e highlights) on your profile. Once you post a story, you can save it in a Highlight (which is like a folder) and that will automatically be featured on your profile permanently until you decide to delete it or archive it. With this tool, you can design your profile in a unique way that best expresses you.
 
+<!-- affiliate ads begin -->
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Create Instagram Highlights from Stories Archive?
 
 As mentioned above, Highlights are created through your Stories. You have two options for creating a Highlight. The first is that you either create a Highlight from a current Story or your Stories Archive.
@@ -48,6 +61,19 @@ Your Stories Archive is a feature that when enabled, ensures your Stories are au
 3. Scroll down till you see **Saving,** then turn on **Save story to archive.**
 
 ![ Instagram Highlight Archive](https://images.wondershare.com/filmora/article-images/save-story-to-archive-instagram.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 If you choose to create Highlights from your Stories archive, this is how you go about it:
 
@@ -87,6 +113,19 @@ You can choose to create a highlight from your current Story, all you need to do
 * Go to your Instagram Story and click on the **Highlight** icon located at the lower right-hand corner.
 * Click on the **plus** **sign** if you want to create a new highlight, customize the name of the highlight and click
 
+<!-- affiliate ads begin -->
+<span id="1977023">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: How to Delete Instagram Highlights?
 
 There are situations where you might decide you no longer want a highlight to feature on your page. Not to worry it’s there permanently only if you decide not to delete it. This is relatively easy to do. All you have to do is to;
@@ -100,13 +139,6 @@ If for instance, you decide that you want to remove some stories from a highligh
 * Go to the story you want to remove from that particular highlight folder.
 * Once you find the story you want to remove, click on **More,** located on the lower right-hand corner of the page.
 * Click **Remove highlight,** then you are done!
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## FAQs About Instagram Highlights
 
@@ -139,10 +171,10 @@ attire need to be easy to find. You create a Highlight that you refer them to so
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -158,5 +190,23 @@ Follow @Shanoon Cox
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-zooms-best-alternatives-on-laptops-and-tablets/"><u>[New] 2024 Approved Zoom's Best Alternatives on Laptops & Tablets</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-a-step-by-step-guide-to-instagrams-premier-status-6-practical-steps-for-enthusiasts-for-2024/"><u>[New] A Step-by-Step Guide to Instagram's Premier Status 6 Practical Steps For Enthusiasts for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-fishing-footage-frontier-top-action-cameras-for-the-sea/"><u>[New] Fishing Footage Frontier Top Action Cameras for the Sea</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-unlock-the-secrets-to-amazing-instagram-films/"><u>[Updated] Unlock the Secrets to Amazing Instagram Films</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-winning-instagram-viewers-with-impactful-videos/"><u>[Updated] Winning Instagram Viewers with Impactful Videos</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/boosting-productivity-with-innovative-win11-features-for-2024/"><u>Boosting Productivity with Innovative Win11 Features for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-repair-apple-iphone-14-pro-ios-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair Apple iPhone 14 Pro iOS? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-show-wi-fi-password-on-tecno-camon-30-pro-5g-by-drfone-android/"><u>How to Show Wi-Fi Password on Tecno Camon 30 Pro 5G</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-on-infinix-hot-40-pro-by-drfone-android/"><u>In 2024, How to Bypass FRP on Infinix Hot 40 Pro?</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-tricks-for-procuring-high-end-imagery-without-spending-money/"><u>In 2024, Tricks for Procuring High-End Imagery Without Spending Money</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-unlocking-instagrams-hidden-qanda-features/"><u>In 2024, Unlocking Instagram’s Hidden Q&A Features</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-unraveling-the-mystery-of-social-media-success-on-instagram-learn-how-in-less-than-a-page/"><u>In 2024, Unraveling the Mystery of Social Media Success on Instagram Learn How in Less Than a Page</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-visiovista-android-and-ios-instagram-tile-artisan/"><u>In 2024, VisioVista Android & iOS Instagram Tile Artisan</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/overcoming-zoom-camera-malfunctions-with-easy-fixes/"><u>Overcoming Zoom Camera Malfunctions with Easy Fixes</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/tips-for-optimizing-facebooks-auto-play-videos/"><u>Tips for Optimizing Facebook's Auto-Play Videos</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/visionvoice-tips-for-perfectly-sized-insta-posts-for-2024/"><u>VisionVoice Tips for Perfectly Sized Insta Posts for 2024</u></a></li>
+</ul></div>
 

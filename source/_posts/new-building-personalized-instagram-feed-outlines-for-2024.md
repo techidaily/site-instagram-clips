@@ -1,7 +1,7 @@
 ---
 title: "[New] Building Personalized Instagram Feed Outlines for 2024"
-date: 2024-09-17T22:09:18.511Z
-updated: 2024-09-21T22:17:45.063Z
+date: 2024-09-26T16:12:47.258Z
+updated: 2024-09-29T20:55:03.993Z
 tags:
   - ai video
   - ai instagram
@@ -69,6 +69,13 @@ On the design page, click on **Add Page** and then on the upper left side, you w
 
 ![Add background to Canva highlight cover](https://images.wondershare.com/filmora/article-images/add-background-highlight-cover.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4: Choose an icon or add text**
 
 ![ Canva highlight cover elements](https://images.wondershare.com/filmora/article-images/canva-highlight-cover-elements-library.jpg)
@@ -76,6 +83,13 @@ On the design page, click on **Add Page** and then on the upper left side, you w
 Once you have a background color or photo, you can add an icon, emoji, or text. On the left-hand side of the page, click on Elements and then select Graphics. Scroll to check all the graphics or search for a specific one. Select the icon you want to use, and you can even change the color by clicking on the left-hand corner for the colors. To add text on your highlight covers, select the Text tab and add the one you want.
 
 ![ add text to  highlight cover ](https://images.wondershare.com/filmora/article-images/add-text-highlight-cover-canva.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 You can make as many highlights covers as you want. Just click on the +Add page to replicate the background and then add a new icon or text for each new page created.
 
@@ -91,6 +105,13 @@ Before you upload the highlight covers on Instagram, ensure you turn on the Arch
 
 ![ upload  highlight cover to instagram ](https://images.wondershare.com/filmora/article-images/upload-highlight-cover-to-instagram.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 As we said before, you should transfer the created highlight cover photos from desktop to you phone, and then click on your Instagram profile and add a new highlight, follow the instructions on the screen to edit cover and then add the highlight cover photo you just created, give it a name, and click on Done. Your new Insta Story Highlight appears at the bottom of your Instagram bio.
 
 ## Part 4: How to Change Existing Highlight Cover on Instagram?
@@ -98,13 +119,6 @@ As we said before, you should transfer the created highlight cover photos from d
 If you have existing highlight covers, you can easily edit and change them. Go to your Instagram profile, go to the Highlights section and press and hold the highlight cover that you want to change, tap **More** and then tap on **Edit Highlight**, and then on **Edit Cover**. Find the photo you want to use as a new cover for the highlight, and click on it and tap on Done.
 
 Besides changing highlight cover, here you can edit the highlight and add old stories or delete the images you do not want.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Bonus: Tips for making better Instagram Highlight cover
 
@@ -131,16 +145,10 @@ Creating Instagram Highlight Covers is a quick and easy way to maintain your bra
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="864" height="1152" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -156,5 +164,26 @@ Follow @Shanoon Cox
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-cutting-tactics-shrinking-vids-for-instagram-mac-edition/"><u>[New] 2024 Approved Cutting Tactics Shrinking Vids for Instagram, Mac Edition</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-developing-dynamic-instagram-highlights/"><u>[New] 2024 Approved Developing Dynamic Instagram Highlights</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-famebit-alternatives-for-finding-youtube-sponsorships/"><u>[New] 2024 Approved FameBit Alternatives for Finding YouTube Sponsorships</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-elevate-your-instagram-strategy-with-expert-analytical-software-for-2024/"><u>[New] Elevate Your Instagram Strategy with Expert Analytical Software for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-crafting-cinematic-magic-essential-tips-for-creating-stunning-slow-motion-media-on-instagram/"><u>[Updated] 2024 Approved Crafting Cinematic Magic Essential Tips for Creating Stunning Slow-Motion Media on Instagram</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-revolutionize-your-designs-incorporating-3d-text-psx/"><u>[Updated] 2024 Approved Revolutionize Your Designs Incorporating 3D Text PSX</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-copyright-clarity-for-instagram-beats-for-2024/"><u>[Updated] Copyright Clarity for Instagram Beats for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-demystifying-the-instagram-selfie-process-for-2024/"><u>[Updated] Demystifying the Instagram Selfie Process for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-dive-into-action-4-easy-steps-for-audience-captivating-instagram-loops-for-2024/"><u>[Updated] Dive Into Action 4 Easy Steps for Audience-Captivating Instagram Loops for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-crafting-cross-platform-content-strategy-with-igtv-and-fb/"><u>[Updated] In 2024, Crafting Cross-Platform Content Strategy with IGTV and FB</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-cut-to-impact-video-editing-secrets-for-instagram-professionals/"><u>[Updated] In 2024, Cut to Impact Video Editing Secrets for Instagram Professionals</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-become-a-kinemaster-wizard-essentials-techniques-and-10-top-online-contenders/"><u>2024 Approved Become a KineMaster Wizard Essentials, Techniques & 10 Top Online Contenders</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/best-top-rated-2d-animation-programs-for-beginners-and-pros/"><u>Best Top-Rated 2D Animation Programs for Beginners and Pros</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/complete-your-tech-arsenal-dell-monitor-elite-noise-cancelling-headphones-and-superior-quality-camera/"><u>Complete Your Tech Arsenal: Dell Monitor, Elite Noise Cancelling Headphones, & Superior Quality Camera</u></a></li>
+<li><a href="https://driver-download.techidaily.com/effortlessly-upgrade-to-latest-drivers-on-acer-predator-xb271h-screen/"><u>Effortlessly Upgrade to Latest Drivers on Acer Predator XB271H Screen</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/harness-the-power-of-cookiebot-for-enhanced-website-analytics-and-growth/"><u>Harness the Power of Cookiebot for Enhanced Website Analytics and Growth</u></a></li>
+<li><a href="https://win-blog.techidaily.com/improving-your-gaming-experience-address-stuttering-and-low-fps-in-new-world/"><u>Improving Your Gaming Experience: Address Stuttering & Low FPS in New World</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolved-how-to-get-your-diagnostic-policy-service-running-again/"><u>Resolved: How to Get Your Diagnostic Policy Service Running Again</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/unlocking-content-a-step-by-step-tutorial-on-bypassing-drm-in-handbrake/"><u>Unlocking Content: A Step-by-Step Tutorial on Bypassing DRM in HandBrake</u></a></li>
+</ul></div>
 
