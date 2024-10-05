@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] FrameFinesse  A Detailed Guide on IG Image Dimensions\""
-date: 2024-09-25T22:40:46.807Z
-updated: 2024-09-29T17:17:40.151Z
+date: 2024-09-30T02:21:05.652Z
+updated: 2024-10-04T21:00:19.903Z
 tags:
   - ai video
   - ai instagram
@@ -46,16 +46,10 @@ Duration of Videos on Instagram
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
 <!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Best Image Sizes for Instagram Posts
@@ -67,10 +61,10 @@ A couple of years ago, Instagram has finally allowed its users to upload images 
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
@@ -98,16 +92,10 @@ The profile pictures on Instagram are tiny, and the optimum size for them is 160
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982499">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -125,22 +113,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-chat-to-tune-downloader-for-fb/"><u>[New] 2024 Approved Chat to Tune Downloader for FB</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-decode-youtube-shorts-a-complete-breakdown/"><u>[New] 2024 Approved Decode YouTube Shorts A Complete Breakdown</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-small-channels-big-opportunities-an-affiliate-approach/"><u>[New] In 2024, Small Channels, Big Opportunities An Affiliate Approach</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-breeze-through-your-latest-fb-watches-2023-edition-for-2024/"><u>[Updated] Breeze Through Your Latest FB Watches 2023 Edition for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/essential-igtv-feeds-for-modern-viewers/"><u>Essential IGTV Feeds for Modern Viewers</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/essential-techniques-for-recording-instagram-stories/"><u>Essential Techniques for Recording Instagram Stories</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/fast-track-to-flawless-podcast-live-for-2024/"><u>Fast Track to Flawless Podcast Live for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/from-novice-to-pro-your-complete-guide-to-instagrams-latest-feature-reels/"><u>From Novice to Pro – Your Complete Guide to Instagram's Latest Feature, Reels</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-delete-icloud-account-on-iphone-12-without-password-by-drfone-ios/"><u>How to Delete iCloud Account On iPhone 12 without Password?</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/how-to-speed-up-video-on-instagram/"><u>How to Speed Up Video on Instagram</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/instagrams-creative-toolkit-applying-effects-on-existing-content/"><u>Instagram's Creative Toolkit Applying Effects on Existing Content</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/perfecting-your-instagram-format-imovie-square-video-creation/"><u>Perfecting Your Instagram Format IMovie Square Video Creation</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/preserving-your-online-reputation-amidst-faux-endorsements/"><u>Preserving Your Online Reputation Amidst Faux Endorsements</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/seamlessly-download-igtv-for-iphoneandroid-users/"><u>Seamlessly Download IGTV for iPhone/Android Users</u></a></li>
-<li><a href="https://techidaily.com/solved-bad-and-corrupt-videos-that-wont-play-on-m6-5g-by-stellar-video-repair-mobile-video-repair/"><u>Solved Bad and Corrupt Videos that won't Play on M6 5G</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/tutorial-facile-e-veloce-sulle-tecniche-top-di-acquisizione-screen-del-tuo-mac/"><u>Tutorial Facile E Veloce Sulle Tecniche Top Di Acquisizione Screen Del Tuo Mac</u></a></li>
-<li><a href="https://techtrends.techidaily.com/winx-dvd-ripper-platinum-a-superior-32xplus-fast-dvd-copying-tool-for-protected-disc-conversion-on-windows-10/"><u>WinX DVD Ripper Platinum: A Superior 32X+ Fast DVD Copying Tool for Protected Disc Conversion on Windows 10</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-imageinstinct-a-compreehensive-guide-for-instagram-size-control/"><u>[New] ImageInstinct A Compreehensive Guide for Instagram Size Control</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-impressive-image-sequence-on-instagram/"><u>[New] Impressive Image Sequence on Instagram</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-audience-alchemy-converting-shorts-to-sensations/"><u>[New] In 2024, Audience Alchemy Converting Shorts to Sensations</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-backwards-play-mastering-youtube-video-reversals/"><u>[Updated] 2024 Approved Backwards Play Mastering YouTube Video Reversals</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-implementing-real-time-transcriptions-in-reels-and-stories/"><u>[Updated] Implementing Real-Time Transcriptions in Reels and Stories</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-vimeo-explained-a-streaming-media-service-for-2024/"><u>[Updated] Vimeo Explained A Streaming Media Service for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-from-game-to-giga-full-ps4-capture-using-obs/"><u>2024 Approved From Game to Giga Full PS4 Capture Using OBS</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-innovative-approaches-to-customize-your-igtv-content-size/"><u>2024 Approved Innovative Approaches to Customize Your IGTV Content Size</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-instagram-make-videos-play-swiftly/"><u>2024 Approved Instagram Make Videos Play Swiftly</u></a></li>
+<li><a href="https://article-helps.techidaily.com/best-youtube-title-generator/"><u>Best YouTube Title Generator</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-tecno-spark-20-proplus-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Tecno Spark 20 Pro+ Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-imageryinfluence-mastering-size-settings-on-instagram/"><u>In 2024, ImageryInfluence Mastering Size Settings on Instagram</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-instagram-perfection-sizing-your-video-just-right/"><u>In 2024, Instagram Perfection Sizing Your Video Just Right</u></a></li>
+<li><a href="https://win11.techidaily.com/unveiling-solutions-to-incorrect-games-detection-on-discord-windows/"><u>Unveiling Solutions to Incorrect Games Detection on Discord Windows</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/your-compreran-guide-to-creating-viral-ad-videos-for-free-for-2024/"><u>Your Compreran Guide to Creating Viral Ad Videos for Free for 2024</u></a></li>
 </ul></div>
 

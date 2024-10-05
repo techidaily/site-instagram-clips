@@ -1,7 +1,7 @@
 ---
 title: "[New] Banish the Automatic Post Proposals on Instagram"
-date: 2024-09-24T18:45:09.121Z
-updated: 2024-09-29T21:40:15.296Z
+date: 2024-09-27T18:06:14.491Z
+updated: 2024-10-04T18:22:04.924Z
 tags:
   - ai video
   - ai instagram
@@ -49,13 +49,6 @@ Suggested posts will let you scroll through Instagram a bit more and even give y
 
 The intent of these features is to know more like-minded people and follow them to see more of their posts.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How to Turn off Suggested Posts on Instagram?
 
 So, if you are searching for answers to **remove suggested posts on Instagram,** here comes upsetting news, and that's there is no direct way to stop seeing unwanted suggested posts right at the bottom of the feed. Instagram has also made it clear that there is no way one can close suggested posts. However, this certainly doesn't mean that you can hide suggested posts at all.
@@ -82,11 +75,25 @@ Here's what you need to do:
 
 ![choose your feedback option](https://images.wondershare.com/filmora/article-images/instagram-suggestion-posts-feedback.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Now, you can apply the same steps for the rest of the posts as well. But do keep in mind that suggested posts will still appear. And you will have to apply this setting for each one so that you are shown fewer posts of unknown people.
 
 ## Part 3: How to Delete Suggested Users from Instagram?
 
 If you don't want to see suggested users on your Instagram feed, there is a way to remove unknown users actually. You can do it by using your web browser or Instagram mobile app. Whichever is comfortable to use. However, please note that these steps have to be followed for each suggested user. Now, please use that and then follow these steps.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### For Instagram app users
 
@@ -99,10 +106,10 @@ If you don't want to see suggested users on your Instagram feed, there is a way 
 ![click on x symbol to delete suggested users](https://images.wondershare.com/filmora/article-images/delete-instagram-suggestion-post.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 4:** To delete multiple suggested users, just click on the see all option, and the list of suggested users will appear; now click on the X for each user you want to delete. However, you need to delete everyone one by one individually.
@@ -110,13 +117,6 @@ If you don't want to see suggested users on your Instagram feed, there is a way 
 ### For web browsers
 
 The problem with web browsers is that you won't be able to remove the suggested users like you can through your Instagram app on your Android or iOS devices. So, the only way out for you will be to open your Instagram mobile app and then do it from there by following the steps that we have mentioned for Instagram app users.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4: How to Avoid Showing up in Other Users' Suggestions for Your List
 
@@ -131,10 +131,16 @@ Just like Instagram show you suggested users and posts, your account gets recomm
 ![ uncheck the similar account suggestions box](https://images.wondershare.com/filmora/article-images/uncheck-similar-account-suggestions.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982457">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5: How Does Instagram Suggestions Work?
@@ -170,16 +176,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-digital-footprint-and-interactive-iconography-honors/"><u>[New] 2024 Approved Digital Footprint and Interactive Iconography Honors</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-elevating-your-visuals-mastering-instagram-edits-in-fcpx/"><u>[New] In 2024, Elevating Your Visuals Mastering Instagram Edits in FCPX</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-elite-anonymity-in-story-consumption-top-5-apps/"><u>[New] In 2024, Elite Anonymity in Story Consumption, Top 5 Apps</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-photoquarter-analysis/"><u>[New] In 2024, PhotoQuarter Analysis</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-voice-makeover-masters-the-7-leading-recording-changer-apps/"><u>[New] In 2024, Voice Makeover Masters The 7 Leading Recording Changer Apps</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-elevate-your-content-how-to-edit-instagrams-preferred-format-in-fcpx/"><u>[Updated] 2024 Approved Elevate Your Content How to Edit Instagram's Preferred Format in FCPX</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-crafting-perfect-youtube-music-sets/"><u>[Updated] Crafting Perfect YouTube Music Sets</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-downloading-the-latest-insta-reels-two-ways-to-go/"><u>[Updated] In 2024, Downloading the Latest Insta Reels, Two Ways to Go</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/in-2024-ensuring-seamless-gotomeeting-experience-with-device-recording/"><u>In 2024, Ensuring Seamless GoToMeeting Experience with Device Recording</u></a></li>
-<li><a href="https://program-issues.techidaily.com/league-of-legends-connectivity-fix-overcoming-lag-and-disconnects/"><u>League of Legends Connectivity Fix: Overcoming Lag and Disconnects</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/uditory-alteration-aids-for-streamers-and-clips/"><u>Top Auditory Alteration Aids for Streamers and Clips</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-interactive-link-integration-for-instagram-users/"><u>[New] 2024 Approved Interactive Link Integration for Instagram Users</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-leading-10-video-editing-programs-for-instagram-reels-enthusiasts/"><u>[New] 2024 Approved Leading 10 Video Editing Programs for Instagram Reels Enthusiasts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-the-most-effective-7-apps-for-blocking-android-web-ads/"><u>[New] 2024 Approved The Most Effective 7 Apps for Blocking Android Web Ads</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-boost-productivity-premier-tools-for-unfollowing-tweets/"><u>[New] Boost Productivity Premier Tools for Unfollowing Tweets</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-instagram-video-time-warp-techniques-for-2024/"><u>[New] Instagram Video Time Warp Techniques for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-instagrams-best-practices-for-sensational-video-loops-for-2024/"><u>[New] Instagram's Best Practices for Sensational Video Loops for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-extract-and-save-fb-videos-on-pcmac-anywhere/"><u>[Updated] In 2024, Extract & Save FB Videos on PC/Mac, Anywhere</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-unlocking-success-selecting-co-stars-for-youtube-projects/"><u>[Updated] Unlocking Success Selecting Co-Stars for YouTube Projects</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-realme-gt-neo-5-se-by-drfone-android/"><u>Complete Review & Guide to Techeligible FRP Bypass and More For Realme GT Neo 5 SE</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-the-dji-phantom-4-pro-version-20-nearly-unmatched-performance/"><u>Expert Analysis of the DJI Phantom 4 Pro Version 2.0 - Nearly Unmatched Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/knack-review/"><u>Knack Review</u></a></li>
 </ul></div>
 

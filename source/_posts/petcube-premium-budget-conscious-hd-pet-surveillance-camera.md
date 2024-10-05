@@ -1,7 +1,7 @@
 ---
 title: "Petcube Premium: Budget-Conscious HD Pet Surveillance Camera"
-date: 2024-09-24T18:11:33.621Z
-updated: 2024-09-29T22:58:50.799Z
+date: 2024-10-04T01:10:41.961Z
+updated: 2024-10-04T16:51:49.519Z
 categories:
   - BestProducts
 description: "This Article Describes Petcube Premium: Budget-Conscious HD Pet Surveillance Camera"
@@ -36,6 +36,13 @@ Lifewire / Kelsey Simon
 [View On Amazon](https://www.amazon.com/dp/B00D2ZK1IG/?tag=lifewire-onsite-prod-20&ascsubtag=4778324%7Cn8b17d62e028148938085d16c4455799211%7CB00D2ZK1IG) [View On Gamestop.com](https://www.gamestop.com/video-games/playstation-4/games/products/dying-light/10111372.html)
 
 4.2
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Dying Light
 
@@ -72,20 +79,13 @@ Lifewire / Kelsey Simon
 
 ![Dying Light](https://www.lifewire.com/thmb/P3rXmBBI1GdQfgi0vVT9xKcFw90=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-2-db5990d1f64341eaae79e22a71bb8f95.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Plot: A character torn between obligation and friendship**
@@ -101,6 +101,13 @@ Harran is a whole different city at night.
 ![Dying Light](https://www.lifewire.com/thmb/8G35q3VsoSEuht_3bqsGm0Pwz-0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-7-d9d2bbe8881e476f8dfb3c13059634ed.jpg)
 
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Gameplay: Parkour and zombies galore**
 
@@ -118,6 +125,13 @@ Harran is a whole different city at night.
 
  Lifewire / Kelsey Simon
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Graphics: Attention to detail**
 
  The graphics of Dying Light compare well to other triple-A titles, though it feels like the developers took more care with the scenery than the characters. Human models look a little plasticky, but the world around you is textured beautifully and rich with small details like posters and graffiti that help make the world around you feel real.
@@ -126,32 +140,11 @@ Harran is a whole different city at night.
 
 ![Dying Light](https://www.lifewire.com/thmb/sy9NHLj8JNe2eaeS9HJJdejt6QE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-6-56ef808272b544e6a1038f4a5d0280f1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: Worth the cost, especially with a friend**
 
  On PlayStation 4, you can purchase the game for $14, a fantastic value. You’ll get more than enough gameplay and fun to justify a purchase at that low cost. However, if you want to play on[PC](https://www.lifewire.com/best-desktop-pcs-4045927) , you’ll have to either wait for the game to go on sale, or you’ll have to pay $40\. Considering the game is older now, we’d suggest getting the game on sale (it goes on sale often through Steam). There’s a lot of fun to be had in Dying Light, especially if you have a friend to play with, so if you’re thinking about getting the game, we’d say go for it.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: Other zombie and parkour games**
 
@@ -164,6 +157,13 @@ Harran is a whole different city at night.
 **An original in the zombie survival genre.**
 
  Dying Light is a game that took an overdone trope and used it to create a fresh game. Its fun parkour and co-op gameplay make for a great gaming experience, particularly when shared with friends. The variety of zombie enemies combined with the excellent melee combat keep the experience fresh even in the late game―and if things feel too simple, doing a mission at night is a wholly different experience from daylight outings. Dying Light is a great game in the zombie survival genre that we would recommend to most players.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -186,19 +186,17 @@ Harran is a whole different city at night.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-inverted-intrigue-mastering-the-art-of-turning-photos-for-instagram-glory/"><u>[New] Inverted Intrigue Mastering the Art of Turning Photos for Instagram Glory</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-step-by-step-guide-for-using-zoom-via-gmail/"><u>[New] Step-by-Step Guide for Using Zoom via Gmail</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-instagram-soundtracks-law-and-ethics/"><u>[Updated] Instagram Soundtracks Law & Ethics</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-mitigate-playback-problems-in-android-and-ios-apps/"><u>2024 Approved Mitigate Playback Problems in Android & iOS Apps</u></a></li>
-<li><a href="https://win-answers.techidaily.com/achieving-victory-over-call-of-duty-error-6328-in-warzone-ultimate-fix-guide-for-gamers/"><u>Achieving Victory over Call of Duty Error 6328 in Warzone - Ultimate Fix Guide for Gamers</u></a></li>
-<li><a href="https://driver-download.techidaily.com/easy-steps-to-install-the-latest-samsung-m2070-printer-drivers/"><u>Easy Steps to Install the Latest Samsung M2070 Printer Drivers</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/exploring-freexaudio-technology-review/"><u>Exploring FreexAudio Technology Review</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-easy-guide-to-tecno-pova-5-pro-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Tecno Pova 5 Pro FRP Bypass With Best Methods</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-insta-zoom-mastery-in-and-out-for-clearer-selfies/"><u>In 2024, Insta Zoom Mastery In and Out for Clearer Selfies</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-instagram-engagement-game-changers-the-top-25-hashtags-you-need/"><u>In 2024, Instagram Engagement Game-Changers The Top 25 Hashtags You Need</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-instagram-insights-boosting-your-follower-count/"><u>In 2024, Instagram Insights Boosting Your Follower Count</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/inside-look-at-instagrams-subtle-yet-powerful-features-for-2024/"><u>Inside Look at Instagram's Subtle Yet Powerful Features for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/the-impact-of-conversational-agents-like-chatgpt-on-modern-medicine/"><u>The Impact of Conversational Agents Like ChatGPT on Modern Medicine</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/this-title-appeals-to-users-looking-to-master-or-learn-about-command-prompt-across-different-windows-environments-suggesting-comprehensive-guidance/"><u>This Title Appeals to Users Looking to Master or Learn About Command Prompt Across Different Windows Environments, Suggesting Comprehensive Guidance</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-elevate-your-visual-narratives-with-mastered-stories-bokeh/"><u>[New] In 2024, Elevate Your Visual Narratives with Mastered Stories Bokeh</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-capturing-ps4-a-comprehensive-review-of-recording-options/"><u>[Updated] 2024 Approved Capturing PS4 A Comprehensive Review of Recording Options</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-elevate-your-videos-best-android-and-pc-compatible-apps/"><u>[Updated] 2024 Approved Elevate Your Videos Best Android and PC-Compatible Apps</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-decoding-music-copyright-rules-in-the-world-of-instagram/"><u>[Updated] In 2024, Decoding Music Copyright Rules in the World of Instagram</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-delving-into-instagrams-videography-restriction/"><u>[Updated] In 2024, Delving Into Instagram's Videography Restriction</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-macbooks-eye-catches-learn-webcam-recording-for-2024/"><u>[Updated] MacBook's Eye Catches Learn Webcam Recording for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-becoming-a-pro-at-iphone-hdr-imaging/"><u>2024 Approved Becoming a Pro at iPhone HDR Imaging</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-top-5-effortlessly-converted-gif-to-professional-videos-online/"><u>2024 Approved Top 5 Effortlessly Converted GIF to Professional Videos Online</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/comprehensive-review-of-samsungs-latest-tablet-galaxy-tab-s7-tailored-for-true-android-admirers/"><u>Comprehensive Review of Samsung's Latest Tablet, Galaxy Tab S7 – Tailored for True Android Admirers</u></a></li>
+<li><a href="https://fox-that.techidaily.com/top-5-solutions-how-to-stop-your-iphone-from-dropping-wi-fi-connections/"><u>Top 5 Solutions: How to Stop Your iPhone From Dropping Wi-Fi Connections</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovered-no-more-erasing-your-facebook-trail/"><u>Uncovered No More: Erasing Your Facebook Trail</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-and-youtube-the-ultimate-showdown/"><u>Vimeo and YouTube The Ultimate Showdown</u></a></li>
 </ul></div>
 

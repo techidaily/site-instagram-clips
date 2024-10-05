@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] PictureProfessional  Expert Guide to Adjusting IG Content Sizes\""
-date: 2024-09-25T17:33:23.741Z
-updated: 2024-09-29T17:52:43.264Z
+date: 2024-10-03T00:00:08.405Z
+updated: 2024-10-04T17:22:15.203Z
 tags:
   - ai video
   - ai instagram
@@ -46,10 +46,10 @@ Duration of Videos on Instagram
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Best Image Sizes for Instagram Posts
@@ -61,10 +61,16 @@ A couple of years ago, Instagram has finally allowed its users to upload images 
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
@@ -92,10 +98,10 @@ The profile pictures on Instagram are tiny, and the optimum size for them is 160
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -113,24 +119,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-ps4-gameplay-to-video-an-in-depth-obs-recording-guide/"><u>[New] PS4 Gameplay to Video - An In-Depth OBS Recording Guide</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-quick-and-painless-ways-to-screen-record-stories/"><u>[New] Quick & Painless Ways to Screen Record Stories</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-seamless-sharing-linking-youtube-to-insta-stories/"><u>[New] Seamless Sharing Linking YouTube to Insta Stories</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-electorate-engagement-enigma-top-simulator-series-for-2024/"><u>[Updated] Electorate Engagement Enigma Top Simulator Series for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-exclusive-list-of-windows-10-recording-software/"><u>[Updated] Exclusive List of Windows 10 Recording Software</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-revamping-reality-the-premier-11-instagram-edits/"><u>[Updated] Revamping Reality The Premier 11 Instagram Edits</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-pushing-boundaries-with-innovative-instagram-content/"><u>2024 Approved Pushing Boundaries with Innovative Instagram Content</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-how-lenovo-ideapad-delivers-essential-features-within-a-robust-design/"><u>Discover How Lenovo Ideapad Delivers Essential Features Within a Robust Design</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-professional-insights-for-perfecting-your-instagram-aesthetics/"><u>In 2024, Professional Insights for Perfecting Your Instagram Aesthetics</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-reel-into-reality-how-boomers-keep-ig-audiene-hooked/"><u>In 2024, Reel Into Reality How Boomers Keep IG Audiene Hooked</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-rev-up-creativity-instagrams-best-inspirational-snapshots/"><u>In 2024, Rev Up Creativity Instagram's Best Inspirational Snapshots</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-strategizing-your-approach-highlight-and-story-downloads/"><u>In 2024, Strategizing Your Approach Highlight & Story Downloads</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/quick-latvian-lessons-achieve-proficiency-fast/"><u>Quick Latvian Lessons - Achieve Proficiency Fast</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/resolved-troubleshooting-and-repairing-crackling-audio-on-your-pcs-built-in-speakers-windows-107/"><u>Resolved: Troubleshooting and Repairing Crackling Audio on Your PC's Built-In Speakers (Windows 10/7)</u></a></li>
-<li><a href="https://techtrends.techidaily.com/rumors-surrounding-the-impending-arrival-of-google-pixel-10-price-forecasts-launch-dates-and-hardware-breakdown/"><u>Rumors Surrounding the Impending Arrival of Google Pixel 10: Price Forecasts, Launch Dates & Hardware Breakdown</u></a></li>
-<li><a href="https://techtrends.techidaily.com/simple-steps-to-uncover-your-specific-macbook-series-and-id-numbers/"><u>Simple Steps to Uncover Your Specific MacBook Series and ID Numbers</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/simplifying-cross-platform-sharing-instagram-and-facebook-integration-for-2024/"><u>Simplifying Cross-Platform Sharing Instagram & Facebook Integration for 2024</u></a></li>
-<li><a href="https://fox-that.techidaily.com/top-6-solutions-when-family-sharing-features-arent-working/"><u>Top 6 Solutions When Family Sharing Features Aren't Working</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/troubleshooting-the-not-found-d3dx940dll-issue-efficiently/"><u>Troubleshooting the Not Found d3dx9_40.dll Issue Efficiently</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-techniques-for-modifying-photo-genders-on-major-social-platforms/"><u>[New] Techniques for Modifying Photo Genders on Major Social Platforms</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-unique-expression-modifying-voices-on-instagram-media-features/"><u>[New] Unique Expression Modifying Voices on Instagram Media Features</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-from-hobbyist-to-pro-optimal-cameras-for-youtubing/"><u>[Updated] 2024 Approved From Hobbyist to Pro Optimal Cameras For YouTubing</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-talent-release-form-for-filming-and-video-to-free-download/"><u>[Updated] 2024 Approved Talent Release Form for Filming and Video to Free Download</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-ideal-screen-reporter-tech-boosting-youtubing-experience-for-2024/"><u>[Updated] Ideal Screen Reporter Tech Boosting YouTubing Experience for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-spotlight-on-highly-praised-instagram-after-effects-plugins/"><u>[Updated] Spotlight on Highly Praised Instagram After Effects Plugins</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-techniques-to-decrease-film-duration-on-macos-for-insta/"><u>[Updated] Techniques to Decrease Film Duration on macOS for Insta</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-unlocking-the-secrets-of-instagrams-trending-reels/"><u>2024 Approved Unlocking the Secrets of Instagram's Trending Reels</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/complete-guide-to-recording-live-tv-on-your-windows-pc-for-2024/"><u>Complete Guide to Recording Live TV on Your Windows PC for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-explore-aspect-ratios-for-stunning-video-outputs/"><u>In 2024, Explore Aspect Ratios for Stunning Video Outputs</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-realme-11x-5g-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Realme 11X 5G to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-unlocking-engagement-strategies-for-instagram-puzzle-creation/"><u>In 2024, Unlocking Engagement Strategies for Instagram Puzzle Creation</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/navigating-the-world-of-pc-components-a-deep-dive-into-toms-hardware/"><u>Navigating the World of PC Components - A Deep Dive Into Tom's Hardware</u></a></li>
+<li><a href="https://fox-that.techidaily.com/silencing-duplicate-notifications-keeping-your-ipad-quiet-when-the-iphone-dials/"><u>Silencing Duplicate Notifications: Keeping Your iPad Quiet When the iPhone Dials</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/strategies-to-escalate-your-instagram-presence-for-2024/"><u>Strategies to Escalate Your Instagram Presence for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/the-path-to-polished-photo-borders-in-instagram-for-2024/"><u>The Path to Polished Photo Borders in Instagram for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/unlocking-secrets-to-solve-steams-blocked-file-problem/"><u>Unlocking Secrets to Solve Steam’s Blocked File Problem</u></a></li>
 </ul></div>
 

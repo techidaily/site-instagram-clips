@@ -1,7 +1,7 @@
 ---
 title: "[New] Mastering the Craft of IGTV Video Production with Phones and DSLRs"
-date: 2024-08-26T13:01:53.946Z
-updated: 2024-08-27T13:01:53.946Z
+date: 2024-09-30T19:11:10.671Z
+updated: 2024-10-04T17:14:02.830Z
 tags:
   - ai video
   - ai instagram
@@ -39,6 +39,13 @@ The type of video you’re trying to create determines which pieces of equipment
 
 **You may also like:** [\>> Blue Screen VS Green Screen: All You Need to Know](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
+  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Shoot IGTV Videos With a DSLR Camera?
 
 Learning how to operate a DLSR camera takes time and practice, so in order to capture professional-looking videos, you need to use the camera as often as you can. Adjusting the exposure value or pulling focus manually may seem difficult when you first start producing videos, but learning how to do these things will make you a better cinematographer, and it will enable you to create brilliant content for your IGTV channel.
@@ -51,11 +58,31 @@ Shooting videos on DSLR cameras also mean that you need access to a **video edit
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Conclusion**
 
 You don’t have to be a professional in order to record an IGTV video, but you still need to have at least basic knowledge about how cameras work and how you can use them to create vertical videos. Do you use a DSLR camera or Smartphone to record IGTV videos? Which one do you like using more? Leave a comment and lets us know.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -63,14 +90,31 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-2023s-premier-storytelling-channels-on-youtube/"><u>[New] 2023'S Premier Storytelling Channels on YouTube</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-essential-video-capture-tools-for-windows-10-users/"><u>[New] Essential Video Capture Tools for Windows 10 Users</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-reel-in-the-solution-to-instagram-video-glitches/"><u>[New] Reel in the Solution to Instagram Video Glitches</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-the-art-of-slow-motion-in-instagram-reels/"><u>[New] The Art of Slow Motion in Instagram Reels</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-seamless-social-media-execution-with-the-top-8-iphone-and-android-apps/"><u>[Updated] Seamless Social Media Execution with The Top 8 iPhone & Android Apps</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-stealthy-content-consumption-top-5-apps/"><u>[Updated] Stealthy Content Consumption - Top 5 Apps</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/1725288833236-mp4/"><u>「MP4ファイルの音量調整＆均一化:無料ガイド」</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-social-synergy-connecting-the-two-giants/"><u>2024 Approved Social Synergy Connecting the Two Giants</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-techniques-to-upload-extended-videographics-on-instagram/"><u>2024 Approved Techniques to Upload Extended Videographics on Instagram</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/exploring-the-influence-of-luts-on-digital-imagery-quality-for-2024/"><u>Exploring the Influence of LUTs on Digital Imagery Quality for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/high-quality-video-webcams-top-5-combos-with-sound/"><u>High-Quality Video Webcams - Top 5 Combo's With Sound</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-lava-blaze-pro-5g-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Lava Blaze Pro 5G to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-shielding-imagery-best-practices-for-instagram-photowatermarking/"><u>In 2024, Shielding Imagery Best Practices for Instagram Photowatermarking</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/instant-remedy-steps-to-fix-detected-no-power-source-error/"><u>Instant Remedy Steps to Fix 'Detected No Power Source' Error</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/optimized-display-on-windows-11-updated/"><u>Optimized Display on Windows 11 Updated</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/quick-guide-to-mp3-from-instagram-videos-for-2024/"><u>Quick Guide to MP3 From Instagram Videos for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/simplified-avi-to-gif-editing-with-filmora-on-windows-and-macos-platforms/"><u>Simplified AVI to GIF Editing with Filmora on Windows & macOS Platforms</u></a></li>
+</ul></div>
+

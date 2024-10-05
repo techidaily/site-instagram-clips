@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] PicturePerfectionist  Expert Guide to IG Size Settings for 2024\""
-date: 2024-09-27T16:47:26.069Z
-updated: 2024-09-29T20:25:25.353Z
+date: 2024-09-28T01:25:10.590Z
+updated: 2024-10-05T05:30:56.204Z
 tags:
   - ai video
   - ai instagram
@@ -46,10 +46,10 @@ Duration of Videos on Instagram
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Best Image Sizes for Instagram Posts
@@ -61,10 +61,10 @@ A couple of years ago, Instagram has finally allowed its users to upload images 
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
@@ -92,10 +92,10 @@ The profile pictures on Instagram are tiny, and the optimum size for them is 160
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -113,14 +113,15 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-one-minute-mastery-of-fades/"><u>[New] 2024 Approved One-Minute Mastery of Fades</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-maximizing-4k-quality-selecting-between-projection-and-television-screens/"><u>[Updated] Maximizing 4K Quality Selecting Between Projection and Television Screens</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/comparing-magix-graphics-software-variants/"><u>Comparing MAGIX Graphics Software Variants</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-tecno-spark-10c-without-the-home-button-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Tecno Spark 10C Without the Home Button | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-insider-secrets-mastering-unseen-social-media-features/"><u>In 2024, Insider Secrets Mastering Unseen Social Media Features</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-insta-perfect-pivoting-mastering-video-angles-for-social-success/"><u>In 2024, Insta Perfect Pivoting Mastering Video Angles for Social Success</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-instagram-aesthetics-tips-for-video-reversal/"><u>In 2024, Instagram Aesthetics Tips for Video Reversal</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-instagram-perfection-on-ios-and-android-choose-the-top-8-schedulers/"><u>In 2024, Instagram Perfection on iOS & Android - Choose the Top 8 Schedulers</u></a></li>
-<li><a href="https://blog-min.techidaily.com/step-by-step-guide-transforming-mp4-videos-into-high-quality-wav-audio-files/"><u>Step-by-Step Guide: Transforming MP4 Videos Into High-Quality WAV Audio Files</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-ace-your-reel-rankings-by-following-leading-tiktok-strategies/"><u>[New] 2024 Approved Ace Your Reel Rankings by Following Leading TikTok Strategies</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-discover-15-superior-snap-strategies/"><u>[New] Discover 15 Superior Snap Strategies</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-10-ways-to-optimize-instagram-highlights-for-your-business/"><u>[New] In 2024, 10 Ways to Optimize Instagram Highlights for Your Business</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-10-recording-tips-for-recording-audio-with-high-quality/"><u>[Updated] 2024 Approved 10 Recording Tips for Recording Audio with High Quality</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-achieve-social-media-excellence-with-ios-and-androids-best-planners/"><u>[Updated] In 2024, Achieve Social Media Excellence with iOS & Android's Best Planners</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-vpna-to-fake-gps-location-on-infinix-note-30-5g-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use VPNa to Fake GPS Location On Infinix Note 30 5G | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/elevating-training-conversations-a-guide-to-perfecting-chatgpt-prompt-strategies/"><u>Elevating Training Conversations: A Guide to Perfecting ChatGPT Prompt Strategies</u></a></li>
+<li><a href="https://techidaily.com/the-easiest-methods-to-hard-reset-oneplus-nord-ce-3-5g-drfone-by-drfone-reset-android-reset-android/"><u>The Easiest Methods to Hard Reset OnePlus Nord CE 3 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/transform-your-iphone-footage-creating-and-editing-lengthened-visual-narratives/"><u>Transform Your iPhone Footage Creating & Editing Lengthened Visual Narratives</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/video-selfie-verification-on-instagram-helpful-or-hype-for-2024/"><u>Video Selfie Verification on Instagram - Helpful or Hype for 2024</u></a></li>
 </ul></div>
 

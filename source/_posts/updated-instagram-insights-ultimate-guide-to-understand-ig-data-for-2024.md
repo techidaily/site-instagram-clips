@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Instagram Insights  Ultimate Guide to Understand IG Data for 2024\""
-date: 2024-09-22T21:25:18.387Z
-updated: 2024-09-29T18:45:11.675Z
+date: 2024-09-29T22:39:42.262Z
+updated: 2024-10-05T02:02:35.958Z
 tags:
   - ai video
   - ai instagram
@@ -43,6 +43,13 @@ Insights from Instagram enables you to view your content, follower demographics 
 
 Here is how to access Instagram Insights –
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Access insights from business profile
 
 Impressions, profile visits, and reach can be visible with insights and can be tracked weekly. Followers’ most active time during the day, on your business profile can be traced to enhance your marketing campaign.
@@ -54,10 +61,23 @@ Impressions, profile visits, and reach can be visible with insights and can be t
 ![access insights from business](https://images.wondershare.com/filmora/article-images/access-instagram-insights-business.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<span id="1484963">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Access insights from post
@@ -66,26 +86,12 @@ On your business profile, click a post to view insights. A right tilted arrow on
 
 On a promoted post click ‘Original’ to view its Instagram Insights, and tap ‘Promotion’ for viewing insights.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Access insights from story
 
 Automatic chronological sorting of Stories helps to understand the pattern of content engagement. Instagram Insights expire after 14 days of posting Story. But the Story is active only for 24 hours.
 
 * Open ‘Stories’, and swipe up the post.
 * Click the vertical-bar icon and view your Story insights.
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: View Posts Data
 
@@ -110,6 +116,20 @@ The ‘Discovery’ section’s first statistics denotes percentage of non-follo
 **Others** – posts shared through DM, saved, mentioned, tagged, notifications from tagged/mentioned posts, and posts on ‘Following’ tab notifications
 
 ![view ig data from posts](https://images.wondershare.com/filmora/article-images/view-ig-data-from-posts.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Filtering post data based on metric, timeframe, and content type
 
@@ -139,13 +159,6 @@ Only ‘Stories’ after subscribing to a business account will be offered insig
 
 ## Part 4: Notes you should know
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### The difference between impressions and reach
 
 Impressions are a number of times a post has been viewed, whereas reach explains the unique views on your post. One account’s multiple views are taken as a single reach but multiple impressions.
@@ -156,13 +169,6 @@ A post can be a single video/photo or an album on Instagram. The Instagram Insig
 
 ## Part 5: Alternatives to Instagram insights
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1. [Keyhole](https://keyhole.co/instagram-analytics)
 
 Apart from Instagram Insights, you can look for a tool like Keyhole. Its Instagram analytics segment is fueled with optimization data, for determining how to create and when to share posts. It has engagement rate graphs, hashtag analytics, etc. You get to know the most interactive post and how it influences a post’s popularity.
@@ -170,16 +176,10 @@ Apart from Instagram Insights, you can look for a tool like Keyhole. Its Instagr
 ![keyhole](https://images.wondershare.com/filmora/article-images/keyhole.JPG)
 
 <!-- affiliate ads begin -->
-<span id="1983539">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2. [Squarelovin](https://squarelovin.com/business/home/instagram-insights/)
@@ -189,10 +189,10 @@ Squarelovin is an in-depth Instagram analytics tool that shows the metrics for r
 ![squarelovin](https://images.wondershare.com/filmora/article-images/squarelovin.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -218,20 +218,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-direct-to-your-library-simple-windows-and-mac-techniques-for-downloading-igtv/"><u>[New] Direct to Your Library Simple Windows & Mac Techniques for Downloading IGTV</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-elevating-your-brand-with-intriguing-instagram-puzzle-feeds/"><u>[New] Elevating Your Brand with Intriguing Instagram Puzzle Feeds</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-professional-steps-for-high-quality-powerpoint-replays/"><u>[New] Professional Steps for High-Quality PowerPoint Replays</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-quieting-mute-voices-on-obs-platforms/"><u>[New] Quieting Mute Voices on OBS Platforms</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-unlock-youtube-success-subscriber-boosts-at-a-bargain/"><u>[New] Unlock YouTube Success - Subscriber Boosts at a Bargain</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-complete-instruction-manual-for-telegram-desktop-for-2024/"><u>[Updated] Complete Instruction Manual for Telegram Desktop for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-decoding-visual-history-navigating-reverse-search-on-instagram/"><u>[Updated] Decoding Visual History Navigating Reverse Search on Instagram</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-dynamic-duo-combining-multiple-photos-for-impactful-stories/"><u>[Updated] Dynamic Duo Combining Multiple Photos for Impactful Stories</u></a></li>
-<li><a href="https://blog-min.techidaily.com/die-top-3-wege-um-dvds-effizient-als-avi-dateien-zu-konvertieren-im-jahr-2023/"><u>Die Top-3 Wege, Um DVDs Effizient Als AVI-Dateien Zu Konvertieren Im Jahr 2023</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/embellish-videos-and-stories-with-charts-notes-and-more-for-2024/"><u>Embellish Videos & Stories with Charts, Notes & More for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-expert-tag-analyzer-devices-for-popular-platforms-fbtwitterinsta/"><u>In 2024, Expert Tag Analyzer Devices for Popular Platforms (FB/Twitter/Insta)</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-can-samsung-galaxy-f54-5gmirror-share-to-pc-drfone-by-drfone-android/"><u>In 2024, How Can Samsung Galaxy F54 5GMirror Share to PC? | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/iphone-12-pro-icloud-activation-lock-bypass-by-drfone-ios/"><u>iPhone 12 Pro iCloud Activation Lock Bypass</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/understanding-imovie-video-trimming-for-2024/"><u>Understanding iMovie Video Trimming for 2024</u></a></li>
-<li><a href="https://win-blog.techidaily.com/why-cant-i-get-payday-2-running-on-my-computer-try-these-tips/"><u>Why Can't I Get Payday 2 Running on My Computer? Try These Tips</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-ideal-video-capture-apps-for-educators/"><u>[New] 2024 Approved Ideal Video Capture Apps for Educators</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-essential-10-capture-hardware-recommendations-for-online-videos/"><u>[New] In 2024, Essential 10 Capture Hardware Recommendations for Online Videos</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-perfect-your-morphvox-skills-a-complete-manual/"><u>[New] In 2024, Perfect Your MorphVOX Skills A Complete Manual</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-instagram-highlights-download-methods-and-creating-tips/"><u>[New] Instagram Highlights Download Methods and Creating Tips</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-speedy-audio-on-phone-ultimate-list-of-tools/"><u>[New] Speedy Audio on Phone Ultimate List of Tools</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-rhythmic-resonance-incor-written-by-assistant/"><u>[Updated] 2024 Approved Rhythmic Resonance Incor Written by Assistant</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-keeping-viewers-hooked-the-ultimate-guide-for-enhanced-audience-loyalty-on-youtube/"><u>[Updated] Keeping Viewers Hooked The Ultimate Guide for Enhanced Audience Loyalty on YouTube</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-avoidance-and-remedy-tackling-windows-10-photos-viewer-glitches/"><u>2024 Approved Avoidance and Remedy Tackling Windows 10 Photos Viewer Glitches</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-how-to-use-hashtags-on-instagram/"><u>2024 Approved How to Use Hashtags on Instagram</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/free-digital-signature-for-pdf-v10-document-by-ldigisigner-sign-a-pdf-sign-a-pdf/"><u>Free digital signature for PDF v1.0 document</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/harness-the-power-of-instagrams-hidden-features-for-2024/"><u>Harness the Power of Instagram's Hidden Features for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/how-to-add-captions-to-instagram-videos-for-2024/"><u>How to Add Captions to Instagram Videos for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/how-to-convert-your-instagram-followers-into-earnings-for-2024/"><u>How to Convert Your Instagram Followers Into Earnings for 2024</u></a></li>
 </ul></div>
 

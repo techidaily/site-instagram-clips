@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Optimal Insta Video Sizes - 2023 Guide for 2024\""
-date: 2024-09-23T22:05:41.012Z
-updated: 2024-09-29T19:32:38.877Z
+date: 2024-09-27T18:34:34.830Z
+updated: 2024-10-05T04:19:56.861Z
 tags:
   - ai video
   - ai instagram
@@ -46,6 +46,13 @@ Knowing Instagram’ supported file formats, sizes, resolutions and frame rates 
 
 Before getting into the nitty-gritty of this article, it is prudent to understand the meaning of the key words concerning Instagram. These include video frame rate, aspect ratio, resolution and Image Size.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Aspect Ratio, Image Size, Resolution and Video Frame Rate Explained
 
 **Aspect ratio**  refers to the ratio of the width of an image to height. To indicate the aspect ratio of an image we use ratios in the form of 1:1, 2:3 or 5:4 depending on the variants. Instagram aspect ratio of a vertical video is 9:16 while the horizontal ratio is 16:9.
@@ -58,31 +65,24 @@ Before getting into the nitty-gritty of this article, it is prudent to understan
 
 Since you can now interpret video dimensions and photo sizes like a pro, do you know the recommended video dimensions for Instagram for each format?
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Best Instagram Video Dimensions Specifications for a Post
 
 Even though MP4 is the only supported Instagram video format, you can set the videos different orientations and forms. The main orientations are square, landscape (horizontal) and Portrait (vertical).
 
 ![instagram video dimensions](https://images.wondershare.com/filmora/instagram-video-format.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Since Instagram is not limited to videos, you might be puzzling about the required dimensions for Instagram photos, stories, IGTV, live videos and other supported features like ads. Keep calm, and find all the Instagram dimensions and sizes right in here.
 
 Other than just uploading ordinary videos and sharing photos, you can also **tell a story on Instagram**  using videos and photos in a slideshow format. For business purposes, you can format Instagram stories to **create Instagram Carousel ads**  to use as an advert.
 
 To realize the real importance of Instagram, start using the **video ads feature** , uploading **IGTV videos**  and **streaming live videos** . As you explore all these features, remember to use the specified Max Instagram video dimensions in this article.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### #1 - Instagram Video Dimensions And Sizes
 
@@ -102,13 +102,6 @@ Since the launch of Instagram video sharing feature, square videos are the most 
 #### Instagram Horizontal Videos (Landscape)
 
 ![instagram video format](https://images.wondershare.com/filmora/instagram-horizontal-videos.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
-  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Even though recording Instagram videos in a landscape form is a lot much easier, the majority of Instagram enthusiasts despise. It is the least used orientation mostly because it occupies a small space and the quality appears distorted.
 
@@ -196,10 +189,10 @@ What is your Instagram profile picture size? It is your trademark! Therefore, it
 ![instagram story dimensions](https://images.wondershare.com/filmora/instagram-square-photo-size.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
-  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 As said earlier, your square photos should have an aspect ratio of 1:1\. To retain original photo qualities of, these are the right Instagram picture sizes to use:
@@ -213,6 +206,13 @@ This is how using extra small or larger photos than recommended affects quality.
 
 ![instagram story size](https://images.wondershare.com/filmora/instagram-portrait-photo-size.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 For images or photos whose height is naturally greater than width, the ideal Instagram photo format to use is portrait. To avoid cropping your photos, use the 4:5 aspect ratio. The photo dimension should not exceed 1080px by 1350px.
 
 Even though Instagram displays vertical photos at a maximum resolution of 480px by 600px or 960 X 1200, let your photo size 1080 X 1350\. Otherwise, the effects of enlargement and compression will occur.
@@ -220,19 +220,6 @@ Even though Instagram displays vertical photos at a maximum resolution of 480px 
 #### Instagram Landscape Photo Size
 
 ![instagram post size](https://images.wondershare.com/filmora/instagram-landscape-photo-size.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1983545">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 How many photos or pictures have you seen on Instagram with a border above and below it? They are countless.
 
@@ -255,6 +242,19 @@ They are easy-to-use video editors that you can directly upload and share on you
 It's free to use and click the below link to download now.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<span id="1982459">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Since you will probably use a mobile phone for Instagram than a computer, download the free mobile video editor – **[Filmora](https://tools.techidaily.com/wondershare/filmora/download/).** There is every effect, transition, filters, texts, and themes to make your Instagram live videos and photos cinematic.
 
@@ -285,18 +285,14 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-crafting-engaging-youtube-thumbnails-a-step-by-step-guide/"><u>[New] Crafting Engaging YouTube Thumbnails A Step-by-Step Guide</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-melody-matrix-tips-and-tricks-for-social-media-sounds/"><u>[New] In 2024, Melody Matrix Tips and Tricks for Social Media Sounds</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-navigating-instagrams-updated-feed-dynamics/"><u>[New] In 2024, Navigating Instagram’s Updated Feed Dynamics</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-mastering-the-art-of-finding-influential-voices-in-your-space-for-2024/"><u>[New] Mastering the Art of Finding Influential Voices in Your Space for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-mastering-multi-image-instagram-stories-a-step-by-step-tutorial/"><u>[Updated] 2024 Approved Mastering Multi-Image Instagram Stories A Step-by-Step Tutorial</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-mastering-the-edit-a-comprehensive-look-at-title-and-description-for-igtv/"><u>[Updated] 2024 Approved Mastering the Edit A Comprehensive Look at Title & Description for IGTV</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-in-2024-capture-emotion-not-just-photos-iphone-images-through-leading-lines/"><u>[Updated] In 2024, Capture Emotion, Not Just Photos IPhone Images Through Leading Lines</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-mastering-instagrams-music-stickers-integration/"><u>[Updated] In 2024, Mastering Instagram's Music Stickers Integration</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/easy-to-follow-steps-for-android-video-capture/"><u>Easy-to-Follow Steps for Android Video Capture</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-remove-google-frp-lock-on-motorola-by-drfone-android-unlock-remove-google-frp/"><u>How to remove Google FRP Lock on Motorola</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-apple-iphone-12-passcode-without-computer-by-drfone-ios/"><u>How to Unlock Apple iPhone 12 Passcode without Computer?</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-innovating-your-videos-first-impression-on-youtube/"><u>In 2024, Innovating Your Video's First Impression on YouTube</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-master-your-mobile-communications-skype-and-zoom-on-android/"><u>In 2024, Master Your Mobile Communications Skype & Zoom on Android</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-ascending-with-asmr-top-strategies-for-video-creation-for-2024/"><u>[New] Ascending with ASMR Top Strategies for Video Creation for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-step-by-step-throwing-epic-intros-with-imovie/"><u>[Updated] Step-by-Step Throwing Epic Intros with iMovie</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/agriculture-affinity-games-top-10-farmers-craft-for-comradeship/"><u>Agriculture Affinity Games Top 10 Farmer's Craft for Comradeship</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-vivo-y78-5g-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Vivo Y78 5G? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-can-i-use-a-fake-gps-without-mock-location-on-meizu-21-pro-drfone-by-drfone-virtual-android/"><u>How Can I Use a Fake GPS Without Mock Location On Meizu 21 Pro? | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/insta-video-backup-two-methods-for-seamless-access/"><u>Insta Video Backup Two Methods for Seamless Access</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/instagram-success-the-leading-25-tagging-tactics/"><u>Instagram Success The Leading 25 Tagging Tactics</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/legal-framework-of-instagram-tunes/"><u>Legal Framework of Instagram Tunes</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/maintaining-your-instagram-circle-health/"><u>Maintaining Your Instagram Circle Health</u></a></li>
 </ul></div>
 

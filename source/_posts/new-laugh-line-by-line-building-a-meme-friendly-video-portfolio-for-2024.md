@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Laugh Line by Line  Building a Meme-Friendly Video Portfolio for 2024\""
-date: 2024-08-26T13:05:53.945Z
-updated: 2024-08-27T13:05:53.945Z
+date: 2024-09-28T20:35:35.852Z
+updated: 2024-10-04T20:56:28.155Z
 tags:
   - ai video
   - ai instagram
@@ -36,6 +36,13 @@ thumbnail: https://thmb.techidaily.com/5a836c04a4d923a2e47e122afc97ffb5e93afa98d
 
  Before knowing how to make a video meme for Instagram/Facebook, how about understanding their specs on both the platforms and get the best out of it? It is of utmost importance to know the social media specs before venturing into video marketing in these platforms.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Facebook
 
  Videos on Facebook are virally consumed every year at a large scale. This is the reason online marketers emphasize more on the right Facebook video specs. On an [average 45% users at least consume one hour of video per week over Facebook or YouTube](https://www.wordstream.com/blog/ws/2017/03/08/video-marketing-statistics). The real challenge for business owners is, deciding the right type of videos to post! Depending the video format, the specs and dimensions differ which might confuse you.
@@ -58,9 +65,6 @@ thumbnail: https://thmb.techidaily.com/5a836c04a4d923a2e47e122afc97ffb5e93afa98d
 * Maximum word count is 2,200 characters but 90 characters is recommended for links.
 * Link description is 30 characters max with 25 characters long headline.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Instagram
 
  When it comes to Instagram, it has [71% of brands with it that reach to their audience](https://sproutsocial.com/insights/instagram-stats/). Due to the high visibility rate over the internet, brand-created Instagram videos are worth investing. It has three different video formats, such as landscape, vertical, and square. Mobile being an indispensable device nowadays, accessing social networking platforms has grown tremendously. This in turn made Instagram videos a big hit, though, organic reach is comparatively less.
@@ -71,14 +75,12 @@ thumbnail: https://thmb.techidaily.com/5a836c04a4d923a2e47e122afc97ffb5e93afa98d
 * Maximum caption and recommended are 2,200 and 125 characters respectively.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to make a video meme for Facebook and Instagram step by step
 
  Now, let’s see how to make a video meme for Instagram and Facebook. When you have [Filmora meme maker](https://tools.techidaily.com/wondershare/filmora/download/), you don’t have to worry about anything else. This online meme maker helps you make a video meme. It can also create GIF and image memes apart from video memes.
@@ -91,9 +93,6 @@ thumbnail: https://thmb.techidaily.com/5a836c04a4d923a2e47e122afc97ffb5e93afa98d
 
 ![import meme](https://images.wondershare.com/filmora/article-images/drag-memes-filmora-meme-maker.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Step 2**: Go to the meme editor page. Click the tools from left and customize the meme. The preview window shows the changes. Try playing with fonts and texts with funny content.
 
 **Tips**: Crafting quips can make your meme more popular on Facebook and Instagram.
@@ -101,32 +100,34 @@ thumbnail: https://thmb.techidaily.com/5a836c04a4d923a2e47e122afc97ffb5e93afa98d
 ![edit meme](https://images.wondershare.com/filmora/article-images/edit-memes-filmroa-meme-maker.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 **Step 3**: Finally, click ‘CREATE’ and let the changes take effect. Press the ‘DOWNLOAD’ button once you are happy with the changes. You can share now on your Facebook and Instagram accounts.
 
 ![export meme](https://images.wondershare.com/filmora/article-images/export-memes-filmora-meme-maker.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Bottom Line
 
  From the above article, we found that [Filmora online meme maker](https://tools.techidaily.com/wondershare/filmora/download/) is an intuitive and efficient tool to make a video meme for Instagram or Facebook. There is no other tool that can create meme videos, GIFs or images so easily. You don’t even need to download the software and occupy space on your computer, just go online and get it sorted.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
 
 Follow @Ollie Mattison
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -134,3 +135,25 @@ Follow @Ollie Mattison
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-leading-tag-tracker-software-on-major-platforms-like-fb-tweet-and-insta/"><u>[New] 2024 Approved Leading Tag Tracker Software on Major Platforms Like FB, Tweet & Insta</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-making-a-mark-on-instagram-strategies-for-securing-brand-funding-and-partnerships/"><u>[New] 2024 Approved Making a Mark on Instagram Strategies for Securing Brand Funding and Partnerships</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-editorelite-roundup-full-overview-of-androvid/"><u>[New] EditorElite Roundup – Full Overview of AndroVid</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-exploring-ajeys-youtube-revenue/"><u>[New] Exploring Ajey's YouTube Revenue</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-latest-instagram-photo-and-video-size-checklist/"><u>[New] In 2024, Latest Instagram Photo and Video Size Checklist</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-maintain-peaceful-posting-dismiss-ig-recommendations-for-2024/"><u>[New] Maintain Peaceful Posting Dismiss IG Recommendations for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-loop-lovers-guide-instagrams-best-for-repeat-viewers/"><u>[Updated] 2024 Approved Loop Lovers Guide Instagram's Best for Repeat Viewers</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-master-igtv-edits-top-10-tools-ranked/"><u>[Updated] 2024 Approved Master IGTV Edits Top 10 Tools Ranked</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-mastering-content-control-muting-followers/"><u>[Updated] 2024 Approved Mastering Content Control Muting Followers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-dish-on-titles-crafting-captivating-cookery-channel-names/"><u>[Updated] Dish on Titles Crafting Captivating Cookery Channel Names</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-methods-to-convert-instagram-video-to-mp3/"><u>[Updated] In 2024, Methods to Convert Instagram Video to Mp3</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-master-guide-to-finding-cheap-transcript-extractors-for-2024/"><u>[Updated] Master Guide to Finding Cheap Transcript Extractors for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-mastering-media-with-extraearsound/"><u>[Updated] Mastering Media with ExtraEarSound</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-deactivation-done-right-the-ultimate-instagram-guide/"><u>2024 Approved Deactivation Done Right The Ultimate Instagram Guide</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-oppo-k11x-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Oppo K11x | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Asus ROG Phone 7 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-itel-p55-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Itel P55</u></a></li>
+</ul></div>
+
