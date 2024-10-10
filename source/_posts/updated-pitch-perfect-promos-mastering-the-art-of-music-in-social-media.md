@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Pitch-Perfect Promos  Mastering the Art of Music in Social Media\""
-date: 2024-08-19T22:26:32.725Z
-updated: 2024-08-20T22:26:32.725Z
+date: 2024-10-09T16:04:15.882Z
+updated: 2024-10-10T16:39:34.754Z
 tags:
   - ai video
   - ai instagram
@@ -75,6 +75,13 @@ That’s it! In this way, you can learn how to add music to IG story and customi
 
 ![ Share Your IG Story](https://images.wondershare.com/filmora/article-images/share-your-ig-story.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Create Stunning IG Stories to Captivate Your Audience?
 
 You might already know how popular Instagram Stories have become in just a few years. The feature is used by over 500 million people and can be an excellent tool to reach out to your audience. Apart from learning how to put music on IG story, there are several other things that you can also do to make your stories more captivating and eye-catching.
@@ -85,11 +92,31 @@ Boomerangs are extremely popular in Instagram stories due to their quick yet int
 
 ![ Boomerangs & Layouts](https://images.wondershare.com/filmora/article-images/boomerangs-layouts.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Use inbuilt Instagram filters
 
 Instagram also keeps rotating different filters that we can add to our stories. You can explore them from the bottom panel and make your stories look visually appealing. There are tons of gradients and stickers here that you can explore and easily add to your story.
 
 ![ Inbuilt IG Filters](https://images.wondershare.com/filmora/article-images/inbuilt-ig-filters.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Add polls, challenges, countdowns, and more
 
@@ -111,13 +138,18 @@ There you go! Now when you know how to add music to IG Story, you can easily pos
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -125,6 +157,23 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-gaming-memories-made-easy-with-fraps/"><u>[New] Gaming Memories Made Easy with Fraps</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-simple-steps-to-record-your-youtube-streams/"><u>[New] In 2024, Simple Steps to Record Your YouTube Streams</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-instas-music-guide-essentials/"><u>[New] Insta's Music Guide Essentials</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-investing-in-your-instagram-presence-5-key-strategies-and-illustrated-outcomes/"><u>[New] Investing in Your Instagram Presence 5 Key Strategies and Illustrated Outcomes</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-top-fifa-matches-visualized-data-highlights/"><u>[Updated] In 2024, Top FIFA Matches Visualized Data Highlights</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-insights-on-gopro-hero5-adventure-series/"><u>[Updated] Insights on GoPro Hero5 Adventure Series</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/audiovisual-synchronization-your-path-to-perfect-fb-videos-for-2024/"><u>Audiovisual Synchronization Your Path to Perfect FB Videos for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/effortlessly-linking-an-external-device-for-enhanced-play/"><u>Effortlessly Linking an External Device for Enhanced Play</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-instagram-tv-deactivation-made-easy/"><u>In 2024, Instagram TV Deactivation Made Easy</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-masterclass-syncing-your-social-media-with-urls/"><u>In 2024, Masterclass Syncing Your Social Media with URLs</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-mastering-photo-retouch-erase-backgrounds-effectively/"><u>In 2024, Mastering Photo Retouch Erase Backgrounds Effectively</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/instagram-stardom-in-your-sights-6-must-try-techniques-for-verification-and-growth-for-2024/"><u>Instagram Stardom in Your Sights 6 Must-Try Techniques for Verification and Growth for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/leading-talents-premier-instragram-hlv-creators-for-2024/"><u>Leading Talents Premier Instragram HLV Creators for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-mavericks-movie-maker-how-to-create-stunning-videos/"><u>New 2024 Approved Mavericks Movie Maker How to Create Stunning Videos</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/overcoming-missing-file-issues-with-d3dx9novaluedll-fixes/"><u>Overcoming 'Missing File' Issues with d3dx9_novalue.dll Fixes</u></a></li>
+</ul></div>
+

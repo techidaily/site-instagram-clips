@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Upload Horizontal Videos to IGTV [3 Ways]"
-date: 2024-08-19T22:23:26.745Z
-updated: 2024-08-20T22:23:26.745Z
+date: 2024-10-03T16:53:23.370Z
+updated: 2024-10-10T16:19:13.870Z
 tags:
   - ai video
   - ai instagram
@@ -40,18 +40,33 @@ Even though you can now share videos that last up to ten minutes or an entire ho
 [What is IGTV and How to Use It: Everything You Need to Know>>](https://tools.techidaily.com/wondershare/filmora/download/)
 [How to Download/Save Instagram Photos/Videos on iPhone>>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Save Instagram photos/videos on iPhone
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to Upload a Landscape Video to IGTV from a Mac or a PC computer?
 
 If you already have an Instagram account, you can upload your videos to IGTV directly from your computer. All you have to do is head over to **Instagram.com** and then click on the **IGTV icon** on your profile page. This means that you can use Mac and PC-based video editing software products to edit your videos before you share them on IGTV.
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Using Filmora Video Editor to Edit IGTV Videos
 
 If you decide to edit the videos you want to upload to IGTV on a Mac or a PC computer, then we suggest using the Filmora video editor, because it offers all the tools you’re going to need to create a landscape video you can share on your IGTV channel.
@@ -60,9 +75,6 @@ Check out our video guide about how to edit videos for Instagram.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Here is the process in word format in case you don't have time to check the video.
 
 **Create a new project**, and then when the new project loads head over the **File menu** and choose the **Project Settings** option. Click on the **Resolution drop-down menu** and then select the **720x1280 (9:16)** option. Make sure to change **the Frame Rate to 30FPS** and click **OK** to confirm the changes you made.
@@ -77,9 +89,6 @@ Optionally, you can **take a snapshot of your video** by clicking on the **Photo
 
 Once your video is exported from Filmora, you should go to Instagram.com, click on the IGTV icon on your profile page and upload the horizontal video to your IGTV channel.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
-<!-- affiliate ads end -->
 ## Using the Instagram App to Upload Horizontal Videos to IGTV from Smartphones
 
 In case you’d just like to post a video to your IGTV channel, you can use the Instagram app to quickly create a horizontally oriented video. **The stories editor** enables you to accomplish this, but you should keep in mind that this solution only works if the duration of a video doesn’t exceed the **15-second limit**.
@@ -90,9 +99,6 @@ After you’ve selected the video you’ll be able to see **two arrows on the sc
 
 Tap on the **Save icon** to confirm the changes and proceed to upload the video to your IGTV channel.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Creating a Horizontal Video from a Mobile Device with GoPro Splice
 
 iPhone users can easily create landscape videos for their IGTV channels with GoPro’s [Splice](https://itunes.apple.com/us/app/splice-video-editor-maker/id409838725?mt=8) app. You can **download the app for free from the App Store** and you won’t have to make any in-app purchases after you install Splice on your device.
@@ -108,15 +114,17 @@ None of the options for creating vertical videos for IGTV are perfect because ea
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -124,3 +132,27 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-resources.techidaily.com/new-crafting-professional-edits-including-sounds-in-premiere-projects/"><u>[New] Crafting Professional Edits Including Sounds in Premiere Projects</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-no-wi-fi-no-worries-discover-the-best-offline-gaming-on-android-for-2024/"><u>[New] No Wi-Fi, No Worries! Discover the Best Offline Gaming on Android for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unveiling-techniques-for-targeted-youtube-video-download-for-2024/"><u>[Updated] Unveiling Techniques for Targeted YouTube Video Download for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-aplus-craftsmen-outstanding-instagram-highlight-pages/"><u>2024 Approved A+ Craftsmen Outstanding Instagram Highlight Pages</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-perfect-playtime-footage-with-nvidia/"><u>2024 Approved Perfect Playtime Footage with NVIDIA</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-scheduling-zoom-on-android-a-step-by-step-approach/"><u>2024 Approved Scheduling Zoom on Android A Step-by-Step Approach</u></a></li>
+<li><a href="https://article-helps.techidaily.com/concluding-your-digital-footprint-with-linkedins-deactivation-process-for-2024/"><u>Concluding Your Digital Footprint with LinkedIn's Deactivation Process for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/fixing-the-screen-tic-tac-chrome-flickering-solutions-exclusively-for-windows-users/"><u>Fixing the Screen Tic-Tac: Chrome Flickering Solutions Exclusively for Windows Users</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/igtv-techniques-seamlessly-transforming-vlogs-for-maximum-views/"><u>IGTV Techniques Seamlessly Transforming Vlogs for Maximum Views</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-effortless-harmony-creating-engaging-and-organized-youtube-playlists/"><u>In 2024, Effortless Harmony Creating Engaging and Organized YouTube Playlists</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/insta-a-lister-secrets-unveiling-the-fastest-way-to-fame-with-our-expert-guide/"><u>Insta A-Lister Secrets Unveiling the Fastest Way to Fame with Our Expert Guide</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/instawisdom-100-powerful-caption-examples-for-self-expression/"><u>InstaWisdom 100 Powerful Caption Examples for Self-Expression</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/latest-instagram-photo-and-video-size-checklist/"><u>Latest Instagram Photo and Video Size Checklist</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/mastering-instagram-maximizing-post-engagement/"><u>Mastering Instagram Maximizing Post Engagement</u></a></li>
+<li><a href="https://windows11.techidaily.com/mastering-lan-world-play-in-windows-mc-game/"><u>Mastering LAN World Play in Windows MC Game</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/mastering-multimedia-posts-multiphotograph-and-video-uploads-on-instagram/"><u>Mastering Multimedia Posts Multiphotograph & Video Uploads on Instagram</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-your-contacts-after-s17t-has-been-deleted-by-fonelab-android-recover-contacts/"><u>Recover your contacts after S17t has been deleted.</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/strategize-execute-inspire-the-ultimate-guide-to-instagram-marketing/"><u>Strategize, Execute, Inspire The Ultimate Guide to Instagram Marketing</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/the-smart-approach-for-posting-igtv-on-your-story/"><u>The Smart Approach for Posting IGTV on Your Story</u></a></li>
+</ul></div>
+

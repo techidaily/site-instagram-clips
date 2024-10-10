@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] FrameFinesse  A Detailed Guide on IG Image Dimensions\""
-date: 2024-09-30T02:21:05.652Z
-updated: 2024-10-04T21:00:19.903Z
+date: 2024-10-06T17:04:11.796Z
+updated: 2024-10-10T16:15:15.513Z
 tags:
   - ai video
   - ai instagram
@@ -46,10 +46,16 @@ Duration of Videos on Instagram
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Best Image Sizes for Instagram Posts
@@ -61,10 +67,10 @@ A couple of years ago, Instagram has finally allowed its users to upload images 
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
@@ -92,10 +98,10 @@ The profile pictures on Instagram are tiny, and the optimum size for them is 160
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -113,20 +119,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-imageinstinct-a-compreehensive-guide-for-instagram-size-control/"><u>[New] ImageInstinct A Compreehensive Guide for Instagram Size Control</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-impressive-image-sequence-on-instagram/"><u>[New] Impressive Image Sequence on Instagram</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-audience-alchemy-converting-shorts-to-sensations/"><u>[New] In 2024, Audience Alchemy Converting Shorts to Sensations</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-backwards-play-mastering-youtube-video-reversals/"><u>[Updated] 2024 Approved Backwards Play Mastering YouTube Video Reversals</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-implementing-real-time-transcriptions-in-reels-and-stories/"><u>[Updated] Implementing Real-Time Transcriptions in Reels and Stories</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-vimeo-explained-a-streaming-media-service-for-2024/"><u>[Updated] Vimeo Explained A Streaming Media Service for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-from-game-to-giga-full-ps4-capture-using-obs/"><u>2024 Approved From Game to Giga Full PS4 Capture Using OBS</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-innovative-approaches-to-customize-your-igtv-content-size/"><u>2024 Approved Innovative Approaches to Customize Your IGTV Content Size</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-instagram-make-videos-play-swiftly/"><u>2024 Approved Instagram Make Videos Play Swiftly</u></a></li>
-<li><a href="https://article-helps.techidaily.com/best-youtube-title-generator/"><u>Best YouTube Title Generator</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fix-tecno-spark-20-proplus-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Tecno Spark 20 Pro+ Find My Friends No Location Found? | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-imageryinfluence-mastering-size-settings-on-instagram/"><u>In 2024, ImageryInfluence Mastering Size Settings on Instagram</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-instagram-perfection-sizing-your-video-just-right/"><u>In 2024, Instagram Perfection Sizing Your Video Just Right</u></a></li>
-<li><a href="https://win11.techidaily.com/unveiling-solutions-to-incorrect-games-detection-on-discord-windows/"><u>Unveiling Solutions to Incorrect Games Detection on Discord Windows</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/your-compreran-guide-to-creating-viral-ad-videos-for-free-for-2024/"><u>Your Compreran Guide to Creating Viral Ad Videos for Free for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-nailing-the-perfect-shot-advanced-strategies-for-instagram-video-editing/"><u>[New] 2024 Approved Nailing the Perfect Shot Advanced Strategies for Instagram Video Editing</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-how-to-record-tv-shows-on-windows-with-free-video-recording-software-in-2024/"><u>[New] How to Record TV Shows on Windows with Free Video Recording Software, In 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-ultimate-list-of-livestream-streaming-strategies/"><u>[New] The Ultimate List of Livestream Streaming Strategies</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-maximize-engagement-auto-resized-videos-from-mac-for-instagram/"><u>[Updated] 2024 Approved Maximize Engagement Auto-Resized Videos From Mac for Instagram</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-mastering-instagram-videos-size-and-format-tips/"><u>[Updated] In 2024, Mastering Instagram Videos Size and Format Tips</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-maximize-engagement-crafting-vids-with-3-powerful-descriptors-on-insta/"><u>[Updated] In 2024, Maximize Engagement Crafting Vids with 3 Powerful Descriptors on Insta</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-mastering-instagram-success-harness-the-power-of-ig-data-for-2024/"><u>[Updated] Mastering Instagram Success Harness the Power of IG Data for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-maximizing-igtv-impact-effective-tips-for-vertical-video-conversion-for-2024/"><u>[Updated] Maximizing IGTV Impact Effective Tips for Vertical Video Conversion for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/4-most-known-ways-to-find-someone-on-tinder-for-honor-magic-6-pro-by-name-drfone-by-drfone-virtual-android/"><u>4 Most-Known Ways to Find Someone on Tinder For Honor Magic 6 Pro by Name | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/cnet-reviews-navigating-through-the-features-of-netgears-c3000-router-vintage-or-value/"><u>CNET Reviews: Navigating Through the Features of Netgear's C3000 Router - Vintage or Value?</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-make-the-most-of-your-apple-iphone-14-lock-screen-with-notifications-by-drfone-ios/"><u>How to Make the Most of Your Apple iPhone 14 Lock Screen with Notifications?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-oppo-find-x7-ultra-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Oppo Find X7 Ultra to Laptop Without USB | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/solve-your-winerror-effective-fixes-for-script-issues/"><u>Solve Your WinError: Effective Fixes for Script Issues</u></a></li>
 </ul></div>
 

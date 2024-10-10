@@ -1,7 +1,7 @@
 ---
 title: "\"Step-by-Step  Adding a Flurry of Images & Videos to Your IG Story for 2024\""
-date: 2024-08-19T22:26:25.823Z
-updated: 2024-08-20T22:26:25.823Z
+date: 2024-10-05T16:34:09.881Z
+updated: 2024-10-10T17:00:01.902Z
 tags:
   - ai video
   - ai instagram
@@ -41,9 +41,23 @@ thumbnail: https://thmb.techidaily.com/545eb30532b146292d910492a3de0882f942d02de
 
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * As soon as you tap it, you will be able to see the recent photos and videos in your phone. Tap and hold, on any of the preferred image or video which you wish to upload, until you sense a slight vibration. Now, you have enabled the 'Select Multiple', scroll through the gallery and select rest 9 photos or videos that you wish to upload.
 
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-2.png)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Alternatively, if you have upgraded your Instagram app, you can simply tap the 'Select Multiple' option, represented by an icon of 'stacked squares', and select up to 10 photos/videos.
 
@@ -59,33 +73,39 @@ thumbnail: https://thmb.techidaily.com/545eb30532b146292d910492a3de0882f942d02de
 
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-4.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * The next screen lets you caption your post, 'Add Location' and 'Tag people'. To tag people on individual photos, tap 'Tag People' and scroll through the slideshow to tag your friends in the images of your choice.
 
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-5.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Lastly, hit on 'Share' to publish your post with multiple photos/videos in it.
 
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-6.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Conclusion
 
  Coming towards the end of today's post, we now hope that you have full understanding with this new feature of Instagram that enables you to share memories of a single event by uploading multiple photos and videos in a single post and that too, without having to clog up the entire feed. Set your creative soul free and utilize the Carousel feature the way you want and deepen your follower's engagement.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -93,3 +113,21 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-erasing-extra-borders-for-smooth-youtube-playback-for-2024/"><u>[New] Erasing Extra Borders for Smooth YouTube Playback for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-boost-engagement-with-clearly-marked-time-points-for-2024/"><u>[Updated] Boost Engagement with Clearly Marked Time Points for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-mastering-instagram-videos-direct-and-alternative-saves/"><u>[Updated] In 2024, Mastering Instagram Videos Direct & Alternative Saves</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-subtle-reduction-of-volume-in-fl-studio/"><u>[Updated] Subtle Reduction of Volume in FL Studio</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-the-ultimate-toolbox-for-unraveling-instagrams-hidden-data/"><u>[Updated] The Ultimate Toolbox for Unraveling Instagram's Hidden Data</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-top-10-igtv-edit-apps-maximize-your-video-content/"><u>[Updated] Top 10 IGTV Edit Apps Maximize Your Video Content</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-uncomplicated-techniques-for-adding-igtv-to-your-story/"><u>2024 Approved Uncomplicated Techniques for Adding IGTV to Your Story</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ng-the-blues-of-overly-green-a-mac-video-editors-handbook/"><u>Beating the Blues of Overly Green A Mac Video Editor's Handbook</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-go-big-or-go-home-selecting-the-most-satisfying-1tbplus-cloud-services/"><u>In 2024, Go Big or Go Home - Selecting the Most Satisfying 1TB+ Cloud Services</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-fix-oem-unlock-missing-on-oppo-a1-5g-by-drfone-android/"><u>In 2024, How To Fix OEM Unlock Missing on Oppo A1 5G?</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-transform-your-content-expert-tips-for-bokeh-on-social-media/"><u>In 2024, Transform Your Content Expert Tips for Bokeh on Social Media</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-fake-gps-location-pro-and-is-it-good-on-samsung-galaxy-a14-4g-drfone-by-drfone-virtual-android/"><u>In 2024, What is Fake GPS Location Pro and Is It Good On Samsung Galaxy A14 4G? | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/top-10-apps-to-excitingly-edit-horizontal-and-vertical-igtv-for-2024/"><u>Top 10 Apps to Excitingly Edit Horizontal and Vertical IGTV for 2024</u></a></li>
+</ul></div>
+
