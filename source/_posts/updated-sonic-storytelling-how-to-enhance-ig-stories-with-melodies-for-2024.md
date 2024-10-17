@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Sonic Storytelling  How to Enhance IG Stories with Melodies for 2024\""
-date: 2024-08-19T22:20:54.651Z
-updated: 2024-08-20T22:20:54.651Z
+date: 2024-10-15T23:00:52.533Z
+updated: 2024-10-16T22:18:31.881Z
 tags:
   - ai video
   - ai instagram
@@ -85,6 +85,13 @@ Boomerangs are extremely popular in Instagram stories due to their quick yet int
 
 ![ Boomerangs & Layouts](https://images.wondershare.com/filmora/article-images/boomerangs-layouts.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Use inbuilt Instagram filters
 
 Instagram also keeps rotating different filters that we can add to our stories. You can explore them from the bottom panel and make your stories look visually appealing. There are tons of gradients and stickers here that you can explore and easily add to your story.
@@ -97,6 +104,13 @@ Apart from adding music, Instagram also lets us add tons of other things to our 
 
 ![ Add Polls and More](https://images.wondershare.com/filmora/article-images/add-polls-challenges.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Ask questions to interact with your audience
 
 Polls and Questions are some of the best ways to increase interaction in your story. Just tap on the “Questions” option and type what you wish to ask your viewers (or vice versa). If you are a brand, then you can even ask for feedback from your audience as well. You can later share their answers as your story by tagging the user.
@@ -107,9 +121,23 @@ If you plan to add video content to your Instagram stories, then consider using 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 There you go! Now when you know how to add music to IG Story, you can easily post impressive content on your Instagram profile. For your convenience, I have come up with a stepwise guide on how to put music on IG story that you can easily follow. Besides that, I have also listed some expert tips that you can implement to post visually stunning stories. Go ahead and try these tips and share this guide with your friends to help them add music to IG story as well.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -117,14 +145,29 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-flipping-through-frames-instagrams-video-reversal-wizardry/"><u>[New] 2024 Approved Flipping Through Frames Instagram's Video Reversal Wizardry</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-frame-your-photos-right-a-guide-to-top-notch-edges-in-instagram-for-2024/"><u>[New] Frame Your Photos Right A Guide to Top-Notch Edges in Instagram for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-fast-forwarding-instagram-videos-efficiently/"><u>[Updated] 2024 Approved Fast-Forwarding Instagram Videos Efficiently</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-diving-deep-into-the-world-of-igtv-a-comprehensive-guide-for-2024/"><u>[Updated] Diving Deep Into the World of IGTV A Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-elevate-your-feed-quality-with-these-tags-for-2024/"><u>[Updated] Elevate Your Feed Quality with These Tags for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-enhance-post-impact-auto-adjusting-videos-for-instagram-on-mac-for-2024/"><u>[Updated] Enhance Post Impact Auto-Adjusting Videos for Instagram on Mac for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-elevate-video-storytelling-adding-music-to-instareels/"><u>[Updated] In 2024, Elevate Video Storytelling Adding Music to InstaReels</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-itop-insider-review-top-notch-screencast-software-compared-for-2024/"><u>[Updated] ITop Insider Review Top-Notch Screencast Software Compared for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-motionmaster-win8-version/"><u>[Updated] MotionMaster Win8 Version</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-innovations-in-portraying-chrono-displacement-on-screen/"><u>2024 Approved Innovations in Portraying Chrono-Displacement on Screen</u></a></li>
+<li><a href="https://review-topics.techidaily.com/does-itel-a70-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Itel A70 Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://win-lab.techidaily.com/expert-review-navigating-the-future-with-comfort-leading-office-chairs-unveiled/"><u>Expert Review: Navigating the Future with Comfort - Leading Office Chairs Unveiled</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-vivo-s17e-drfone-by-drfone-virtual-android/"><u>In 2024, How To Pause Life360 Location Sharing For Vivo S17e | Dr.fone</u></a></li>
+<li><a href="https://win-exceptional.techidaily.com/the-ultimate-selection-of-free-dvd-ripping-software-a-comparison-guide/"><u>The Ultimate Selection of FREE DVD Ripping Software: A Comparison Guide</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/unstick-your-speakers-how-to-eliminate-stuttering-and-distorted-sounds-on-pcs-with-windows-os/"><u>Unstick Your Speakers! How to Eliminate Stuttering and Distorted Sounds on PCs with Windows OS</u></a></li>
+</ul></div>
+

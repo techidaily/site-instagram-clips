@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Enhancing IGTV with Translation Captions\""
-date: 2024-08-19T22:18:34.674Z
-updated: 2024-08-20T22:18:34.674Z
+date: 2024-10-15T16:22:38.759Z
+updated: 2024-10-16T18:39:10.671Z
 tags:
   - ai video
   - ai instagram
@@ -63,13 +63,24 @@ Adding subtitles to a video can be a painstakingly long process if you’re work
 
 Once you’re done adding the subtitles you should click on the **Photo Camera icon** to take a snapshot of the video, you can use as a **cover photo for your IGTV video**. Export the video and proceed to upload it to IGTV from your web browser or from your phone.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Add Text to IGTV Videos with the Quik App For iOS and Android Devices
 
 In case you like editing IGTV videos from your phone, you can try adding subtitles to your IGTV videos with the Quik app. After you’ve completed all other video editing tasks, you should tap on the **Text icon** and type in the text you’d like to add to the video. Hit the **OK button** after you’ve added the text and that’s it you’ve successfully created the subtitles for your IGTV video. How long the process of creating hardcoded subtitles is going to last depends on the duration of the video and the amount of narration or dialogue in the video.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Tips for Adding Subtitles to IGTV Videos
 
 While adding text to your IGTV you must **pay close attention that the text is clearly visible on the screen** and that the app’s interface isn’t going to cover it once you upload the video to IGTV. Furthermore, **the text color** should match the background so that the viewers can easily read everything that is displayed on the screen**. Avoid placing the text too close to the edges of the frame,** since different phone models have slightly different aspect ratios. As a consequence, your IGTV videos are going to be **cropped**, and parts of the subtitles can be rendered invisible to the audience. That’s why you have to **position the text within the frame carefully** and do your best to overcome the technical limitations imposed by the IGTV platform.
@@ -81,15 +92,17 @@ Even though adding subtitles to videos can require a lot of precision and attent
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -97,3 +110,24 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-foundational-framework-engaging-in-instagram-video-talk/"><u>[New] 2024 Approved Foundational Framework Engaging in Instagram Video Talk</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-breaking-into-twitter-live-your-strategy-for-2024/"><u>[New] Breaking Into Twitter Live Your Strategy for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-essential-hash-monitors-for-facebook-twitter-instagram-for-2024/"><u>[New] Essential Hash Monitors for Facebook, Twitter, Instagram for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-from-blurry-edges-to-squared-perfection-the-imovie-guide-for-instagram-videos-for-2024/"><u>[New] From Blurry Edges to Squared Perfection The iMovie Guide for Instagram Videos for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-foster-conversations-via-thoughtful-instagram-quiz-style-lives/"><u>[New] In 2024, Foster Conversations via Thoughtful Instagram Quiz-Style Lives</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-crafting-conversational-mastery-step-by-step-guide-to-free-voice-modification-tools/"><u>[Updated] 2024 Approved Crafting Conversational Mastery Step-by-Step Guide to Free Voice Modification Tools</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-exploring-the-difference-between-ig-reels-and-stories/"><u>[Updated] 2024 Approved Exploring the Difference Between IG Reels & Stories</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-essential-strategies-for-uploading-to-instagram-tv/"><u>[Updated] In 2024, Essential Strategies for Uploading to Instagram TV</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-evaluating-igtv-video-impact-effectively/"><u>[Updated] In 2024, Evaluating IGTV Video Impact Effectively</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-mastering-fb-story-sharing-a-four-step-guide/"><u>2024 Approved Mastering FB Story Sharing A Four-Step Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-stream-to-success-obs-youtube-broadcast-basics/"><u>2024 Approved Stream to Success OBS Youtube Broadcast Basics</u></a></li>
+<li><a href="https://win-data.techidaily.com/1728480430716-win11/"><u>謎樣Win11通話失去？緊急修復指南正式亮相！</u></a></li>
+<li><a href="https://some-tips.techidaily.com/guia-paso-a-paso-para-cargar-videos-en-tiktok-desde-una-computadora/"><u>Guía Paso a Paso Para Cargar Vídeos en TikTok Desde Una Computadora</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/overcoming-windows-11-update-error-0x80240034-tips-and-solutions-for-a-smooth-upgrade/"><u>Overcoming Window's 11 Update Error (0X80240034) – Tips and Solutions for a Smooth Upgrade</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/top-4-desired-upgrades-for-the-next-generation-gpt-5-model/"><u>Top 4 Desired Upgrades for the Next Generation GPT-5 Model</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/unlocking-hidden-memories-a-comprehensive-tutorial-for-restoring-accidentally-deleted-photos/"><u>Unlocking Hidden Memories: A Comprehensive Tutorial for Restoring Accidentally Deleted Photos</u></a></li>
+</ul></div>
+

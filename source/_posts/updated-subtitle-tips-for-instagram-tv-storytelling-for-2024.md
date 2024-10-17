@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Subtitle Tips for Instagram TV Storytelling for 2024"
-date: 2024-08-19T22:20:45.018Z
-updated: 2024-08-20T22:20:45.018Z
+date: 2024-10-12T19:05:27.025Z
+updated: 2024-10-16T23:07:40.741Z
 tags:
   - ai video
   - ai instagram
@@ -63,13 +63,24 @@ Adding subtitles to a video can be a painstakingly long process if you’re work
 
 Once you’re done adding the subtitles you should click on the **Photo Camera icon** to take a snapshot of the video, you can use as a **cover photo for your IGTV video**. Export the video and proceed to upload it to IGTV from your web browser or from your phone.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Add Text to IGTV Videos with the Quik App For iOS and Android Devices
 
 In case you like editing IGTV videos from your phone, you can try adding subtitles to your IGTV videos with the Quik app. After you’ve completed all other video editing tasks, you should tap on the **Text icon** and type in the text you’d like to add to the video. Hit the **OK button** after you’ve added the text and that’s it you’ve successfully created the subtitles for your IGTV video. How long the process of creating hardcoded subtitles is going to last depends on the duration of the video and the amount of narration or dialogue in the video.
 
 <!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Tips for Adding Subtitles to IGTV Videos
 
 While adding text to your IGTV you must **pay close attention that the text is clearly visible on the screen** and that the app’s interface isn’t going to cover it once you upload the video to IGTV. Furthermore, **the text color** should match the background so that the viewers can easily read everything that is displayed on the screen**. Avoid placing the text too close to the edges of the frame,** since different phone models have slightly different aspect ratios. As a consequence, your IGTV videos are going to be **cropped**, and parts of the subtitles can be rendered invisible to the audience. That’s why you have to **position the text within the frame carefully** and do your best to overcome the technical limitations imposed by the IGTV platform.
@@ -81,15 +92,17 @@ Even though adding subtitles to videos can require a lot of precision and attent
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -97,3 +110,19 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://win-able.techidaily.com/the-witcher-3-expert-tips-for-preventing-game-crashes-on-pc-systems/"><u>'The Witcher 3': Expert Tips for Preventing Game Crashes on PC Systems</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-optimizing-engagement-how-to-block-on-insta/"><u>[New] In 2024, Optimizing Engagement How to Block on Insta</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-navigating-instagrams-video-talk-essentials-for-2024/"><u>[New] Navigating Instagram's Video Talk Essentials for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-mastering-slow-motion-photography-techniques-for-instagram-posts/"><u>[Updated] 2024 Approved Mastering Slow Motion Photography Techniques for Instagram Posts</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-best-6-mac-video-snaggers-compiled-here-for-2024/"><u>[Updated] Best 6 Mac Video Snaggers Compiled Here for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-myth-busting-realities-of-instagram-story-followers/"><u>[Updated] In 2024, Myth-Busting Realities of Instagram Story Followers</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-navigating-the-social-media-seas-to-boost-follower-count/"><u>[Updated] In 2024, Navigating the Social Media Seas to Boost Follower Count</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-navigating-instagrams-search-function-a-pathway-to-complimentary-filters/"><u>[Updated] Navigating Instagram's Search Function A Pathway to Complimentary Filters</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-floating-frames-the-ultimate-guide-to-pip-with-netflix/"><u>2024 Approved Floating Frames The Ultimate Guide to PIP with Netflix</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-top-trending-ig-filters-ranked/"><u>2024 Approved Top Trending IG Filters Ranked</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-stream-apple-iphone-13-mini-to-computer-drfone-by-drfone-ios/"><u>How to Stream Apple iPhone 13 mini to Computer? | Dr.fone</u></a></li>
+</ul></div>
+

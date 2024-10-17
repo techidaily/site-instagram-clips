@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] FrameFinesse  A Detailed Guide on IG Image Dimensions\""
-date: 2024-10-06T17:04:11.796Z
-updated: 2024-10-10T16:15:15.513Z
+date: 2024-10-15T22:56:54.492Z
+updated: 2024-10-16T18:48:10.114Z
 tags:
   - ai video
   - ai instagram
@@ -46,16 +46,10 @@ Duration of Videos on Instagram
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
 <!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Best Image Sizes for Instagram Posts
@@ -67,10 +61,10 @@ A couple of years ago, Instagram has finally allowed its users to upload images 
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
@@ -98,10 +92,16 @@ The profile pictures on Instagram are tiny, and the optimum size for them is 160
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -119,18 +119,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-nailing-the-perfect-shot-advanced-strategies-for-instagram-video-editing/"><u>[New] 2024 Approved Nailing the Perfect Shot Advanced Strategies for Instagram Video Editing</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-how-to-record-tv-shows-on-windows-with-free-video-recording-software-in-2024/"><u>[New] How to Record TV Shows on Windows with Free Video Recording Software, In 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-the-ultimate-list-of-livestream-streaming-strategies/"><u>[New] The Ultimate List of Livestream Streaming Strategies</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-maximize-engagement-auto-resized-videos-from-mac-for-instagram/"><u>[Updated] 2024 Approved Maximize Engagement Auto-Resized Videos From Mac for Instagram</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-mastering-instagram-videos-size-and-format-tips/"><u>[Updated] In 2024, Mastering Instagram Videos Size and Format Tips</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-maximize-engagement-crafting-vids-with-3-powerful-descriptors-on-insta/"><u>[Updated] In 2024, Maximize Engagement Crafting Vids with 3 Powerful Descriptors on Insta</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-mastering-instagram-success-harness-the-power-of-ig-data-for-2024/"><u>[Updated] Mastering Instagram Success Harness the Power of IG Data for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-maximizing-igtv-impact-effective-tips-for-vertical-video-conversion-for-2024/"><u>[Updated] Maximizing IGTV Impact Effective Tips for Vertical Video Conversion for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/4-most-known-ways-to-find-someone-on-tinder-for-honor-magic-6-pro-by-name-drfone-by-drfone-virtual-android/"><u>4 Most-Known Ways to Find Someone on Tinder For Honor Magic 6 Pro by Name | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/cnet-reviews-navigating-through-the-features-of-netgears-c3000-router-vintage-or-value/"><u>CNET Reviews: Navigating Through the Features of Netgear's C3000 Router - Vintage or Value?</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-make-the-most-of-your-apple-iphone-14-lock-screen-with-notifications-by-drfone-ios/"><u>How to Make the Most of Your Apple iPhone 14 Lock Screen with Notifications?</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-oppo-find-x7-ultra-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Oppo Find X7 Ultra to Laptop Without USB | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/solve-your-winerror-effective-fixes-for-script-issues/"><u>Solve Your WinError: Effective Fixes for Script Issues</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-how-to-get-instagram-sponsorship-for-making-money/"><u>[New] How to Get Instagram Sponsorship for Making Money</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-instagram-how-to-watch-videos-quickly-and-smoothly/"><u>[New] Instagram How to Watch Videos Quickly & Smoothly</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-dissecting-hero5-camera-footage/"><u>[Updated] In 2024, Dissecting Hero5 Camera Footage</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-instagram-craftsmanship-incorporating-descriptive-texts/"><u>[Updated] Instagram Craftsmanship Incorporating Descriptive Texts</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-instagram-tv-off-a-step-by-step-guide/"><u>[Updated] Instagram TV Off A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-your-gateway-to-success-with-a-bundle-of-50-free-adornments/"><u>[Updated] Your Gateway to Success with a Bundle of 50 FREE Adornments</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-instagram-masterclass-top-5-suggestions-and-real-life-outcomes/"><u>2024 Approved Instagram Masterclass Top 5 Suggestions & Real-Life Outcomes</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-instagrams-backward-glimpse-reverse-video-tips/"><u>2024 Approved Instagram's Backward Glimpse Reverse Video Tips</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-top-6-instagram-money-calculator-safe-and-effective/"><u>2024 Approved Top 6 Instagram Money Calculator - Safe & Effective</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/a-novel-way-to-manage-galaxy-devices-with-windows-11/"><u>A Novel Way to Manage Galaxy Devices with Windows 11</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/adventure-worlds-unleashed-excluding-gta-v-for-2024/"><u>Adventure Worlds Unleashed (Excluding GTA V) for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-xiaomi-14-ultra-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Xiaomi 14 Ultra Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-easy-ways-to-manage-your-realme-gt-5-240w-location-settings-drfone-by-drfone-virtual/"><u>In 2024, Easy Ways to Manage Your Realme GT 5 (240W) Location Settings | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/solved-how-to-restore-functionality-of-corsair-icue-interface-on-windows-11/"><u>Solved: How to Restore Functionality of Corsair iCUE Interface on Windows 11</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-ultimate-shutter-showdown-best-for-slow-motion-videos-for-2024/"><u>The Ultimate Shutter Showdown Best for Slow Motion Videos for 2024</u></a></li>
 </ul></div>
 

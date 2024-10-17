@@ -1,7 +1,7 @@
 ---
 title: "[New] A Beginner's Guide to Instagram Story Feature for 2024"
-date: 2024-10-05T16:03:02.892Z
-updated: 2024-10-10T17:00:24.825Z
+date: 2024-10-14T20:42:47.233Z
+updated: 2024-10-16T17:00:49.701Z
 tags:
   - ai video
   - ai instagram
@@ -37,13 +37,6 @@ Story Highlights allows you to display all sides of your personality, and you ca
 
 An amazing feature of Instagram highlights is that you can group your stories into sections and create them as folder sections (i.e highlights) on your profile. Once you post a story, you can save it in a Highlight (which is like a folder) and that will automatically be featured on your profile permanently until you decide to delete it or archive it. With this tool, you can design your profile in a unique way that best expresses you.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How to Create Instagram Highlights from Stories Archive?
 
 As mentioned above, Highlights are created through your Stories. You have two options for creating a Highlight. The first is that you either create a Highlight from a current Story or your Stories Archive.
@@ -55,13 +48,6 @@ Your Stories Archive is a feature that when enabled, ensures your Stories are au
 3. Scroll down till you see **Saving,** then turn on **Save story to archive.**
 
 ![ Instagram Highlight Archive](https://images.wondershare.com/filmora/article-images/save-story-to-archive-instagram.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 If you choose to create Highlights from your Stories archive, this is how you go about it:
 
@@ -82,6 +68,13 @@ Another way to create a highlight from archived stories is by;
 
 Above are the ways to create highlights on Instagram from Archive. They are pretty easy as long as you follow instructions correctly.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: How to Add New Stories to a Highlight?
 
 Some like to categorize their highlights by certain qualities. It can be that you want one highlight folder to contain only Stories that are related to everything shoes. Your second highlight might be customized for only images/videos of food, and your third highlight may be for only trips and vacations. However, how you choose to customize the highlights on your profile is up to you. If for instance, you decide you want to add a new story to a highlight, this is how it is done:
@@ -101,6 +94,13 @@ You can choose to create a highlight from your current Story, all you need to do
 * Go to your Instagram Story and click on the **Highlight** icon located at the lower right-hand corner.
 * Click on the **plus** **sign** if you want to create a new highlight, customize the name of the highlight and click
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: How to Delete Instagram Highlights?
 
 There are situations where you might decide you no longer want a highlight to feature on your page. Not to worry it’s there permanently only if you decide not to delete it. This is relatively easy to do. All you have to do is to;
@@ -116,10 +116,10 @@ If for instance, you decide that you want to remove some stories from a highligh
 * Click **Remove highlight,** then you are done!
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
-  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## FAQs About Instagram Highlights
@@ -153,10 +153,10 @@ attire need to be easy to find. You create a Highlight that you refer them to so
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -174,15 +174,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-secure-your-social-media-experience-from-ad-interruptions/"><u>[New] 2024 Approved Secure Your Social Media Experience From Ad Interruptions</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-expert-tips-for-efficient-instagram-to-mp4-transformation/"><u>[New] Expert Tips for Efficient Instagram to MP4 Transformation</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/new-mirrorless-vs-dslr-cameras-which-is-better-for-videos/"><u>[New] Mirrorless Vs. DSLR Cameras Which Is Better for Videos?</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-guide-turning-insta-vids-to-mp3-tracks/"><u>2024 Approved Guide Turning Insta Vids to MP3 Tracks</u></a></li>
-<li><a href="https://win-forum.techidaily.com/complete-tutorial-on-deleting-profiles-in-windows-n-11-with-revo-uninstaller-tool/"><u>Complete Tutorial on Deleting Profiles in Windows N 11 with Revo Uninstaller Tool</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/forging-partnerships-with-brands-5-instagram-strategies-for-growth-for-2024/"><u>Forging Partnerships with Brands 5 Instagram Strategies for Growth for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-beginners-glossary-for-instagram-chat-rooms/"><u>In 2024, Beginner's Glossary for Instagram Chat Rooms</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-fix-blurry-facebook-videos-in-smartphones-and-chromebooks/"><u>In 2024, Fix Blurry Facebook Videos in Smartphones & Chromebooks</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-flipping-photos-for-followers-a-rotational-approach-for-insta-success/"><u>In 2024, Flipping Photos for Followers A Rotational Approach for Insta Success</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/mastering-the-restart-effective-strategies-for-apples-iphone-15-lineup/"><u>Mastering the Restart: Effective Strategies for Apple's iPhone 15 Lineup</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-pictureperfect-tips-for-instagrams-image-sizing/"><u>[New] 2024 Approved PicturePerfect Tips for Instagram's Image Sizing</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-navigating-instagrams-sponsorship-jungle-for-affluent-creators-for-2024/"><u>[New] Navigating Instagram's Sponsorship Jungle for Affluent Creators for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-the-2-step-strategy-for-stunning-tiktok-reaction-videos-using-filmora/"><u>[New] The 2-Step Strategy for Stunning TikTok Reaction Videos Using Filmora</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-transform-spaces-and-elevate-brands-the-ultimate-apps-list-for-youtube-artistry/"><u>[Updated] 2024 Approved Transform Spaces & Elevate Brands The Ultimate Apps List for YouTube Artistry</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-navigating-intellectual-property-on-instagram/"><u>[Updated] In 2024, Navigating Intellectual Property on Instagram</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-optimizing-engagement-how-to-block-on-insta-for-2024/"><u>[Updated] Optimizing Engagement How to Block on Insta for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-pathway-to-preserving-instagram-videos-with-ease-pcmac-methodology-for-2024/"><u>[Updated] Pathway to Preserving Instagram Videos with Ease (PC/Mac Methodology) for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-unmatched-no-fee-mobile-and-web-picture-enhancement/"><u>[Updated] Unmatched No-Fee Mobile & Web Picture Enhancement</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dissecting-status-bt-budget-friendly-albeit-with-minor-shortcomings/"><u>Dissecting Status BT: Budget-Friendly, Albeit with Minor Shortcomings</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-secret-whatsapp-techniques-for-maximum-impact/"><u>In 2024, Secret WhatsApp Techniques for Maximum Impact</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-mobile-video-editing-alternatives-to-powerdirector-top-picks/"><u>New Mobile Video Editing Alternatives to PowerDirector Top Picks</u></a></li>
+<li><a href="https://location-social.techidaily.com/set-your-preferred-job-location-on-linkedin-app-of-your-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-virtual-android/"><u>Set Your Preferred Job Location on LinkedIn App of your Samsung Galaxy S23 Tactical Edition | Dr.fone</u></a></li>
 </ul></div>
 

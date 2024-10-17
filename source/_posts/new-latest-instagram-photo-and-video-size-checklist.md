@@ -1,7 +1,7 @@
 ---
 title: "[New] Latest Instagram Photo and Video Size Checklist"
-date: 2024-08-19T22:13:10.230Z
-updated: 2024-08-20T22:13:10.230Z
+date: 2024-10-12T21:16:43.804Z
+updated: 2024-10-16T22:48:13.895Z
 tags:
   - ai video
   - ai instagram
@@ -45,6 +45,13 @@ Duration of Videos on Instagram
 
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Best Image Sizes for Instagram Posts
 
 A couple of years ago, Instagram has finally allowed its users to upload images that aren't square shaped. In 2021, you can also upload horizontally and vertically oriented photos in addition to the standard square shape. However, in order to create a perfect Instagram post, and prevent the platform from cropping your photos you need to use the Instagram image sizes featured below.
@@ -52,6 +59,13 @@ A couple of years ago, Instagram has finally allowed its users to upload images 
 #### Instagram's Main Feed
 
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
 
@@ -77,13 +91,18 @@ The profile pictures on Instagram are tiny, and the optimum size for them is 160
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -91,6 +110,24 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-discover-instagrams-free-filter-options-with-smart-searching-techniques-for-2024/"><u>[New] Discover Instagram's FREE Filter Options with Smart Searching Techniques for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-duality-in-display-rotating-videos-on-instagram-one-click-at-a-time-for-2024/"><u>[New] Duality in Display Rotating Videos on Instagram, One Click at a Time for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-edit-and-elevate-instagrams-ultimate-toolkit-for-2024/"><u>[New] Edit & Elevate Instagram's Ultimate Toolkit for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-elevate-your-edits-10-essential-apps-for-instagram-videos-for-2024/"><u>[New] Elevate Your Edits 10 Essential Apps for Instagram Videos for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-elevate-your-instagram-storytelling-with-automated-captions-for-2024/"><u>[New] Elevate Your Instagram Storytelling with Automated Captions for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-decoding-the-copyright-code-for-insta-musicians/"><u>[New] In 2024, Decoding the Copyright Code for Insta Musicians</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-maximize-social-status-top-8-apps-for-gaining-more-fb-fans-for-2024/"><u>[New] Maximize Social Status Top 8 Apps for Gaining More FB Fans for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-essential-guide-recording-netflix-videos-on-a-mac/"><u>[Updated] 2024 Approved Essential Guide Recording Netflix Videos on a Mac</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-crafting-impeccable-videos-for-instagram-enthusiasts/"><u>[Updated] In 2024, Crafting Impeccable Videos for Instagram Enthusiasts</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-visual-impact-through-effective-color-modification/"><u>[Updated] In 2024, Visual Impact Through Effective Color Modification</u></a></li>
+<li><a href="https://win-tips.techidaily.com/1728509799054-word3/"><u>「Word文書がゴミ箱へと消え失せたら、この3つの手法で回復しましょう！」</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-unraveling-the-mysteries-of-quantum-hdr/"><u>2024 Approved Unraveling the Mysteries of Quantum HDR</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-realme-v30t-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Realme V30T Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-motorola-moto-g14-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Live Location is Not Updating and How to Fix on your Motorola Moto G14 | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/pace-perfection-on-instagram-a-guide-to-tempo-tweaks/"><u>Pace Perfection on Instagram A Guide to Tempo Tweaks</u></a></li>
+<li><a href="https://discover-exceptional.techidaily.com/resolved-issues-detected-during-windows-system-backup-process/"><u>Resolved: 'Issues Detected During Windows System Backup Process'</u></a></li>
+</ul></div>
+

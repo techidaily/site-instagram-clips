@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, The Ultimate How-To  Subtitling Your IGTV Videos\""
-date: 2024-08-19T22:17:23.713Z
-updated: 2024-08-20T22:17:23.713Z
+date: 2024-10-12T20:41:51.904Z
+updated: 2024-10-16T16:56:21.329Z
 tags:
   - ai video
   - ai instagram
@@ -63,13 +63,30 @@ Adding subtitles to a video can be a painstakingly long process if you’re work
 
 Once you’re done adding the subtitles you should click on the **Photo Camera icon** to take a snapshot of the video, you can use as a **cover photo for your IGTV video**. Export the video and proceed to upload it to IGTV from your web browser or from your phone.
 
+<!-- affiliate ads begin -->
+<span id="1977032">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Add Text to IGTV Videos with the Quik App For iOS and Android Devices
 
 In case you like editing IGTV videos from your phone, you can try adding subtitles to your IGTV videos with the Quik app. After you’ve completed all other video editing tasks, you should tap on the **Text icon** and type in the text you’d like to add to the video. Hit the **OK button** after you’ve added the text and that’s it you’ve successfully created the subtitles for your IGTV video. How long the process of creating hardcoded subtitles is going to last depends on the duration of the video and the amount of narration or dialogue in the video.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Tips for Adding Subtitles to IGTV Videos
 
 While adding text to your IGTV you must **pay close attention that the text is clearly visible on the screen** and that the app’s interface isn’t going to cover it once you upload the video to IGTV. Furthermore, **the text color** should match the background so that the viewers can easily read everything that is displayed on the screen**. Avoid placing the text too close to the edges of the frame,** since different phone models have slightly different aspect ratios. As a consequence, your IGTV videos are going to be **cropped**, and parts of the subtitles can be rendered invisible to the audience. That’s why you have to **position the text within the frame carefully** and do your best to overcome the technical limitations imposed by the IGTV platform.
@@ -81,16 +98,17 @@ Even though adding subtitles to videos can require a lot of precision and attent
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -98,3 +116,27 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-a-symphony-for-photos-on-digital-platforms/"><u>[New] 2024 Approved A Symphony for Photos on Digital Platforms</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-unlocking-the-potential-of-video-game-vlogging/"><u>[New] In 2024, Unlocking the Potential of Video Game Vlogging</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-flawless-free-android-snapmaker/"><u>[Updated] 2024 Approved Flawless Free Android SnapMaker</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-audio-amplification-for-impressive-instagram-reels/"><u>[Updated] Audio Amplification for Impressive Instagram Reels</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-boosting-engagement-uploading-and-sharing-on-instagram-desktop/"><u>[Updated] Boosting Engagement Uploading and Sharing on Instagram Desktop</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-efficient-video-editing-techniques-for-instagram-mac-edition/"><u>[Updated] Efficient Video Editing Techniques for Instagram, Mac Edition</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-swiftly-mastering-the-art-of-smoothing-iphone-shots-four-methods/"><u>[Updated] Swiftly Mastering the Art of Smoothing iPhone Shots (Four Methods)</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-effortless-crossposting-youtube-links-to-ig-stories/"><u>2024 Approved Effortless Crossposting YouTube Links to IG Stories</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-embedding-weblinks-on-instas-story-feature/"><u>2024 Approved Embedding Weblinks on Insta's Story Feature</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/best-in-class-steadicam-equipment-for-drone-cinematography/"><u>Best-in-Class Steadicam Equipment for Drone Cinematography</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/concealed-viewing-of-instagrams-private-content-on-devices-for-2024/"><u>Concealed Viewing of Instagram's Private Content on Devices for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/effortlessly-revamp-lenovo-g580-drivers/"><u>Effortlessly Revamp Lenovo G580 Drivers</u></a></li>
+<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-from-oppo-a79-5g-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock from Oppo A79 5G Phones with/without a PC</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-beyond-the-surface-what-you-dont-know-about-stories/"><u>In 2024, Beyond the Surface What You Don't Know About Stories</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-chuckling-and-crying-on-the-same-ig-feed-top-memetic-pages/"><u>In 2024, Chuckling and Crying on the Same IG Feed Top Memetic Pages</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-engaging-followers-on-instagram-with-youtube-video-links-in-stories/"><u>In 2024, Engaging Followers on Instagram with YouTube Video Links in Stories</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-locked-apple-id-on-iphone-xs-max-by-drfone-ios/"><u>In 2024, How to Fix Locked Apple ID on iPhone XS Max</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-realme-c67-5g-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Realme C67 5G to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-honor-x50i-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for Honor X50i Bricked Devices | Dr.fone</u></a></li>
+</ul></div>
+

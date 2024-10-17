@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Perfecting Screenshots  Editing Vids Vertically on FCPX\""
-date: 2024-09-26T22:10:25.130Z
-updated: 2024-09-29T20:47:40.596Z
+date: 2024-10-14T21:38:39.641Z
+updated: 2024-10-16T21:30:15.893Z
 tags:
   - ai video
   - ai instagram
@@ -51,10 +51,10 @@ Before entering the nitty-gritty on how to edit vertical videos with FCPX, you s
 | **Audio codecs supported**       | 128 kbps, Vorbis                                         |
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to Edit and Export Vertical Videos for Instagram in Final Cut Pro X?
@@ -96,17 +96,17 @@ Too many steps? Then try a **beginner-friendly editing tool**, Filmora!
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: Tips on Editing Vertical Videos for Instagram
@@ -132,10 +132,10 @@ Hence, I am sure you found new tactics to create vertical videos for Instagram. 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -153,14 +153,19 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-2024-approved-expert-insights-efficiently-attaching-subtitles-to-mp4s/"><u>[New] 2024 Approved Expert Insights Efficiently Attaching Subtitles to MP4s</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-instagram-stories-secrets-for-success/"><u>[New] 2024 Approved Instagram Stories Secrets for Success</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-blending-iphone-videos-a-simple-guide/"><u>[Updated] 2024 Approved Blending iPhone Videos A Simple Guide</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-instagram-story-expertise-your-ultimate-resource/"><u>[Updated] 2024 Approved Instagram Story Expertise Your Ultimate Resource</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-quick-intro-to-instagram-video-chat/"><u>[Updated] 2024 Approved Quick Intro to Instagram Video Chat</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-instagram-to-music-directing-videos-to-mp3-outputs/"><u>[Updated] In 2024, Instagram to Music Directing Videos to MP3 Outputs</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-maximizing-your-earnings-how-to-monetize-facebook-videos-successfully/"><u>[Updated] In 2024, Maximizing Your Earnings How to Monetize Facebook Videos Successfully</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-hot-takes-top-ten-video-hits-from-social-media-giants/"><u>2024 Approved Hot Takes Top Ten Video Hits From Social Media Giants</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/opening-windows-secrets-with-precision/"><u>Opening Windows Secrets with Precision</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-essential-techniques-for-saving-facebook-messenger-calls-for-2024/"><u>[New] Essential Techniques for Saving Facebook Messenger Calls for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-craft-your-own-story-the-top-5-instagram-tips-for-aspiring-social-stars/"><u>[Updated] Craft Your Own Story The Top 5 Instagram Tips for Aspiring Social Stars</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-revolutionary-q500-the-ultimate-4k-bird/"><u>2024 Approved Revolutionary Q500 The Ultimate 4K Bird</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/conquering-content-sharing-on-igtv-for-2024/"><u>Conquering Content Sharing on IGTV for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/crafting-cinematic-magic-essential-tips-for-creating-stunning-slow-motion-media-on-instagram-for-2024/"><u>Crafting Cinematic Magic Essential Tips for Creating Stunning Slow-Motion Media on Instagram for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/cut-to-impact-video-editing-secrets-for-instagram-professionals-for-2024/"><u>Cut to Impact Video Editing Secrets for Instagram Professionals for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/downloadable-instagram-footage-tech-tips-for-computers-and-macs-for-2024/"><u>Downloadable Instagram Footage Tech Tips for Computers & Macs for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/iently-uploading-youtube-vids-to-insta-profile-for-2024/"><u>Efficiently Uploading YouTube Vids to Insta Profile for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/how-to-update-contact-details-in-protonvpn-browser-plugin-and-recognize-real-from-counterfeit-chatgpt-on-windows/"><u>How to Update Contact Details in ProtonVPN Browser Plugin & Recognize Real From Counterfeit ChatGPT on Windows</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-comprehensive-guide-to-the-updated-facetune-photo-editing/"><u>In 2024, Comprehensive Guide to the Updated Facetune Photo Editing</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-discover-instagram-stories-in-private-mode/"><u>In 2024, Discover Instagram Stories In Private Mode</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/t-layers-elevating-your-youtube-videos/"><u>Layout Layers Elevating Your YouTube Videos</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/perfecting-inshot-transitions-techniques-for-2024/"><u>Perfecting Inshot Transitions Techniques for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-dvd-to-computer-the-easy-way-to-convert-and-store-your-favorite-movies/"><u>Updated 2024 Approved DVD to Computer The Easy Way to Convert and Store Your Favorite Movies</u></a></li>
 </ul></div>
 
