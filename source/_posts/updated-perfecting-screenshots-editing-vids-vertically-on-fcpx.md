@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Perfecting Screenshots  Editing Vids Vertically on FCPX\""
-date: 2024-10-14T21:38:39.641Z
-updated: 2024-10-16T21:30:15.893Z
+date: 2024-10-19T17:21:50.823Z
+updated: 2024-10-22T16:02:42.568Z
 tags:
   - ai video
   - ai instagram
@@ -51,10 +51,16 @@ Before entering the nitty-gritty on how to edit vertical videos with FCPX, you s
 | **Audio codecs supported**       | 128 kbps, Vorbis                                         |
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to Edit and Export Vertical Videos for Instagram in Final Cut Pro X?
@@ -96,17 +102,17 @@ Too many steps? Then try a **beginner-friendly editing tool**, Filmora!
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: Tips on Editing Vertical Videos for Instagram
@@ -125,18 +131,24 @@ Is the video already shot horizontally on your camera or smartphone? No worries,
 
 Vertical video is a great option to showcase wide and tall subjects where you can place close-ups and show off details to get up close and personal. It could be a product or fabric. You can showcase enticing minor elements that attract an audience in such landscape shots.
 
+<!-- affiliate ads begin -->
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Hence, I am sure you found new tactics to create vertical videos for Instagram. Therefore, put them into practice the next time you make your vertical video for a story or IGTV. Is your video shot or recorded horizontal by mistake? No more worry, as you can edit vertical video for Instagram in the Final Cut Pro. Finally, with a complete guide on how to edit vertical videos with FCPX, our blog for the day is over.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -153,19 +165,20 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-essential-techniques-for-saving-facebook-messenger-calls-for-2024/"><u>[New] Essential Techniques for Saving Facebook Messenger Calls for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-craft-your-own-story-the-top-5-instagram-tips-for-aspiring-social-stars/"><u>[Updated] Craft Your Own Story The Top 5 Instagram Tips for Aspiring Social Stars</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-revolutionary-q500-the-ultimate-4k-bird/"><u>2024 Approved Revolutionary Q500 The Ultimate 4K Bird</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/conquering-content-sharing-on-igtv-for-2024/"><u>Conquering Content Sharing on IGTV for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/crafting-cinematic-magic-essential-tips-for-creating-stunning-slow-motion-media-on-instagram-for-2024/"><u>Crafting Cinematic Magic Essential Tips for Creating Stunning Slow-Motion Media on Instagram for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/cut-to-impact-video-editing-secrets-for-instagram-professionals-for-2024/"><u>Cut to Impact Video Editing Secrets for Instagram Professionals for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/downloadable-instagram-footage-tech-tips-for-computers-and-macs-for-2024/"><u>Downloadable Instagram Footage Tech Tips for Computers & Macs for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/iently-uploading-youtube-vids-to-insta-profile-for-2024/"><u>Efficiently Uploading YouTube Vids to Insta Profile for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/how-to-update-contact-details-in-protonvpn-browser-plugin-and-recognize-real-from-counterfeit-chatgpt-on-windows/"><u>How to Update Contact Details in ProtonVPN Browser Plugin & Recognize Real From Counterfeit ChatGPT on Windows</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-comprehensive-guide-to-the-updated-facetune-photo-editing/"><u>In 2024, Comprehensive Guide to the Updated Facetune Photo Editing</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-discover-instagram-stories-in-private-mode/"><u>In 2024, Discover Instagram Stories In Private Mode</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/t-layers-elevating-your-youtube-videos/"><u>Layout Layers Elevating Your YouTube Videos</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/perfecting-inshot-transitions-techniques-for-2024/"><u>Perfecting Inshot Transitions Techniques for 2024</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-dvd-to-computer-the-easy-way-to-convert-and-store-your-favorite-movies/"><u>Updated 2024 Approved DVD to Computer The Easy Way to Convert and Store Your Favorite Movies</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-spark-interest-10-innovative-highlight-ideas-to-try-now/"><u>[New] Spark Interest 10 Innovative Highlight Ideas to Try Now</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-stellar-storytelling-elevating-posts-with-3-insta-highlight-ways/"><u>[New] Stellar Storytelling Elevating Posts with 3 Insta Highlight Ways</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-crafting-excellent-canon-time-lapse-visuals/"><u>[Updated] 2024 Approved Crafting Excellent Canon Time-Lapse Visuals</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-enhance-pc-sound-experience-with-these-5-recording-techniques-on-windows-11/"><u>[Updated] Enhance PC Sound Experience with These 5 Recording Techniques on Windows 11</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-step-by-step-guide-for-igtv-video-submission/"><u>[Updated] Step-by-Step Guide for IGTV Video Submission</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-strategizing-your-approach-highlight-and-story-downloads/"><u>[Updated] Strategizing Your Approach Highlight & Story Downloads</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-syncing-songs-with-stories-and-videos-on-instagram/"><u>2024 Approved Syncing Songs with Stories and Videos on Instagram</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/customizing-chromecast-display-easy-tips-for-new-backgrounds/"><u>Customizing Chromecast Display: Easy Tips for New Backgrounds</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/effortlessly-upgrade-to-the-latest-intel-dual-band-wifi-ac-3160-driver/"><u>Effortlessly Upgrade to the Latest Intel Dual Band WiFi AC 3160 Driver</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-change-your-iphone-8-plus-apple-id-on-macbook-by-drfone-ios/"><u>How To Change Your iPhone 8 Plus Apple ID on MacBook</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-tailoring-your-timing-strategy-the-ultimate-instagram-guide/"><u>In 2024, Tailoring Your Timing Strategy The Ultimate Instagram Guide</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-the-10-igtv-channels-shaping-content-trends/"><u>In 2024, The 10 IGTV Channels Shaping Content Trends</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-websites-for-downloading-copyright-free-gaming-music/"><u>In 2024, Websites for Downloading Copyright -Free Gaming Music</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/install-hp-officejet-4650-software-on-your-windows-device/"><u>Install HP OfficeJet 4650 Software on Your Windows Device</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/is-chatgpt-effective-in-editing-and-proofreading-texts/"><u>Is ChatGPT Effective in Editing and Proofreading Texts?</u></a></li>
 </ul></div>
 

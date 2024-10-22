@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Navigating Video Sizes on Instagram - The Ultimate 2023 Guide\""
-date: 2024-08-04T00:42:56.195Z
-updated: 2024-08-05T00:42:56.195Z
+date: 2024-10-19T16:35:21.928Z
+updated: 2024-10-22T17:42:52.769Z
 tags:
   - ai video
   - ai instagram
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/d52ef143e5ac406fb5edcd5e28a24a2a1379f299e
 
 # Instagram Video Dimensions & Story Size \[The Ultimate Guide for Perfect Posts\]
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -43,19 +40,12 @@ Because you want many people to watch the video, comment or like your story, thi
 
 You may also like: [Creative Video Marketing Ideas for Business](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Why Instagram Post Size Matters?
 
 Knowing Instagram’ supported file formats, sizes, resolutions and frame rates helps maintain the original quality of your videos and images. If you upload large images, Instagram will crop them while publishing small images will make them be enlarged.
 
 Before getting into the nitty-gritty of this article, it is prudent to understand the meaning of the key words concerning Instagram. These include video frame rate, aspect ratio, resolution and Image Size.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## Aspect Ratio, Image Size, Resolution and Video Frame Rate Explained
 
 **Aspect ratio**  refers to the ratio of the width of an image to height. To indicate the aspect ratio of an image we use ratios in the form of 1:1, 2:3 or 5:4 depending on the variants. Instagram aspect ratio of a vertical video is 9:16 while the horizontal ratio is 16:9.
@@ -67,6 +57,13 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 **Frame rate**  is the rate at which individual images (frames) display on a screen per second and the initial is FPS. For Instagram to support your videos, the minimum frame rate should be 30FPS.
 
 Since you can now interpret video dimensions and photo sizes like a pro, do you know the recommended video dimensions for Instagram for each format?
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Best Instagram Video Dimensions Specifications for a Post
 
@@ -105,21 +102,17 @@ To recorded landscape videos, set the dimensions in the aspect ratio of 16:9 or 
 
 #### Instagram Vertical Video (Portrait)
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ![instagram vertical video dimensions](https://images.wondershare.com/filmora/instagram-vertical-videos.jpg)
 
 Vertical videos differ from square videos by very small margins. For your portrait videos to attract many viewers, ensure it is of the highest quality and has an aspect ratio of 4:5\. This ratio has to coincide with a 1080px by 1350px dimension.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### #2 - Instagram Story Dimensions
 
 Instagram story option started in 2016\. According to [Buffer](https://buffer.com/library/instagram-stories), to maintain story completion rate above 70%, your story frames should range from one to seven. Moreover, because Instagram stories last for 24 hours, use aspect ratio you are certain will display high-resolution frames.
@@ -206,6 +199,13 @@ This is how using extra small or larger photos than recommended affects quality.
 
 ![instagram story size](https://images.wondershare.com/filmora/instagram-portrait-photo-size.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 For images or photos whose height is naturally greater than width, the ideal Instagram photo format to use is portrait. To avoid cropping your photos, use the 4:5 aspect ratio. The photo dimension should not exceed 1080px by 1350px.
 
 Even though Instagram displays vertical photos at a maximum resolution of 480px by 600px or 960 X 1200, let your photo size 1080 X 1350\. Otherwise, the effects of enlargement and compression will occur.
@@ -213,6 +213,13 @@ Even though Instagram displays vertical photos at a maximum resolution of 480px 
 #### Instagram Landscape Photo Size
 
 ![instagram post size](https://images.wondershare.com/filmora/instagram-landscape-photo-size.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 How many photos or pictures have you seen on Instagram with a border above and below it? They are countless.
 
@@ -222,9 +229,6 @@ You are permitted to upload photos with a high aspect ratio as 16:9\. However, t
 
 If you want to upload horizontal photos and maintain their original quality, the right Instagram image size is 1080px by 608px.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 ## Well Prepare Your Instagram Videos and Photos with the Best Editing Software
 
 The best method to publish high-quality Instagram videos and photos is to edit them before publishing.
@@ -237,15 +241,18 @@ They are easy-to-use video editors that you can directly upload and share on you
 
 It's free to use and click the below link to download now.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Since you will probably use a mobile phone for Instagram than a computer, download the free mobile video editor – **[Filmora](https://tools.techidaily.com/wondershare/filmora/download/).** There is every effect, transition, filters, texts, and themes to make your Instagram live videos and photos cinematic.
 
 **You may also like:** [How to Post/Share a Video From YouTube on Instagram >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -255,9 +262,6 @@ For your image and video, posts to have the right sizes, master the most used as
 
 What sizes and dimensions do you use to take Instagram photos and stream videos? Share your comments and thoughts.
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -266,11 +270,31 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-how-to-maximize-your-photos-with-samsungs-image-enhancers/"><u>[New] How to Maximize Your Photos with Samsung's Image Enhancers</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-crafting-engaging-youtube-videos-using-finalcut-pro-expertise/"><u>2024 Approved Crafting Engaging YouTube Videos Using FinalCut Pro Expertise</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/9-innovative-workout-challenges-for-dynamic-viewers-for-2024/"><u>9 Innovative Workout Challenges for Dynamic Viewers for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/can-i-bypass-a-forgotten-phone-password-of-tecno-camon-20-pro-5g-by-drfone-android/"><u>Can I Bypass a Forgotten Phone Password Of Tecno Camon 20 Pro 5G?</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/eco-conscious-speedsters-unveiled-in-depth-analysis-of-teamgroups-t-force-vulcan-ddr5-6000-2x16gb-stick-set-a-comprehensive-review/"><u>Eco-Conscious Speedsters Unveiled: In-Depth Analysis of TeamGroup's T-Force Vulcan DDR5-6000, 2X16GB Stick Set - A Comprehensive Review</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-seamlessly-connect-samsung-earbuds-to-your-laptop-in-simple-steps/"><u>How to Seamlessly Connect Samsung Earbuds to Your Laptop in Simple Steps</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-creating-cohesive-content-with-soundtracks-on-instagram/"><u>In 2024, Creating Cohesive Content with Soundtracks on Instagram</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-creating-compelling-instagram-story-collections/"><u>In 2024, Creating Compelling Instagram Story Collections</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-creating-instagram-virality-video-edition/"><u>In 2024, Creating Instagram Virality Video Edition</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-deciphering-the-latest-instagram-posting-rules/"><u>In 2024, Deciphering the Latest Instagram Posting Rules</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-decoding-instagrams-reels-and-stories-evolution/"><u>In 2024, Decoding Instagram's Reels and Stories Evolution</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-decoding-the-copyright-code-for-insta-musicians/"><u>In 2024, Decoding the Copyright Code for Insta Musicians</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-decoding-the-mystery-insider-knowledge-on-story-watchers/"><u>In 2024, Decoding the Mystery Insider Knowledge on Story Watchers</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-demystifying-igtv-a-compreayers-guide-to-social-media/"><u>In 2024, Demystifying IGTV A Compreayer's Guide to Social Media</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-frp-on-motorola-edge-40-by-drfone-android/"><u>In 2024, How to Bypass FRP on Motorola Edge 40?</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-the-updated-method-to-bypass-lava-yuva-2-pro-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Lava Yuva 2 Pro FRP</u></a></li>
+<li><a href="https://fox-that.techidaily.com/six-secrets-to-overcoming-iphone-typing-errors-and-enhancing-autocorrect-functionality/"><u>Six Secrets to Overcoming iPhone Typing Errors and Enhancing AutoCorrect Functionality</u></a></li>
+</ul></div>
+

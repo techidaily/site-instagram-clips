@@ -1,7 +1,7 @@
 ---
 title: "Resolved: Tackling and Fixing Sound Output Issues in HyperX Cloud Alpha S Headphones"
-date: 2024-09-24T22:04:24.522Z
-updated: 2024-09-29T22:51:31.913Z
+date: 2024-10-17T16:12:30.137Z
+updated: 2024-10-22T16:08:22.832Z
 tags:
   - win11
   - win10
@@ -29,13 +29,6 @@ The Modern Warfare series has been out for a couple of years now, yet many playe
 6. [**Close conflicting software**](https://tools.techidaily.com/drivereasy/download/)
 7. **[Change your audio channel](https://tools.techidaily.com/drivereasy/download/)**
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Fix 1: Check your headphone or speaker
 
  When troubleshooting audio problems, the first thing is to check your cable connection. You should check if the cables have worn out, and make sure they’re securely plugged into the right port.
@@ -43,6 +36,13 @@ The Modern Warfare series has been out for a couple of years now, yet many playe
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/audio-port.png)
 
  You can also try to plug in the cables again and see if you hear any sound. If possible, you can connect to other devices such as your cellphone or MP3 player for troubleshooting.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 2: Change your default playback device
 
@@ -59,26 +59,13 @@ The Modern Warfare series has been out for a couple of years now, yet many playe
 5. Launch Modern Warfare and see if you hear any sound.
 
 <!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  If this method doesn’t give you any luck, please continue to the next one.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 3: Run the Windows audio troubleshooter
 
@@ -89,10 +76,10 @@ The Modern Warfare series has been out for a couple of years now, yet many playe
 2. Click**Additional troubleshooters** .  
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/troubleshoot-settings-2.jpg)
@@ -117,6 +104,13 @@ The Modern Warfare series has been out for a couple of years now, yet many playe
  (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click Update All. If you don’t want to pay for the Pro version, you can still download and install all the drivers you need with the free version; you just have to download them one at a time, and manually install them, the normal Windows way.)  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/de-realtek-audio-driver.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **The Pro version of Driver Easy** comes with full technical support. If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
 
  Once you’ve updated your audio driver, restart your computer and see if it fixes your problem.
@@ -124,16 +118,10 @@ The Modern Warfare series has been out for a couple of years now, yet many playe
  If updating audio driver doesn’t do the trick for you, please take a look at the next fix.
 
 <!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fix 5: Install all the Windows updates
@@ -145,15 +133,22 @@ And it’s quite easy to update too:
 1. On your keyboard, press the**Windows logo key** and**R** at the same time to invoke the Run box. Type or paste**control /name Microsoft.WindowsUpdate** and hit**Enter** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/windows-update-run-box.jpg)
 2. Click**Check for updates** . It’ll take some time for Windows to search and install system updates.  
-![](https://images.drivereasy.com/wp-content/uploads/2020/08/windows-security-update-click-check-for-update.jpg)
-3. Once you’ve installed the updates, restart your computer for it to take full effect.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052062/7443" target="_top" id="2052062">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052062" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052062/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983584">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![](https://images.drivereasy.com/wp-content/uploads/2020/08/windows-security-update-click-check-for-update.jpg)
+3. Once you’ve installed the updates, restart your computer for it to take full effect.
 
  To install all the system updates, you might need to**repeat these steps** **several times** until it prompts that “you’re up to date” when you click Check for updates.
 
@@ -161,22 +156,16 @@ You can now open Modern Warfare and check the in-game audio.
 
  If this method doesn’t work for you, simply move on to the next one below.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Fix 6: Close conflicting software
 
  Some players reported that they managed to get the sound back by closing programs that have audio output. You can try this method by closing apps such as**Discord** ,**Skype** and**Chrome** , as they might affect the in-game audio.
-
-<!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 7: Change your audio channel
 
@@ -191,15 +180,22 @@ Here’s how to do it:
 3. For**Audio channels** , select**Stereo** and click**Next** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/Snap108.jpg)
 4. Check the box **next to Front left and right** . Then click **Next** .  
-![](https://images.drivereasy.com/wp-content/uploads/2018/09/Snap109.jpg)
-5. Click **Finish** to save the changes.  
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983475">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![](https://images.drivereasy.com/wp-content/uploads/2018/09/Snap109.jpg)
+5. Click **Finish** to save the changes.  
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/Snap110.jpg)
 
@@ -222,17 +218,21 @@ Here’s how to do it:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-decoding-youtubes-revenue-model-for-video-clips/"><u>[New] 2024 Approved Decoding YouTube's Revenue Model for Video Clips</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-virtual-vanguards-identifying-the-top-7-fps-powerhouses/"><u>[New] In 2024, Virtual Vanguards Identifying the Top 7 FPS Powerhouses</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-from-frantic-movements-to-leisurely-views-crafting-spectacular-slow-motion-videos-for-instragram/"><u>[Updated] 2024 Approved From Frantic Movements to Leisurely Views Crafting Spectacular Slow Motion Videos for Instragram</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-how-to-combine-photos-for-captivating-instagram-stories/"><u>[Updated] 2024 Approved How to Combine Photos for Captivating Instagram Stories</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-exploring-the-purpose-of-instagram-story-sections/"><u>[Updated] In 2024, Exploring the Purpose of Instagram Story Sections</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-how-to-change-your-voice-on-instagram/"><u>[Updated] In 2024, How to Change Your Voice on Instagram?</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-capture-perfection-dive-into-top-12-websites-offering-stock-photos-without-cost/"><u>2024 Approved Capture Perfection Dive Into Top 12 Websites Offering Stock Photos Without Cost</u></a></li>
-<li><a href="https://change-location.techidaily.com/guide-how-to-unbrick-a-bricked-samsung-galaxy-a05s-phone-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Guide How To Unbrick a Bricked Samsung Galaxy A05s Phone | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/laughing-liberally-with-our-meme-toolbox-for-2024/"><u>Laughing Liberally with Our Meme Toolbox for 2024</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/mastering-lock-screen-settings-how-to-enable-and-disable-on-nokia-c12-plus-by-drfone-android/"><u>Mastering Lock Screen Settings How to Enable and Disable on Nokia C12 Plus</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/turn-onoff-youtube-feedback-settings-with-this-guide-for-2024/"><u>Turn On/Off YouTube Feedback Settings With This Guide for 2024</u></a></li>
-<li><a href="https://solve-news.techidaily.com/two-effective-methods-for-free-vocal-extraction-in-songs/"><u>Two Effective Methods for Free Vocal Extraction in Songs</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-groundwork-for-motion-visual-storytelling/"><u>[New] In 2024, Groundwork for Motion Visual Storytelling</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-master-video-cropping-for-unique-instagram-visuals/"><u>[New] Master Video Cropping for Unique Instagram Visuals</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-mastering-selfies-on-instagram-a-guide/"><u>[New] Mastering Selfies on Instagram A Guide</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-mastering-the-art-of-query-tagging-in-instagram-comments/"><u>[Updated] Mastering the Art of Query Tagging in Instagram Comments</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-mastering-the-fine-art-of-instagram-photo-borders/"><u>[Updated] Mastering the Fine Art of Instagram Photo Borders</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-storing-your-stories-and-snaps-safely-on-ios-devices/"><u>[Updated] Storing Your Stories and Snaps Safely on iOS Devices</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-maximizing-viewership-igtv-video-scaling-hacks/"><u>2024 Approved Maximizing Viewership IGTV Video Scaling Hacks</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-melodic-matchmaking-music-that-matters-on-social-media/"><u>2024 Approved Melodic Matchmaking Music That Matters on Social Media</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-fix-modern-warfare-game-crashes-and-lagging-on-your-pc/"><u>How to Fix Modern Warfare Game Crashes and Lagging on Your PC</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-bypass-activation-lock-on-iphone-14-pro-max-4-easy-ways-by-drfone-ios/"><u>In 2024, Bypass Activation Lock On iPhone 14 Pro Max - 4 Easy Ways</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-smoothest-android-3d-video-streaming/"><u>In 2024, Smoothest Android 3D Video Streaming</u></a></li>
+<li><a href="https://fox-metric.techidaily.com/is-it-possible-to-change-help-window-sizes-at-flipbuildercom/"><u>Is It Possible To Change Help Window Sizes at FlipBuilder.com?</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/mastering-instagrams-hashtag-language-for-enhanced-engagement-for-2024/"><u>Mastering Instagram's Hashtag Language for Enhanced Engagement for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/quick-solutions-how-to-repair-a-malfunctioning-google-hangouts-mic/"><u>Quick Solutions: How to Repair a Malfunctioning Google Hangouts Mic</u></a></li>
+<li><a href="https://techtrends.techidaily.com/section-2b-five-factes-of-diastolic-dysfunction-in-hfpef/"><u>Section 2B: Five Factes of Diastolic Dysfunction in HFpEF</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
 </ul></div>
 

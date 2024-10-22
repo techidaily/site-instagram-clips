@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  FrameItRight  Instagram Size Settings Explained\""
-date: 2024-08-11T02:48:44.295Z
-updated: 2024-08-12T02:48:44.295Z
+date: 2024-10-20T16:34:51.076Z
+updated: 2024-10-22T17:43:12.891Z
 tags:
   - ai video
   - ai instagram
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/b4ed3f08ab6e820bb58ff66c5f5e67696c65d753e
 
 # Latest Instagram Photo and Video Size Checklist
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -32,9 +29,6 @@ Taking photos with iPhones and Android Smartphones and posting them to Instagram
 
 Troubles begin when you want to upload photos and videos that weren't captured with a Smartphone to Instagram. In most cases, the photos and videos produced by DSLR cameras and other semi-professional and professional equipment are much larger than the sizes supported by Instagram. That is the reason why we created this guide that will help you post visual content that is perfectly adjusted to Instagram in 2021.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Types of Files Accepted by Instagram
 
 The first thing you need to pay attention to when uploading images and videos to Instagram is that the files you are uploading are in one of the photo or video formats that Instagram supports.
@@ -52,18 +46,26 @@ Duration of Videos on Instagram
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Best Image Sizes for Instagram Posts
 
 A couple of years ago, Instagram has finally allowed its users to upload images that aren't square shaped. In 2021, you can also upload horizontally and vertically oriented photos in addition to the standard square shape. However, in order to create a perfect Instagram post, and prevent the platform from cropping your photos you need to use the Instagram image sizes featured below.
 
 #### Instagram's Main Feed
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
 
@@ -87,11 +89,14 @@ The photos you post as stories on Instagram are always vertically oriented and f
 
 The profile pictures on Instagram are tiny, and the optimum size for them is 160X160 px, while their shape is always a square which means that you'll have to set their aspect ratio to 1:1.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -105,4 +110,21 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-mastering-social-media-tags-leading-tools-reviewed-fbtwitterinsta-for-2024/"><u>[New] Mastering Social Media Tags Leading Tools Reviewed (FB/Twitter/Insta) for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-pewdiepie-revenue-analysis-overview/"><u>[New] PewDiePie Revenue Analysis Overview</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-samsung-galaxy-a15-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Samsung Galaxy A15 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-poco-f5-pro-5g-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any Poco F5 Pro 5G Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/instas-tunes-ownership-and-legalities/"><u>Insta's Tunes Ownership & Legalities</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/instagram-influence-made-possible-today-for-2024/"><u>Instagram Influence Made Possible Today for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/instagram-verified-posts-do-they-matter-in-2024/"><u>Instagram Verified Posts - Do They Matter, In 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/maintaining-image-integrity-effective-instagram-photowatermarking-for-2024/"><u>Maintaining Image Integrity Effective Instagram Photowatermarking for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/mastering-copyright-compliance-in-instagrams-musical-world-for-2024/"><u>Mastering Copyright Compliance in Instagram's Musical World for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/mastering-instagram-engagement-the-5-key-strategies-for-influencers-today-for-2024/"><u>Mastering Instagram Engagement The 5 Key Strategies for Influencers Today for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/the-new-short-form-fb-story/"><u>The New Short-Form FB Story</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-ultimate-gamble-worth-2500-raider-ge78/"><u>The Ultimate Gamble Worth $2500: Raider GE78</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/ultimate-guide-to-choosing-a-screen-recorder-for-learning-for-2024/"><u>Ultimate Guide to Choosing a Screen Recorder for Learning for 2024</u></a></li>
+</ul></div>
 

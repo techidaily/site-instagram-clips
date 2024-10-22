@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  CaptureCare  Essential Guide to IG Photo & Video Resize\""
-date: 2024-08-11T02:49:55.063Z
-updated: 2024-08-12T02:49:55.063Z
+date: 2024-10-20T16:10:06.552Z
+updated: 2024-10-22T16:28:50.300Z
 tags:
   - ai video
   - ai instagram
@@ -19,11 +19,6 @@ thumbnail: https://thmb.techidaily.com/64d6132273fa0f5624faa24b024a9043c67b09153
 
 # Latest Instagram Photo and Video Size Checklist
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -34,9 +29,6 @@ Taking photos with iPhones and Android Smartphones and posting them to Instagram
 
 Troubles begin when you want to upload photos and videos that weren't captured with a Smartphone to Instagram. In most cases, the photos and videos produced by DSLR cameras and other semi-professional and professional equipment are much larger than the sizes supported by Instagram. That is the reason why we created this guide that will help you post visual content that is perfectly adjusted to Instagram in 2021.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Types of Files Accepted by Instagram
 
 The first thing you need to pay attention to when uploading images and videos to Instagram is that the files you are uploading are in one of the photo or video formats that Instagram supports.
@@ -54,18 +46,26 @@ Duration of Videos on Instagram
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Best Image Sizes for Instagram Posts
 
 A couple of years ago, Instagram has finally allowed its users to upload images that aren't square shaped. In 2021, you can also upload horizontally and vertically oriented photos in addition to the standard square shape. However, in order to create a perfect Instagram post, and prevent the platform from cropping your photos you need to use the Instagram image sizes featured below.
 
 #### Instagram's Main Feed
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
 
@@ -89,10 +89,14 @@ The photos you post as stories on Instagram are always vertically oriented and f
 
 The profile pictures on Instagram are tiny, and the optimum size for them is 160X160 px, while their shape is always a square which means that you'll have to set their aspect ratio to 1:1.
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -100,12 +104,25 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-expert-iphone-macro-photography-tips-and-tricks/"><u>[New] In 2024, Expert iPhone Macro Photography Tips and Tricks</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-social-splendor-leading-story-filter-hits/"><u>[New] In 2024, Social Splendor Leading Story Filter Hits</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ac-basics-for-creating-attractive-first-youtube-videos-for-2024/"><u>[New] Mac Basics for Creating Attractive First Youtube Videos for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-the-enchanted-realm-of-bygone-writings-a-literary-pilgrimage/"><u>[New] The Enchanted Realm of Bygone Writings A Literary Pilgrimage</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-the-ultimate-path-to-a-thriving-instagram-community-for-2024/"><u>[New] The Ultimate Path to a Thriving Instagram Community for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-turning-horizons-into-heights-uploading-videos-to-igtv/"><u>[Updated] 2024 Approved Turning Horizons Into Heights Uploading Videos to IGTV</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-examining-copyright-implications-of-media-sharing-via-social-networks/"><u>[Updated] Examining Copyright Implications of Media Sharing via Social Networks</u></a></li>
+<li><a href="https://android-frp.techidaily.com/easy-guide-how-to-bypass-samsung-galaxy-s21-fe-5g-2023-frp-android-10111213-by-drfone-android/"><u>Easy Guide How To Bypass Samsung Galaxy S21 FE 5G (2023) FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/headphones-failing-to-work-with-windows-11-how-to-fix/"><u>Headphones Failing to Work with Windows 11 - How to Fix?</u></a></li>
+<li><a href="https://games-able.techidaily.com/1719167883005-rekindle-the-joy-classics-reimagined-for-your-device/"><u>Rekindle the Joy: Classics Reimagined for Your Device</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-wevideo-the-ultimate-online-video-creation-solution-for-2024/"><u>Updated WeVideo The Ultimate Online Video Creation Solution for 2024</u></a></li>
+</ul></div>
 

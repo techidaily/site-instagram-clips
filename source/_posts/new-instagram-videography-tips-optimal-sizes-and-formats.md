@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Instagram Videography Tips  Optimal Sizes & Formats\""
-date: 2024-10-10T22:07:46.959Z
-updated: 2024-10-16T17:01:36.954Z
+date: 2024-10-21T17:35:33.314Z
+updated: 2024-10-22T17:14:21.918Z
 tags:
   - ai video
   - ai instagram
@@ -64,13 +64,6 @@ Even though MP4 is the only supported Instagram video format, you can set the vi
 
 ![instagram video dimensions](https://images.wondershare.com/filmora/instagram-video-format.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Since Instagram is not limited to videos, you might be puzzling about the required dimensions for Instagram photos, stories, IGTV, live videos and other supported features like ads. Keep calm, and find all the Instagram dimensions and sizes right in here.
 
 Other than just uploading ordinary videos and sharing photos, you can also **tell a story on Instagram**  using videos and photos in a slideshow format. For business purposes, you can format Instagram stories to **create Instagram Carousel ads**  to use as an advert.
@@ -78,16 +71,10 @@ Other than just uploading ordinary videos and sharing photos, you can also **tel
 To realize the real importance of Instagram, start using the **video ads feature** , uploading **IGTV videos**  and **streaming live videos** . As you explore all these features, remember to use the specified Max Instagram video dimensions in this article.
 
 <!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### #1 - Instagram Video Dimensions And Sizes
@@ -97,6 +84,13 @@ To optimize these Instagram video orientations, here are the dimensional specifi
 #### Instagram Square Videos
 
 ![best video dimensions for instagram](https://images.wondershare.com/filmora/instagram-square-videos.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Since the launch of Instagram video sharing feature, square videos are the most successful orientation. To occupy a larger space to attract more attention, we recommend square videos. Use the following Instagram square video dimensions to produce high-quality videos.
 
@@ -109,6 +103,13 @@ Since the launch of Instagram video sharing feature, square videos are the most 
 
 ![instagram video format](https://images.wondershare.com/filmora/instagram-horizontal-videos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Even though recording Instagram videos in a landscape form is a lot much easier, the majority of Instagram enthusiasts despise. It is the least used orientation mostly because it occupies a small space and the quality appears distorted.
 
 To recorded landscape videos, set the dimensions in the aspect ratio of 16:9 or 1.91:1\. In a situation where shooting videos in the landscape is necessary, we recommend the 16:9 Instagram size ratio. The maximum dimensions should be set at 1080px by 607px, which is the set cinematic standard.
@@ -116,13 +117,6 @@ To recorded landscape videos, set the dimensions in the aspect ratio of 16:9 or 
 #### Instagram Vertical Video (Portrait)
 
 ![instagram vertical video dimensions](https://images.wondershare.com/filmora/instagram-vertical-videos.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Vertical videos differ from square videos by very small margins. For your portrait videos to attract many viewers, ensure it is of the highest quality and has an aspect ratio of 4:5\. This ratio has to coincide with a 1080px by 1350px dimension.
 
@@ -213,10 +207,10 @@ This is how using extra small or larger photos than recommended affects quality.
 ![instagram story size](https://images.wondershare.com/filmora/instagram-portrait-photo-size.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 For images or photos whose height is naturally greater than width, the ideal Instagram photo format to use is portrait. To avoid cropping your photos, use the 4:5 aspect ratio. The photo dimension should not exceed 1080px by 1350px.
@@ -226,6 +220,13 @@ Even though Instagram displays vertical photos at a maximum resolution of 480px 
 #### Instagram Landscape Photo Size
 
 ![instagram post size](https://images.wondershare.com/filmora/instagram-landscape-photo-size.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 How many photos or pictures have you seen on Instagram with a border above and below it? They are countless.
 
@@ -253,19 +254,6 @@ Since you will probably use a mobile phone for Instagram than a computer, downlo
 
 **You may also like:** [How to Post/Share a Video From YouTube on Instagram >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 With over 100 million videos and photos shared on Instagram daily, do they meet the recommended Instagram video dimensions? Having all Instagram sizes and dimensions at your fingertips is next to impossibility.
@@ -291,20 +279,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-backtracking-visual-vectors-techniques-for-tracking-originals-in-instagram-posts/"><u>[New] Backtracking Visual Vectors Techniques for Tracking Originals in Instagram Posts</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-unlock-your-video-soundtrack-4-cost-effective-wav-extractors/"><u>[New] Unlock Your Video Soundtrack 4 Cost-Effective WAV Extractors</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-put-a-stay-to-unsolicited-youtube-trails/"><u>[Updated] 2024 Approved Put a Stay to Unsolicited YouTube Trails</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-backtracking-visuals-proficient-strategies-for-insta-image-source/"><u>[Updated] Backtracking Visuals Proficient Strategies for Insta Image Source</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-beyond-the-lens-the-complete-selfie-confirmation-on-ig/"><u>[Updated] Beyond the Lens The Complete Selfie Confirmation on IG</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-becoming-an-instagram-editor-extraordinaire/"><u>2024 Approved Becoming an Instagram Editor Extraordinaire</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-blending-past-memories-with-instagrams-vivid-filters/"><u>2024 Approved Blending Past Memories with Instagram's Vivid Filters</u></a></li>
-<li><a href="https://win-able.techidaily.com/expert-tips-to-prevent-freezing-issues-while-playing-grand-theft-auto-5/"><u>Expert Tips to Prevent Freezing Issues While Playing Grand Theft Auto 5</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-by-frame-the-smartphone-storytellers-path-to-youtubes-thumbnails/"><u>Frame by Frame The Smartphone Storyteller's Path to YouTubes Thumbnails</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-tweets-to-tabs-facebooks-new-approach-to-content-discussion/"><u>From Tweets to Tabs: Facebook's New Approach to Content Discussion</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-amplify-igtv-audiences-5-effective-ways-for-a-larger-following/"><u>In 2024, Amplify IGTV Audiences 5 Effective Ways for a Larger Following</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-top-12-prominent-samsung-galaxy-s23plus-fingerprint-not-working-solutions-by-drfone-android/"><u>In 2024, Top 12 Prominent Samsung Galaxy S23+ Fingerprint Not Working Solutions</u></a></li>
-<li><a href="https://android-frp.techidaily.com/inside-look-at-cutting-edge-computing-with-toms-hardware-guide/"><u>Inside Look at Cutting-Edge Computing with Tom's Hardware Guide</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/step-by-step-podcast-rss-feeds-a-practical-approach-for-2024/"><u>Step-by-Step Podcast RSS Feeds A Practical Approach for 2024</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/updated-2024-approved-step-by-step-audio-capture-in-garageband-your-personalized-tutorial/"><u>Updated 2024 Approved Step-by-Step Audio Capture in GarageBand Your Personalized Tutorial</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-explore-and-learn-personalized-tiktok-identifier-creation-for-2024/"><u>[New] Explore and Learn Personalized TikTok Identifier Creation for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-mastering-the-use-of-custom-gifs-in-your-instagram-stories/"><u>[New] In 2024, Mastering the Use of Custom GIFs in Your Instagram Stories</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-innovative-strategies-for-capturing-live-lectures-a-mac-centric-approach/"><u>[New] Innovative Strategies for Capturing Live Lectures A Mac-Centric Approach</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-mastering-igtv-title-and-description-revision/"><u>[Updated] In 2024, Mastering IGTV Title & Description Revision</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-mastering-instagram-a-guide-to-sharing-gifs-in-4-simple-steps/"><u>[Updated] In 2024, Mastering Instagram A Guide to Sharing GIFs in 4 Simple Steps</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-mastering-soft-focus-the-secret-of-great-bokeh-in-stories/"><u>[Updated] In 2024, Mastering Soft Focus The Secret of Great Bokeh in Stories</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-mastering-mobile-and-dslr-shooting-igtv-with-perfection-for-2024/"><u>[Updated] Mastering Mobile & DSLR Shooting IGTV with Perfection for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-precision-and-speed-the-ultimate-guide-to-mac-srt-editing/"><u>[Updated] Precision and Speed The Ultimate Guide to Mac Srt Editing</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/7-easy-tips-for-memo-making-in-windows/"><u>7 Easy Tips for Memo-Making in Windows</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-a-20-second-symphony-understanding-musics-compact-formats/"><u>In 2024, A 20-Second Symphony Understanding Music's Compact Formats</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-remove-or-bypass-knox-enrollment-service-on-tecno-spark-20-pro-by-drfone-android/"><u>In 2024, How To Remove or Bypass Knox Enrollment Service On Tecno Spark 20 Pro</u></a></li>
 </ul></div>
 

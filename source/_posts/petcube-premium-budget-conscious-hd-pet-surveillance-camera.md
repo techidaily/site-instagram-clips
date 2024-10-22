@@ -1,7 +1,7 @@
 ---
 title: "Petcube Premium: Budget-Conscious HD Pet Surveillance Camera"
-date: 2024-10-13T16:57:46.950Z
-updated: 2024-10-16T19:33:33.082Z
+date: 2024-10-15T16:49:58.659Z
+updated: 2024-10-22T16:40:59.776Z
 categories:
   - BestProducts
 description: "This Article Describes Petcube Premium: Budget-Conscious HD Pet Surveillance Camera"
@@ -37,23 +37,9 @@ Lifewire / Kelsey Simon
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Dying Light
 
 ![Dying Light](https://www.lifewire.com/thmb/YWkGikwP23JK119N4M7J22dAPJY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Dying-Light-Zombie-Game-PS4-1-f2e898d54052439c9e158d01dc3d691a.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -78,6 +64,13 @@ Lifewire / Kelsey Simon
 
 ![Dying Light](https://www.lifewire.com/thmb/_0yEidfS3S4dy57s584t378TZYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-5-4ec68914607c4b56acff25a78887af7f.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
 ## **Setup Process: Straight into the action**
@@ -87,19 +80,6 @@ Lifewire / Kelsey Simon
 ![Dying Light](https://www.lifewire.com/thmb/P3rXmBBI1GdQfgi0vVT9xKcFw90=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-2-db5990d1f64341eaae79e22a71bb8f95.jpg)
 
  Lifewire / Kelsey Simon
-
-<!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Plot: A character torn between obligation and friendship**
 
@@ -113,14 +93,14 @@ Harran is a whole different city at night.
 
 ![Dying Light](https://www.lifewire.com/thmb/8G35q3VsoSEuht_3bqsGm0Pwz-0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-7-d9d2bbe8881e476f8dfb3c13059634ed.jpg)
 
- Lifewire / Kelsey Simon
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Kelsey Simon
 
 ## **Gameplay: Parkour and zombies galore**
 
@@ -147,16 +127,10 @@ Harran is a whole different city at night.
 ![Dying Light](https://www.lifewire.com/thmb/sy9NHLj8JNe2eaeS9HJJdejt6QE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-6-56ef808272b544e6a1038f4a5d0280f1.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
@@ -164,6 +138,13 @@ Harran is a whole different city at night.
 ## **Price: Worth the cost, especially with a friend**
 
  On PlayStation 4, you can purchase the game for $14, a fantastic value. You’ll get more than enough gameplay and fun to justify a purchase at that low cost. However, if you want to play on[PC](https://www.lifewire.com/best-desktop-pcs-4045927) , you’ll have to either wait for the game to go on sale, or you’ll have to pay $40\. Considering the game is older now, we’d suggest getting the game on sale (it goes on sale often through Steam). There’s a lot of fun to be had in Dying Light, especially if you have a friend to play with, so if you’re thinking about getting the game, we’d say go for it.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: Other zombie and parkour games**
 
@@ -176,6 +157,13 @@ Harran is a whole different city at night.
 **An original in the zombie survival genre.**
 
  Dying Light is a game that took an overdone trope and used it to create a fresh game. Its fun parkour and co-op gameplay make for a great gaming experience, particularly when shared with friends. The variety of zombie enemies combined with the excellent melee combat keep the experience fresh even in the late game―and if things feel too simple, doing a mission at night is a wholly different experience from daylight outings. Dying Light is a great game in the zombie survival genre that we would recommend to most players.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -198,16 +186,24 @@ Harran is a whole different city at night.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-instagram-video-length-limit-every-details-you-need-to-know/"><u>[New] 2024 Approved Instagram Video Length Limit - Every Details You Need to Know</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-interactive-instagram-flipbook-feature/"><u>[New] 2024 Approved Interactive Instagram Flipbook Feature</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-investing-in-your-instagram-presence-5-key-strategies-and-illustrated-outcomes/"><u>[New] 2024 Approved Investing in Your Instagram Presence 5 Key Strategies and Illustrated Outcomes</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-keep-your-content-clout-authentic-resist-the-like-lie-in/"><u>[New] 2024 Approved Keep Your Content Clout Authentic Resist the Like Lie-In</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-discover-9-free-whole-film-festive-movie-gems-on-youtube/"><u>[New] In 2024, Discover 9 Free, Whole-Film Festive Movie Gems on Youtube</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-simplified-guide-to-incorporating-accurate-timestamps-in-youtube-videos/"><u>[New] Simplified Guide to Incorporating Accurate Timestamps in YouTube Videos</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-instagram-success-the-leading-25-tagging-tactics/"><u>[Updated] In 2024, Instagram Success The Leading 25 Tagging Tactics</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-spearheading-immersive-worlds-top-vr-minds/"><u>[Updated] Spearheading Immersive Worlds Top VR Minds</u></a></li>
-<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-htc-u23-pro-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your HTC U23 Pro Location Settings | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/forge-partnerships-from-initial-contact-to-final-deal-on-youtube/"><u>Forge Partnerships From Initial Contact to Final Deal on Youtube</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-xiaomi-14-phone-without-password-by-drfone-android/"><u>In 2024, How To Unlock Xiaomi 14 Phone Without Password?</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-proven-strategies-to-capture-and-archive-ps3-games/"><u>[New] In 2024, Proven Strategies to Capture and Archive PS3 Games</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-instagram-reel-downloads-quick-save-methods/"><u>[New] Instagram Reel Downloads Quick Save Methods</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-invisible-observers-the-ultimate-list-of-apps/"><u>[New] Invisible Observers The Ultimate List of Apps</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-keeping-track-of-changed-followers-on-instagram/"><u>[New] Keeping Track of Changed Followers on Instagram</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/1716068691809-updated-2024-approved-expert-picks-top-12-screen-recording-software-no-time-limit/"><u>[Updated] 2024 Approved Expert Picks Top 12 Screen Recording Software, No Time Limit!</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-ultimate-10-royale-duelists-arena/"><u>[Updated] In 2024, Ultimate 10 Royale Duelists' Arena</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-instagram-chronicles-expert-tips-for-story-downloads/"><u>[Updated] Instagram Chronicles Expert Tips for Story Downloads</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-instagram-harmony-understanding-rights/"><u>[Updated] Instagram Harmony Understanding Rights</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-crafting-a-unique-online-presence-youtube-edition/"><u>2024 Approved Crafting a Unique Online Presence YouTube Edition</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-instagram-to-origins-the-step-by-step-image-trackback/"><u>2024 Approved Instagram to Origins The Step-by-Step Image Trackback</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-instagram-video-conversion-unlocking-the-mp3-potential/"><u>2024 Approved Instagram Video Conversion - Unlocking the MP3 Potential</u></a></li>
+<li><a href="https://fox-http.techidaily.com/beacon-of-ringtone-richness-online-for-2024/"><u>Beacon of Ringtone Richness Online for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/comprehensive-guide-overcoming-black-screen-troubles-in-your-windows-11-system/"><u>Comprehensive Guide: Overcoming Black Screen Troubles in Your Windows 11 System</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-3-solutions-to-find-your-apple-iphone-se-2022-current-location-of-a-mobile-number-drfone-by-drfone-virtual-ios/"><u>In 2024, 3 Solutions to Find Your Apple iPhone SE (2022) Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-with-location-spoofer-on-vivo-v27-drfone-by-drfone-virtual-android/"><u>In 2024, How To Simulate GPS Movement With Location Spoofer On Vivo V27? | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/insta-hack-top-underrated-tips-and-tricks-for-2024/"><u>Insta-Hack Top Underrated Tips and Tricks for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/instaharmony-androidplusios-photo-video-alchemy-for-2024/"><u>InstaHarmony Android+iOS Photo-Video Alchemy for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/top-strategies-for-transforming-mpeg-content-into-advanced-h264-format/"><u>Top Strategies for Transforming MPEG Content Into Advanced H.264 Format</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/unlocking-content-discovery-with-instagram-hashtags/"><u>Unlocking Content Discovery with Instagram Hashtags</u></a></li>
 </ul></div>
 
