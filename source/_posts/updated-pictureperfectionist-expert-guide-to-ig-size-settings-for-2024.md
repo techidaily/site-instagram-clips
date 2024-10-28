@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] PicturePerfectionist  Expert Guide to IG Size Settings for 2024\""
-date: 2024-10-15T16:10:08.857Z
-updated: 2024-10-22T16:13:11.295Z
+date: 2024-10-25T06:48:04.009Z
+updated: 2024-10-27T22:01:07.954Z
 tags:
   - ai video
   - ai instagram
@@ -46,10 +46,10 @@ Duration of Videos on Instagram
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Best Image Sizes for Instagram Posts
@@ -61,10 +61,16 @@ A couple of years ago, Instagram has finally allowed its users to upload images 
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
@@ -92,10 +98,10 @@ The profile pictures on Instagram are tiny, and the optimum size for them is 160
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -113,14 +119,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-unlocking-visual-impact-insta-video-tips/"><u>[New] 2024 Approved Unlocking Visual Impact Insta Video Tips</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-harmonizing-hit-hits-building-the-perfect-youtube-soundtrack/"><u>[New] In 2024, Harmonizing Hit Hits Building the Perfect YouTube Soundtrack</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/he-definitive-list-youtubes-premier-making-up-masters/"><u>[New] The Definitive List YouTube's Premier Making-Up Masters</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-from-tiktok-to-instagram-strategies-to-amplify-your-reels-virality-for-2024/"><u>[Updated] From TikTok to Instagram Strategies to Amplify Your Reel's Virality for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-how-to-add-border-to-instagram-photos-for-2024/"><u>[Updated] How to Add Border to Instagram Photos for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/charting-the-course-of-viral-stocks-and-stories-for-2024/"><u>Charting the Course of Viral Stocks & Stories for 2024</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-unlock-iphone-11-pro-without-passcode-easily-drfone-by-drfone-ios/"><u>In 2024, Unlock iPhone 11 Pro Without Passcode Easily | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/sifting-through-the-elements-of-instagram-stories-for-2024/"><u>Sifting Through the Elements of Instagram Stories for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/srt-unveiled-essential-information-for-all-ages-for-2024/"><u>SRT Unveiled Essential Information for All Ages for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-authoritative-guide-to-premium-auto-camera-tech/"><u>[New] Authoritative Guide to Premium Auto Camera Tech</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-quick-reference-guide-to-screencastifys-tools/"><u>[New] In 2024, Quick Reference Guide to Screencastify's Tools</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-navigating-instagram-trends-with-key-tags/"><u>[New] Navigating #Instagram Trends with Key Tags</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-nurturing-audience-growth-mastering-live-streaming-with-onestream-for-2024/"><u>[New] Nurturing Audience Growth Mastering Live Streaming with OneStream for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/our-ultimate-source-for-online-video-to-mp3-downloads-for-2024/"><u>[New] Your Ultimate Source for Online Video to MP3 Downloads for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-navigate-instagram-video-problems-with-ease/"><u>[Updated] Navigate Instagram Video Problems with Ease</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-navigating-instagrams-latest-filters-a-year-round-guide/"><u>[Updated] Navigating Instagram's Latest Filters A Year-Round Guide</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-mastering-your-content-choose-these-top-10-reel-apps/"><u>2024 Approved Mastering Your Content Choose These Top 10 Reel Apps</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-optimizing-engagement-how-to-block-on-insta/"><u>2024 Approved Optimizing Engagement How to Block on Insta</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/2024s-elite-armor-expertly-tested-and-reviewed-best-case-options-for-iphone-16-and-pro-models-zdnet/"><u>2024'S Elite Armor: Expertly Tested and Reviewed Best Case Options for iPhone 16 and Pro Models | ZDNET</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-highest-quality-costless-clocks/"><u>In 2024, Highest Quality Costless Clocks</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-navigating-instagram-data-a-complete-analysis-for-businesses-and-individuals/"><u>In 2024, Navigating Instagram Data A Complete Analysis for Businesses and Individuals</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/navigating-melodic-waters-a-legal-guide-on-instagram-for-2024/"><u>Navigating Melodic Waters A Legal Guide on Instagram for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/top-10-solutions-to-resolve-stray-game-not-launching/"><u>Top 10 Solutions to Resolve Stray Game Not Launching</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlocking-made-easy-the-best-10-apps-for-unlocking-your-lenovo-thinkphone-device-by-drfone-android/"><u>Unlocking Made Easy The Best 10 Apps for Unlocking Your Lenovo ThinkPhone Device</u></a></li>
+<li><a href="https://win11.techidaily.com/your-on-premise-window-to-a-costless-chatgpt-clone-via-gpt4all/"><u>Your On-Premise Window to a Costless ChatGPT Clone via GPT4All</u></a></li>
 </ul></div>
 

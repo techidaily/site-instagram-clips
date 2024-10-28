@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] PictureProfessional  Expert Guide to Adjusting IG Content Sizes\""
-date: 2024-10-15T17:16:23.371Z
-updated: 2024-10-22T17:37:40.177Z
+date: 2024-10-24T11:05:13.215Z
+updated: 2024-10-27T21:09:57.443Z
 tags:
   - ai video
   - ai instagram
@@ -46,10 +46,16 @@ Duration of Videos on Instagram
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Best Image Sizes for Instagram Posts
@@ -61,10 +67,10 @@ A couple of years ago, Instagram has finally allowed its users to upload images 
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
@@ -92,10 +98,10 @@ The profile pictures on Instagram are tiny, and the optimum size for them is 160
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -113,21 +119,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-top-ten-recommendations-for-dynamic-instagram-grid-crafting/"><u>[New] 2024 Approved Top Ten Recommendations for Dynamic Instagram Grid Crafting</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-fbx-for-the-aspiring-gamer-filmmaker-for-2024/"><u>[New] FBX for the Aspiring Gamer Filmmaker for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-how-to-make-every-instagram-story-count-your-complete-guide/"><u>[New] In 2024, How to Make Every Instagram Story Count – Your Complete Guide</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-swift-methodology-to-weed-out-fake-pals-from-insta-network/"><u>[New] In 2024, Swift Methodology to Weed Out Fake Pals From Insta Network</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-twitters-required-video-aspect-ratios-explained/"><u>[New] In 2024, Twitter's Required Video Aspect Ratios Explained</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-top-5-xbox-external-hard-drive-you-can-find/"><u>[New] Top 5 Xbox External Hard Drive You Can Find</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-invest-in-ig-success-the-top-6-secure-money-methods/"><u>[Updated] 2024 Approved Invest in IG Success The Top 6 Secure Money Methods</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-sharing-success-replicating-content-on-insta-for-2024/"><u>[Updated] Sharing Success Replicating Content on Insta for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-sonic-social-media-merging-melodies-and-memes-on-instagram-for-2024/"><u>[Updated] Sonic Social Media Merging Melodies and Memes on Instagram for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-sony-xperia-1-v-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Sony Xperia 1 V | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/exploring-rayman-legends-an-immersive-classic-2d-gaming-experience/"><u>Exploring Rayman Legends: An Immersive Classic 2D Gaming Experience</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/taking-igtv-viewership-to-new-peaks-5-innovative-approaches-for-2024/"><u>Taking IGTV Viewership to New Peaks 5 Innovative Approaches for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/top-free-methods-to-save-xvideos-videos-and-watch-them-anywhere-on-or-offline/"><u>Top FREE Methods to Save XVideos Videos and Watch Them Anywhere, On or Offline!</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/unlock-apple-iphone-8-plus-with-forgotten-passcode-different-methods-you-can-try-drfone-by-drfone-ios/"><u>Unlock Apple iPhone 8 Plus With Forgotten Passcode Different Methods You Can Try | Dr.fone</u></a></li>
-<li><a href="https://fox-access.techidaily.com/virtual-vistas-of-video-select-top-6-apps-for-macos-big-surs-editors/"><u>Virtual Vistas of Video Select Top 6 Apps for macOS Big Sur's Editors</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/why-does-instagram-keep-flipping-my-video-for-2024/"><u>Why Does Instagram Keep Flipping My Video for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-mastering-the-underestimated-aspects-of-instagram-for-2024/"><u>[New] Mastering the Underestimated Aspects of Instagram for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-stand-out-with-visual-flair-bordered-video-tutorials/"><u>[New] Stand Out with Visual Flair Bordered Video Tutorials</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-and-install-hp-deskjet-2755e-drivers-for-smooth-windows-printing/"><u>Download & Install HP Deskjet 2755E Drivers for Smooth Windows Printing</u></a></li>
+<li><a href="https://win-blog.techidaily.com/enhancing-your-play-experience-eliminating-crashes-and-glitches-in-genshin-impact-on-pc/"><u>Enhancing Your Play Experience: Eliminating Crashes and Glitches in Genshin Impact on PC</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-poco-contacts-an-easy-method-explained-by-fonelab-android-recover-contacts/"><u>How to Restore Deleted Poco Contacts An Easy Method Explained.</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-seamless-date-insertion-into-photo-editing/"><u>In 2024, Seamless Date Insertion Into Photo Editing</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-square-video-production-masterclass-in-imovie-for-social-media/"><u>In 2024, Square Video Production Masterclass in iMovie for Social Media</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-step-by-step-guide-to-seamlessly-replace-backgrounds-on-instagram/"><u>In 2024, Step-by-Step Guide to Seamlessly Replace Backgrounds on Instagram</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/paww-hearing-delight-3-analysis-top-value-earbuds/"><u>Paww Hearing Delight 3 Analysis: Top-Value Earbuds</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/saving-instagram-content-easy-no-frill-methods-exposed-for-2024/"><u>Saving Instagram Content Easy, No-Frill Methods Exposed for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/seamless-slideshow-on-ig-for-2024/"><u>Seamless SlideShow on IG for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/sharing-knowledge-via-instagrams-hyperlink-haven-for-2024/"><u>Sharing Knowledge via Instagram's Hyperlink Haven for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/spotting-instagram-followers-lost-for-2024/"><u>Spotting Instagram Followers Lost for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-complete-audio-editors-journey-through-garageband-for-2024/"><u>The Complete Audio Editor's Journey Through GarageBand for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-6-appsservices-to-trace-any-xiaomi-civi-3-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>Top 6 Apps/Services to Trace Any Xiaomi Civi 3 Location By Mobile Number | Dr.fone</u></a></li>
 </ul></div>
 

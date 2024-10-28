@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Step-by-Step to Turn Off IGTV\""
-date: 2024-10-21T17:15:55.261Z
-updated: 2024-10-22T17:35:21.266Z
+date: 2024-10-21T01:54:12.883Z
+updated: 2024-10-28T08:28:54.697Z
 tags:
   - ai video
   - ai instagram
@@ -34,10 +34,16 @@ thumbnail: https://thmb.techidaily.com/359889cca1fac1d0cab50a3e170aa122469e4b901
  Select the **Push Notifications option**, and then scroll all the way down to the **IGTV Video Updates section** of the Push Notifications menu. Tap on the **Off** option, and you’re done, you’ll no longer receive notifications from IGTV. If at any point you change your mind and you decide that you want to receive notifications from IGTV you can return to the Push Notifications menu and select the **From People I Follow** or **From Everyone** option in the IGTV Video Update section of the Push Notifications menu.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Hide IGTV Videos?
@@ -55,10 +61,16 @@ thumbnail: https://thmb.techidaily.com/359889cca1fac1d0cab50a3e170aa122469e4b901
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -76,19 +88,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-choosing-the-right-platform-a-look-at-vimeo-youtube-and-dailymotion-for-2024/"><u>[New] Choosing the Right Platform A Look at Vimeo, YouTube & DailyMotion for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-captivating-viewers-top-10-creative-yt-reaction-tactics/"><u>[New] In 2024, Captivating Viewers Top 10 Creative YT Reaction Tactics</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-must-watch-10-unique-igtv-content-formats-for-brands-for-2024/"><u>[New] Must-Watch 10 Unique IGTV Content Formats for Brands for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-navigating-mac-screen-record-with-handy-keystrokes-for-2024/"><u>[New] Navigating Mac Screen Record with Handy Keystrokes for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-mastering-instagram-fcpxs-guide-to-vertical-video-editing/"><u>[Updated] 2024 Approved Mastering Instagram FCPX's Guide to Vertical Video Editing</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-mastering-multimedia-posts-multiphotograph-and-video-uploads-on-instagram/"><u>[Updated] 2024 Approved Mastering Multimedia Posts Multiphotograph & Video Uploads on Instagram</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-leading-talents-premier-instragram-hlv-creators/"><u>[Updated] In 2024, Leading Talents Premier Instragram HLV Creators</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-mastering-instagram-filters-applying-them-to-old-memories/"><u>[Updated] In 2024, Mastering Instagram Filters Applying Them to Old Memories</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-maximize-engagement-with-ideal-video-dimensions-on-insta-for-2024/"><u>[Updated] Maximize Engagement with Ideal Video Dimensions on Insta for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/adding-chronological-markers-to-youtube-media/"><u>Adding Chronological Markers to YouTube Media</u></a></li>
-<li><a href="https://location-social.techidaily.com/edit-and-send-fake-location-on-telegram-for-your-poco-c55-in-3-ways-drfone-by-drfone-virtual-android/"><u>Edit and Send Fake Location on Telegram For your Poco C55 in 3 Ways | Dr.fone</u></a></li>
-<li><a href="https://win-answers.techidaily.com/emergency-fixes-for-severe-dev-errors-impacting-call-of-dutys-modern-warfare-and-warzone-titles/"><u>Emergency Fixes for Severe Dev Errors Impacting Call of Duty's Modern Warfare & Warzone Titles</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-itel-a70-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Itel A70 to Samsung Phone | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/1723808024449-speed-hacks-supercharge-minecraft-gameplay/"><u>Speed Hacks - Supercharge Minecraft Gameplay</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-editing-savvy-streamlining-your-youtube-video-lengths/"><u>[New] 2024 Approved Editing Savvy Streamlining Your YouTube Video Lengths</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-harvest-haven-top-10-sims-like-stardew-valley/"><u>[New] Harvest Haven Top 10 Sims Like Stardew Valley</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-revolutionize-your-shooting-essential-camera-gear-guide/"><u>[New] Revolutionize Your Shooting Essential Camera Gear Guide</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-top-30-voice-modification-solutions-vtubers-guidebook/"><u>[New] Top 30 Voice Modification Solutions VTubers Guidebook</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-optimize-attention-strategies-for-shorts-on-youtube/"><u>[Updated] Optimize Attention Strategies for Shorts on YouTube</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-pro-tips-for-captivating-vr-videos-top-9-strategies-for-2024/"><u>[Updated] Pro Tips for Captivating VR Videos Top 9 Strategies for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/harnessing-the-power-of-hdr-an-advanced-guide-to-ps/"><u>Harnessing the Power of HDR An Advanced Guide to PS</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-vivo-y27s-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For Vivo Y27s Phones</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/instagram-filter-techniques-for-a-stunning-feed/"><u>Instagram Filter Techniques for a Stunning Feed</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/meme-mastery-strategies-for-engaging-audiences-with-fb-and-instagram-videos/"><u>Meme Mastery Strategies for Engaging Audiences with FB & Instagram Videos</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/navigating-the-social-landscape-choose-todays-best-tags/"><u>Navigating the Social Landscape Choose Today's Best Tags</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/overcoming-instagrams-video-length-restrictions/"><u>Overcoming Instagram's Video Length Restrictions</u></a></li>
 </ul></div>
 

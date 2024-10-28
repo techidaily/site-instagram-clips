@@ -1,7 +1,7 @@
 ---
 title: "Infusing Beats Into IG Story Posts Without Limits"
-date: 2024-08-11T02:52:34.221Z
-updated: 2024-08-12T02:52:34.221Z
+date: 2024-10-22T02:23:57.568Z
+updated: 2024-10-27T19:13:12.063Z
 tags:
   - ai video
   - ai instagram
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/d940e7732f01996ef0ed9bff8746265de4ef97bd2
 
 # How to Add Music to Instagram Story?
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -51,9 +48,6 @@ On the top right corner of your feed, click **on the + sign** to add images or v
 
 After you have added a filter or edited your story, **click on the sticker icon**. You will get a few sticker options, use the search bar to locate the music sticker and then click on it.
 
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Instagram Music  Sticker](https://images.wondershare.com/filmora/article-images/instagram-music-sticker.jpg)
 
 **Step 3: Add music**
@@ -76,6 +70,13 @@ You can tap on the music sticker to change the icon. You can also switch to the 
 
 You can also press the color wheel at the top corner of the screen to adjust the color of music stickers and the lyrics as well.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Add Lyrics to Stories through Instagram Music?
 
 Some songs have options to play music with lyrics to the story. Here is how you can add lyrics.
@@ -92,9 +93,6 @@ If you want to add lyrics, you can press the letter sign before posting.
 
 Before you post a story or send it to your close friends, you can enlarge or minimize the music sticker size and change its placement on the screen.
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ![Add Lyrics to Instagram Music](https://images.wondershare.com/filmora/article-images/add-lyrics-to-instagram-music.jpg)
 
 ## Part 2: How to Add Music to Instagram without Music Stickers?
@@ -115,10 +113,6 @@ Spotify has millions of songs to listen to and add to your library. You can post
 
 When you click on the three dots, you will be presented with a few options; click **on share**. After clicking on share, you will see a few apps options; click **on Instagram stories**.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![Share Spotify Music to Instagram Story](https://images.wondershare.com/filmora/article-images/share-spotify-music-to-instagram-stories.jpg)
 
 **Step 3: Post**
@@ -126,8 +120,12 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 When you **click on the Instagram stories option**, the cover art will automatically upload to your stories. You can add a filter or change its placement before posting.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Method 2: Upload music on Instagram stories through SoundCloud
 
 SoundCloud is one of the apps that we all have used at some point in our lives to listen to our favorite music tracks. It also has options to make separate genre playlists to listen to according to your mood. On top of all, you can now add music to Instagram stories via SoundCloud in some simple steps.
@@ -140,15 +138,18 @@ S**tep 2: Select Instagram stories**
 
 When you **select the ellipsis sign,** you will see a few options and an Instagram logo. You will see stories written beneath the logo; click on **Instagram stories**.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 ![Share SoundCloud Music to Instagram Story](https://images.wondershare.com/filmora/article-images/share-soundcloud-music-instagram.jpg)
 
 **Step 3: Post**
 
 The song will be shared to the stories, **make changes you want, and post**.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method 3: Share Music to Instagram through Apple Music
 
@@ -170,6 +171,13 @@ Note: You might have to click on "More" on some smartphones.
 
 ![Share Apple Music to Instagram Story](https://images.wondershare.com/filmora/article-images/share-apple-music-instagram.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4: Post on stories**
 
 The last thing you will do is post the cover art and the song. People can click on the Apple Music icon to listen to it there.
@@ -190,9 +198,6 @@ You can select a video or photo of your choice either from your smartphone's gal
 
 Once selected, you can edit and customize that video or photo as per your choice. You can add music, text, effects, animations, and even crop the frame as you want.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ![Add Music to Filmora](https://images.wondershare.com/filmora/article-images/add-music-to-video-filmorago.jpg)
 
 **Step 4: Share the** **Video** **with Music to Instagram**
@@ -202,8 +207,12 @@ Finally, you can share your edited Instagram Story Video to your Instagram accou
 ![Share video with Music to Ins](https://images.wondershare.com/filmora/article-images/share-video-with-music-to-instagram.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Frequently Asked Questions About Instagram Music
 
 1. **Why can't I add music to my Instagram Story?**
@@ -218,9 +227,6 @@ No, it is not possible to add music to your story after posting it. You have to 
 
 If you wish to add music to your Instagram stories, there are many ways to do it, and we have mentioned a few quick methods. Instantly make your stories compelling and worth watching simply by adding a music sticker. If you are trying to gain traction on Instagram, music on stories could be one of the best ways to do it.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -229,12 +235,27 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-8-best-instagram-scheduler-for-android-and-iphone/"><u>[New] 8 Best Instagram Scheduler for Android and iPhone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-a-step-by-step-approach-to-enhancing-your-instagram-video-sizes/"><u>[Updated] A Step-by-Step Approach to Enhancing Your Instagram Video Sizes</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-achieve-superior-mp4-output-from-instagram-videos-2-ways/"><u>[Updated] Achieve Superior MP4 Output From Instagram Videos 2 Ways</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-amplify-engagement-unique-ig-questions-for-lives/"><u>[Updated] Amplify Engagement Unique IG Questions for Lives</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-in-2024-strategic-message-management-expert-tips-for-discord-pinning/"><u>[Updated] In 2024, Strategic Message Management Expert Tips for Discord Pinning</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/bulk-posting-made-easy-a-comprehensive-instagram-tutorial-for-2024/"><u>Bulk Posting Made Easy A Comprehensive Instagram Tutorial for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/chuckle-creator-app-for-2024/"><u>Chuckle Creator App for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/comedic-craftsmanship-unlocking-gags-at-zero-cost-for-2024/"><u>Comedic Craftsmanship Unlocking Gags at Zero Cost for 2024</u></a></li>
+<li><a href="https://fox-zaraz.techidaily.com/depasser-la-lenteur-de-copie-des-fichiers-sous-windows-10-8-solutions-rapides-avec-resolu/"><u>Dépasser La Lenteur De Copie Des Fichiers Sous Windows 10 : 8 Solutions Rapides Avec Résolu</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-techniques-to-transfer-data-from-lava-agni-2-5g-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Techniques to Transfer Data from Lava Agni 2 5G to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-charting-a-course-for-influential-insights-within-your-niche/"><u>In 2024, Charting a Course for Influential Insights Within Your Niche</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/meet-the-motorola-one-a-stunning-iphone-alternative-without-breaking-your-bank/"><u>Meet the Motorola One: A Stunning iPhone Alternative Without Breaking Your Bank</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-guide-fixing-non-functional-fn-key-issues/"><u>Troubleshooting Guide: Fixing Non-Functional Fn Key Issues</u></a></li>
+</ul></div>
 

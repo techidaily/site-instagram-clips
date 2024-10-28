@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, The Insider's Guide to Instagram’s Chroma Key Effect"
-date: 2024-10-17T16:19:26.381Z
-updated: 2024-10-22T16:14:30.063Z
+date: 2024-10-23T21:07:24.349Z
+updated: 2024-10-28T04:18:08.126Z
 tags:
   - ai video
   - ai instagram
@@ -47,13 +47,6 @@ If you have not heard of the green screen effect of Instagram yet, then don't wo
 
 First things first, launch the Instagram app on your phone to get started. Now click on the little **\+** icon on your profile picture to start an Instagram story.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Step 2: Browse Effect Option
 
 You'll see an effect prompt, and then you need to swipe to the right until you get the **Browse Effects** option.
@@ -63,6 +56,13 @@ You'll see an effect prompt, and then you need to swipe to the right until you g
 Now tap on the search option and type **Green Screen.** Several effects will come after the search, but we need the Instagram green-screen effect, i.e., the one offered by Instagram. Bookmark that effect to save it for use.
 
 ![Ins Green Screen Filters](https://images.wondershare.com/filmora/article-images/instagram-green-screen-filters.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Step 4: Tap on Add Media
 
@@ -75,6 +75,20 @@ Tap on the **Add Media** option to add the background. Upload a video or an imag
 Now either add it to your Instagram story by tapping on the bottom left option or download it to your phone's library by clicking on the **Download** option.
 
 ![download Ins Green Screen video](https://images.wondershare.com/filmora/article-images/download-green-screen-video-from-instagram.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: How to Use the Green Screen on Instagram Reel
 
@@ -96,13 +110,6 @@ Click on **Profile Picture** on the top left, named as your story, to start it. 
 
 Now select the **Reels** option. A panel will appear on the right side, and then you need to choose **Effects** from it. Remember that the green screen effect is not already provided, so you have to search for it. Swipe all the way to the right until you get to the **Browse Effects** option.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Step 4: Search Green Screen
 
 Now, search **Green Screen** in the search menu and click the first option to see the official green screen ig effect. Now **download** the effect using the download the option.
@@ -116,17 +123,10 @@ The video below shares some of the interesting green screen tricks, don't miss i
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
-  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: How to Remove Background from Instagram Video without Green Effect Effects
@@ -143,13 +143,6 @@ However, Instagram also supports landscape videos, portrait videos, and square v
 
 **Al Portrait in Filmora** is the best way to remove the background of an Instagram video without Green Screen Instagram effects. It can remove the background of IGTV video without affecting its movement and lighting. The following steps can assist you in knowing how to use it for removing the background.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Step 1: Import Media
 
 Import the media you want to upload on Instagram to Filmora. Then select **AI Portrait** from **Effects** in the menu.
@@ -157,10 +150,10 @@ Import the media you want to upload on Instagram to Filmora. Then select **AI Po
 ![add media to Filmora](https://images.wondershare.com/filmora/article-images/add-media-remove-video-bg.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Step 2: Add the AI Portrait Effect to Remove Video Background
@@ -169,35 +162,35 @@ Al Portrait is not a free module, so either you have to **Purchase** it or **Try
 
 ![add human segmentation effects in  Filmora](https://images.wondershare.com/filmora/article-images/add-human-segmentation-to-remove-background.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 3: Adjust Effects
 
 Different effects have different settings so that you can adjust the effects according to your convenience. You have to **double click** the video in the timeline and then go to the Video Effects to adjust the **Percentage, Edge thickness, Edge Feature, and Alpha** setting of the effect. You can also restore the changes you've made by selecting the **Restore** button.
 
 ![add human segmentation effects ](https://images.wondershare.com/filmora/article-images/human-segmentation-effects-adjust.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Now you have gotten a video without a background, you can now add your own background to compose them together.
 
 ![compose green screen video ](https://images.wondershare.com/filmora/article-images/compose-video-without-green-screen.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Step 4: Export the video
 
 Once you are done with all that, you need to export the video to the desktop first and then upload it to Instagram from the desktop. Watch the video tutorial below and find out more creative usage of Filmora AI Portrait.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Conclusion**
 
@@ -206,6 +199,13 @@ Instagram has opened up a gateway by launching the **green screen Instagram** ef
 To solve this problem, we have covered a step-by-step guide for using the green screen effect on Instagram. We highly recommend Al portrait of Filmora to remove the background seamlessly and quickly to achieve a high-quality final video.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -222,21 +222,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-perfecting-slow-motion-cinematography-for-social-media-engagement-on-instagram/"><u>[New] 2024 Approved Perfecting Slow Motion Cinematography for Social Media Engagement on Instagram</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-pioneering-popularity-with-powerful-instagram-videos/"><u>[New] 2024 Approved Pioneering Popularity with Powerful Instagram Videos</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-professional-insights-for-perfecting-your-instagram-aesthetics-for-2024/"><u>[New] Professional Insights for Perfecting Your Instagram Aesthetics for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-pictureperfect-tips-for-instagrams-image-sizing/"><u>[Updated] 2024 Approved PicturePerfect Tips for Instagram's Image Sizing</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-pinpointing-pioneers-a-strategic-look-at-influencers-on-insta/"><u>[Updated] 2024 Approved Pinpointing Pioneers A Strategic Look at Influencers on Insta</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-pioneering-storytelling-with-insta-and-youtube-fusion/"><u>[Updated] 2024 Approved Pioneering Storytelling with Insta & YouTube Fusion</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-pixels-of-reality-navigating-the-world-of-instagram-authenticity/"><u>[Updated] 2024 Approved Pixels of Reality Navigating the World of Instagram Authenticity</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-designing-customized-instagram-feed-narratives/"><u>[Updated] In 2024, Designing Customized Instagram Feed Narratives</u></a></li>
-<li><a href="https://win-extraordinary.techidaily.com/gratis-online-f4v-naar-mp3-vervangen-professioneel-door-movavi/"><u>Gratis Online F4V Naar MP3 Vervangen - Professioneel Door Movavi</u></a></li>
-<li><a href="https://program-issues.techidaily.com/how-to-overcome-constant-stutter-in-deathloop-a-guide-for-xbox-series-xs-ps5-and-pc-players/"><u>How to Overcome Constant Stutter in Deathloop: A Guide for Xbox Series X|S, PS5, and PC Players</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-xiaomi-14-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Xiaomi 14 | Dr.fone</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/julys-essential-resource-newly-revealed-linksys-default-passwords-guide/"><u>July's Essential Resource: Newly Revealed Linksys Default Passwords Guide</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ating-creator-studio-your-expert-manual-for-2024/"><u>Navigating Creator Studio Your Expert Manual for 2024</u></a></li>
-<li><a href="https://win-blog.techidaily.com/red-dead-redemption-similar-problems-solutions-and-workarounds-discovered/"><u>Red Dead Redemption # Similar Problems, Solutions & Workarounds Discovered!</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/spotlight-on-whats-not-there-a-critical-review-of-samsung-galaxy-tab-a-2020s-key-omissions/"><u>Spotlight on What's Not There - A Critical Review of Samsung Galaxy Tab A (2020)'S Key Omissions</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/streamlined-file-management-overcoming-o365-errors-on-win-11/"><u>Streamlined File Management: Overcoming O365 Errors on Win 11</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-top-10-tools-to-perfect-your-igtv-edits/"><u>[New] 2024 Approved Top 10 Tools to Perfect Your IGTV Edits</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-transform-your-account-with-these-10-must-have-ig-tools/"><u>[New] 2024 Approved Transform Your Account with These 10 Must-Have IG Tools</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-three-key-strategies-to-frame-your-insta-films-better/"><u>[New] In 2024, Three Key Strategies to Frame Your Insta Films Better</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-green-screen-mastery-on-youtube-ideas-unleashed/"><u>[Updated] 2024 Approved Green Screen Mastery on YouTube - Ideas Unleashed</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-maximizing-marketing-the-best-highlight-techniques-for-brands/"><u>[Updated] In 2024, Maximizing Marketing The Best Highlight Techniques for Brands</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-the-symphony-of-stories-music-tips-for-social-media-gems/"><u>[Updated] In 2024, The Symphony of Stories Music Tips for Social Media Gems</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-the-social-lift-transform-from-zero-to-millionth-follower-in-months-for-2024/"><u>[Updated] The Social Lift Transform From Zero to Millionth Follower in Months for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-transform-photos-with-the-premier-11-edits-for-2024/"><u>[Updated] Transform Photos with the Premier 11 Edits for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/android-users-ultimate-selection-top-10-fb-video-extractor-tools-for-2024/"><u>Android Users' Ultimate Selection Top 10 FB Video Extractor Tools for 2024</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/blue-screen-error-repairing-the-broken-pfn-list-issue-in-windows-11-systems/"><u>Blue Screen Error - Repairing the Broken PFN List Issue in Windows 11 Systems</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-how-to-get-gratis-safe-vlc-media-player-on-mac-os-x-devices/"><u>In 2024, How to Get Gratis, Safe VLC Media Player on Mac OS X Devices</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/macs-premier-choices-8-leading-free-and-paid-data-recovery-tools/"><u>Mac's Premier Choices: 8 Leading Free & Paid Data Recovery Tools</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/qled-vs-oled-tv-technology-explained-unveiling-key-distinctions/"><u>QLED Vs. OLED TV Technology Explained: Unveiling Key Distinctions</u></a></li>
 </ul></div>
 

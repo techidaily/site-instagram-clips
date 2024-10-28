@@ -1,7 +1,7 @@
 ---
 title: "[New] The Artisan’s Guide to Instagram Stories Preservation"
-date: 2024-10-18T17:45:01.386Z
-updated: 2024-10-22T17:32:51.742Z
+date: 2024-10-22T19:50:53.399Z
+updated: 2024-10-28T08:13:41.782Z
 tags:
   - ai video
   - ai instagram
@@ -86,23 +86,9 @@ Stories Archive is a rich library full of the oldest to latest stories. It is co
 
 ![using stories archive to download Instagram Highlights - find story highlight](https://images.wondershare.com/filmora/article-images/find-story-highlight6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 3\. Click the story you wish to save and tap the three dots in the bottom left corner.
 
 ![Download Instagram Highlights using stories archive - tap to download highlights](https://images.wondershare.com/filmora/article-images/tap-more-highlight-download7.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 4\. Then click on '**Save photo/video**' to download it on your phone instantly.
 
@@ -124,23 +110,44 @@ If you haven't created an Instagram Highlight yet, hop on and make one. There ar
 
 ![tap story highlights button](https://images.wondershare.com/filmora/article-images/tap-story-highlights-button9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Choose a story/stories to create a highlight and click 'Next.'
 
 ![create new instagram highlight](https://images.wondershare.com/filmora/article-images/create-new-instagram-highlight-10.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Enter Highlight name and 'Edit Cover' by choosing a story.
 
 ![edit instagram highlight cover](https://images.wondershare.com/filmora/article-images/edit-highlight-cover11.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Tap 'Done', and add your own Instagram highlight.
 
 ![finish creating instagram highlight](https://images.wondershare.com/filmora/article-images/finish-create-instagram-highlight12.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Bonus Tip 2: Best Instagram Video Editor — [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -149,20 +156,13 @@ What is the best way to attract an audience on Instagram? Make unique videos! Le
 
 [![Download Filmora Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -206,14 +206,14 @@ Go on, craft, or download Instagram highlights and enjoy. Good luck, Instagramme
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-[![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+[![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
 
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -234,20 +234,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-crafting-videos-youtube-tools-and-more/"><u>[New] 2024 Approved Crafting Videos YouTube Tools and More</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-comprehensive-directory-of-inexpensive-stock-images-for-2024/"><u>[New] Comprehensive Directory of Inexpensive Stock Images for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-iterative-feedback/"><u>[New] Iterative Feedback</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-syncopated-social-media-adding-melodies-to-reels/"><u>[New] Syncopated Social Media Adding Melodies to Reels</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-the-angle-artistry-guide-mastering-the-craft-of-video-spinning-on-social-sites/"><u>[New] The Angle Artistry Guide Mastering the Craft of Video Spinning on Social Sites</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-revamping-reality-the-premier-11-instagram-edits/"><u>[Updated] Revamping Reality The Premier 11 Instagram Edits</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-stealth-instagram-story-viewing-guide-for-desktops-android-and-ios/"><u>[Updated] Stealth Instagram Story Viewing Guide for Desktops, Android & iOS</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-from-ordinary-to-stunning-photo-tile-magic/"><u>2024 Approved From Ordinary to Stunning Photo Tile Magic</u></a></li>
-<li><a href="https://blog-min.techidaily.com/free-online-converter-transform-gifs-into-png-format-with-ease-movavis-solution/"><u>Free Online Converter: Transform GIFs Into PNG Format with Ease – Movavi's Solution</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-facebook-video-glitch-how-to-spot-and-fix/"><u>In 2024, Facebook Video Glitch How to Spot & Fix</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-solved-move-from-vivo-s17-pro-to-ios-not-working-problems-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Solved Move from Vivo S17 Pro to iOS not Working Problems | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-strategizing-your-approach-highlight-and-story-downloads/"><u>In 2024, Strategizing Your Approach Highlight & Story Downloads</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-the-seekers-manual-a-comprehensive-approach-to-purchasing-high-definition-monitors/"><u>In 2024, The Seeker's Manual A Comprehensive Approach to Purchasing High-Definition Monitors</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/latest-ubuntu-2404-lts-release-free-stable-and-secure-linux-os-is-here/"><u>Latest Ubuntu 24.04 LTS Release: Free, Stable and Secure Linux OS Is Here!</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/simplifying-cross-platform-sharing-instagram-and-facebook-integration-for-2024/"><u>Simplifying Cross-Platform Sharing Instagram & Facebook Integration for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-ultimate-user-handbook-youtube-conduct-codes/"><u>[New] 2024 Approved Ultimate User Handbook YouTube Conduct Codes</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-unveiling-the-25-most-followed-insta-prodigies/"><u>[New] Unveiling the 25 Most-Followed Insta Prodigies</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-unveiling-the-best-practices-for-crafting-viral-instagram-reels/"><u>[New] Unveiling the Best Practices for Crafting Viral Instagram Reels</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-a-comprehensive-guide-downloading-from-instagram-to-iphone/"><u>[Updated] 2024 Approved A Comprehensive Guide Downloading From Instagram to iPhone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-maximizing-your-iphone-for-podcast-listening/"><u>[Updated] In 2024, Maximizing Your iPhone for Podcast Listening</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-streamline-your-gametime-with-9-platforms/"><u>[Updated] Streamline Your Gametime with #9 Platforms</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-unleashing-your-brand-potential-with-advanced-insights-on-instagram-data/"><u>[Updated] Unleashing Your Brand Potential with Advanced Insights on Instagram Data</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-unlock-new-horizons-best-6-instagram-reel-apps/"><u>[Updated] Unlock New Horizons Best 6 Instagram Reel Apps</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-unlocking-the-secrets-the-ultimate-guide-to-instagram-stories-mastery/"><u>[Updated] Unlocking the Secrets The Ultimate Guide to Instagram Stories Mastery</u></a></li>
+<li><a href="https://fox-http.techidaily.com/explore-the-hidden-depths-of-canvas-photo-editor/"><u>Explore the Hidden Depths of Canva's Photo Editor</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-pgsharp-legal-when-you-are-playing-pokemon-on-motorola-g24-power-drfone-by-drfone-virtual-android/"><u>In 2024, Is pgsharp legal when you are playing pokemon On Motorola G24 Power? | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/streamline-your-wedding-countdown-the-best-androidios-clock-apps-guide-for-2024/"><u>Streamline Your Wedding Countdown The Best Android/iOS Clock Apps Guide for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/toolwiz-explored-detailed-review-for-image-enthusiasts-for-2024/"><u>Toolwiz Explored Detailed Review for Image Enthusiasts for 2024</u></a></li>
 </ul></div>
 

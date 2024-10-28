@@ -1,7 +1,7 @@
 ---
 title: "[New] Expert Tips for Instagram Green Screen Shoots"
-date: 2024-10-17T17:02:29.001Z
-updated: 2024-10-22T17:42:18.316Z
+date: 2024-10-21T10:07:23.468Z
+updated: 2024-10-28T10:29:19.038Z
 tags:
   - ai video
   - ai instagram
@@ -47,15 +47,22 @@ If you have not heard of the green screen effect of Instagram yet, then don't wo
 
 First things first, launch the Instagram app on your phone to get started. Now click on the little **\+** icon on your profile picture to start an Instagram story.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 2: Browse Effect Option
 
 You'll see an effect prompt, and then you need to swipe to the right until you get the **Browse Effects** option.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Step 3: Search Green Screen
@@ -71,17 +78,16 @@ Tap on the **Add Media** option to add the background. Upload a video or an imag
 ![add Ins Green Screen Filters](https://images.wondershare.com/filmora/article-images/add-media-instagram-green-screen-filter.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Step 6: Add to the Story or Download it
@@ -89,13 +95,6 @@ Tap on the **Add Media** option to add the background. Upload a video or an imag
 Now either add it to your Instagram story by tapping on the bottom left option or download it to your phone's library by clicking on the **Download** option.
 
 ![download Ins Green Screen video](https://images.wondershare.com/filmora/article-images/download-green-screen-video-from-instagram.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: How to Use the Green Screen on Instagram Reel
 
@@ -113,6 +112,13 @@ You have to **launch the Instagram app** on your phone to use the green screen I
 
 Click on **Profile Picture** on the top left, named as your story, to start it. Now, swipe right until you see the **Reels** option.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 3: Select Reels
 
 Now select the **Reels** option. A panel will appear on the right side, and then you need to choose **Effects** from it. Remember that the green screen effect is not already provided, so you have to search for it. Swipe all the way to the right until you get to the **Browse Effects** option.
@@ -121,13 +127,6 @@ Now select the **Reels** option. A panel will appear on the right side, and then
 
 Now, search **Green Screen** in the search menu and click the first option to see the official green screen ig effect. Now **download** the effect using the download the option.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Step 5: Add Media
 
 Now upload your media using **Add Media** option. Now drag yourself where you want to see yourself. You can also add stickers or GIFs as a background. After that, you're all set for your Reels video.
@@ -135,6 +134,19 @@ Now upload your media using **Add Media** option. Now drag yourself where you wa
 The video below shares some of the interesting green screen tricks, don't miss it.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: How to Remove Background from Instagram Video without Green Effect Effects
 
@@ -156,18 +168,18 @@ Import the media you want to upload on Instagram to Filmora. Then select **AI Po
 
 ![add media to Filmora](https://images.wondershare.com/filmora/article-images/add-media-remove-video-bg.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Step 2: Add the AI Portrait Effect to Remove Video Background
 
 Al Portrait is not a free module, so either you have to **Purchase** it or **Try it for free**. There are various assets under AI Portrait, to remove the video background and isolate the human, you need to add Human Segmentation to the timeline. **Play the video** once to check the segmentation of the effects that you have applied to your video.
 
 ![add human segmentation effects in  Filmora](https://images.wondershare.com/filmora/article-images/add-human-segmentation-to-remove-background.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Step 3: Adjust Effects
 
@@ -175,16 +187,16 @@ Different effects have different settings so that you can adjust the effects acc
 
 ![add human segmentation effects ](https://images.wondershare.com/filmora/article-images/human-segmentation-effects-adjust.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Now you have gotten a video without a background, you can now add your own background to compose them together.
 
 ![compose green screen video ](https://images.wondershare.com/filmora/article-images/compose-video-without-green-screen.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Step 4: Export the video
 
@@ -193,10 +205,10 @@ Once you are done with all that, you need to export the video to the desktop fir
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Conclusion**
@@ -222,21 +234,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-tips-for-seamlessly-screening-instagram-stories/"><u>[New] Tips for Seamlessly Screening Instagram Stories</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-trimming-the-extras-a-practical-guide-to-instagram-video-edits/"><u>[New] Trimming the Extras A Practical Guide to Instagram Video Edits</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-unlocking-instagrams-hidden-filter-tools/"><u>[New] Unlocking Instagram's Hidden Filter Tools</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-accelerated-download-solutions-for-vimeo-files/"><u>[Updated] 2024 Approved Accelerated Download Solutions for Vimeo Files</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-master-list-highest-rated-4k-blu-ray-player-models/"><u>[Updated] 2024 Approved Master List Highest Rated 4K Blu-Ray Player Models</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-mastering-facebook-cover-videos-essential-insights/"><u>[Updated] 2024 Approved Mastering Facebook Cover Videos Essential Insights</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-countdown-chronicles-the-best-mobile-clocks-for-weddings/"><u>2024 Approved Countdown Chronicles The Best Mobile Clocks For Weddings</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-navigating-numbers-a-comprehensive-triad-strategy-for-monitoring-your-youtube-profitability/"><u>2024 Approved Navigating Numbers A Comprehensive Triad Strategy for Monitoring Your YouTube Profitability</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-unlock-instagram-speed-mastering-video-and-likes/"><u>2024 Approved Unlock Instagram Speed - Mastering Video and Likes</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-unveil-world-written-large-innovative-zooming-tips/"><u>2024 Approved Unveil World' Written Large Innovative Zooming Tips</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/5-solutions-for-lava-yuva-2-pro-unlock-without-password-by-drfone-android/"><u>5 Solutions For Lava Yuva 2 Pro Unlock Without Password</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/how-to-transfer-everything-from-apple-iphone-8-to-iphone-drfone-by-drfone-transfer-from-ios/"><u>How to Transfer Everything from Apple iPhone 8 to iPhone | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-trimming-footage-for-insta-on-macos/"><u>In 2024, Trimming Footage for Insta on macOS</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-unlock-the-secrets-of-instagrams-latest-filters/"><u>In 2024, Unlock the Secrets of Instagram's Latest Filters</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-6-appsservices-to-trace-any-vivo-y78t-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>Top 6 Apps/Services to Trace Any Vivo Y78t Location By Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/unlocking-instagrams-monetization-secrets-for-2024/"><u>Unlocking Instagram’s Monetization Secrets for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-leveraging-text-overlays-for-engaging-visual-posts/"><u>[New] 2024 Approved Leveraging Text Overlays for Engaging Visual Posts</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-mastering-instagram-boosting-post-engagement-strategies/"><u>[New] 2024 Approved Mastering Instagram Boosting Post Engagement Strategies</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-mastering-slow-motion-photography-techniques-for-instagram-posts/"><u>[New] 2024 Approved Mastering Slow Motion Photography Techniques for Instagram Posts</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-mastering-instagram-tips-for-stunning-video-content/"><u>[New] In 2024, Mastering Instagram Tips for Stunning Video Content</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-navigating-ig-videos-successfully-building-an-efficient-marketing-blueprint/"><u>[New] In 2024, Navigating IG Videos Successfully Building an Efficient Marketing Blueprint</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-radiant-cinematography-the-ultimate-guide-for-videographers-for-2024/"><u>[New] Radiant Cinematography The Ultimate Guide for Videographers for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-mastering-cinematic-frames-a-3-way-insta-guide/"><u>[Updated] 2024 Approved Mastering Cinematic Frames A 3-Way Insta Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-from-raw-footage-to-engaging-content-streamlining-video-edits-on-windows/"><u>[Updated] From Raw Footage to Engaging Content Streamlining Video Edits on Windows</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-masterful-video-cropping-elevate-your-content-game-on-instagram/"><u>[Updated] In 2024, Masterful Video Cropping Elevate Your Content Game on Instagram</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-mastering-instagram-success-harness-the-power-of-ig-data/"><u>[Updated] In 2024, Mastering Instagram Success Harness the Power of IG Data</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-integrate-audio-magic-the-secrets-of-musical-stories-on-instagram-for-2024/"><u>[Updated] Integrate Audio Magic The Secrets of Musical Stories on Instagram for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-innovative-techniques-for-flawless-voice-capture-in-facetime-calls/"><u>2024 Approved Innovative Techniques for Flawless Voice Capture in FaceTime Calls</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/8-leading-edge-screensnap-solutions-for-2024/"><u>8 Leading-Edge Screensnap Solutions for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/crafting-a-balanced-narrative-with-b-roll-content-for-2024/"><u>Crafting a Balanced Narrative with B-Roll Content for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/enjoy-unparalleled-audio-the-15-premier-films-with-dolby-atmos-sound-for-home-viewing/"><u>Enjoy Unparalleled Audio: The 15 Premier Films with Dolby Atmos Sound for Home Viewing</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-6-ways-to-transfer-contacts-from-vivo-s18-pro-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 6 Ways To Transfer Contacts From Vivo S18 Pro to iPhone | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-essential-tips-creating-striking-youtube-video-previews/"><u>In 2024, Essential Tips Creating Striking YouTube Video Previews</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-full-guide-to-unlock-your-xiaomi-14-ultra-by-drfone-android/"><u>In 2024, Full Guide to Unlock Your Xiaomi 14 Ultra</u></a></li>
+<li><a href="https://fox-info.techidaily.com/incorporating-keywords-for-seo/"><u>Incorporating Keywords for SEO</u></a></li>
 </ul></div>
 
