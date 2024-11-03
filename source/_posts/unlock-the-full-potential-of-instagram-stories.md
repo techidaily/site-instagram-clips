@@ -1,7 +1,7 @@
 ---
 title: "Unlock the Full Potential of Instagram Stories"
-date: 2024-10-23T23:54:06.092Z
-updated: 2024-10-28T09:00:40.891Z
+date: 2024-10-30T22:25:52.178Z
+updated: 2024-11-02T19:47:44.898Z
 tags:
   - ai video
   - ai instagram
@@ -102,28 +102,15 @@ Now that you have an idea about all the filters and lenses of Instagram, we thou
 
 Image resource: Ryan Bilello
 
-<!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Use Stickers
 
 ![](https://images.wondershare.com/filmora/article-images/instagram-stickers.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Using 'Stickers' with your video or images you can spice up your Insta Stories. To use these stickers, first open Instagram, and then capture a video/picture or select one from your gallery. Now, tap on the smiley icon at the top right corner of the picture or video. You will see lot of options under it. Select any of them and then pin it to your picture/video to share. You can resize the 'Stickers' by pinching (to zoom in and out) them.
@@ -142,13 +129,6 @@ To turn your own face into a sticker, you can tap the camera icon under the 'Sti
 
 ![](https://images.wondershare.com/filmora/article-images/instagram-pen.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Now that you have used funny stickers to make your picture (for Insta Story) attractive, how about adding a cute personal note as well? Well, you can do that by tapping on the pen icon right next to 'Stickers'. Select the desired pen type (highlighter, airbrush, eraser, etc.) from the top and then color from the bottom of the screen. You can adjust the pen size using the slider found at the left side. After writing or doodling on the image, tap on the tick mark at the top right corner and you are good to go.
 
 Whoa! You are becoming a sport at how to use Instagram Stories.
@@ -157,6 +137,13 @@ Whoa! You are becoming a sport at how to use Instagram Stories.
 
 ![](https://images.wondershare.com/filmora/article-images/add-text-to-instagram.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 You can also add text to make your Instagram Stories more attractive. Tap on the 'Aa' icon on the extreme right corner of your screen (in Instagram camera) and start typing. You can change the font style by tapping the style available on top of the screen, as well as select the color of the 'Text'. You can also tag people in 'Text' by typing '@' and then the handle name of the person, then click on their image.
 
 ### Add color overlays
@@ -164,13 +151,20 @@ You can also add text to make your Instagram Stories more attractive. Tap on the
 ![](https://images.wondershare.com/filmora/article-images/instagram-pen.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Adorn your creative hat and weave some magic into the Insta Stories now. For adding color overlays to your Insta Story image or video you need to use the 'Pen' tool here and choose a color. Now, click anywhere on the screen and hold for a moment until the entire screen is covered with that color. After that tap on the 'Eraser' tool and uncover specific portions of the picture or video to create interesting Instagram Stories.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Add link
 
@@ -191,16 +185,10 @@ With this complete guide for Instagram Stories, we are hopeful that you are goin
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982499">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -218,17 +206,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-boosting-instagram-videos-online-strategies-for-faster-views/"><u>[New] Boosting Instagram Videos Online Strategies for Faster Views</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-drone-lighting-tunes-with-dji-mini-2air-2s-no-cost/"><u>[New] In 2024, Drone Lighting Tunes with DJI Mini 2/Air 2S (No Cost)</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-boost-your-videos-best-editing-apps-for-android-pc-users/"><u>[Updated] Boost Your Videos Best Editing Apps for Android, PC Users</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-streamlining-fb-live-recording-for-maximum-clarity/"><u>[Updated] Streamlining FB Live Recording for Maximum Clarity</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/chorus-chronicles-a-guide-to-audio-selection-for-ig-for-2024/"><u>Chorus Chronicles A Guide to Audio Selection for IG for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/content-redistribution-hacks-for-instagramers-for-2024/"><u>Content Redistribution Hacks for Instagramers for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-older-friends-listings-on-facebook/"><u>Exploring Older Friends Listings on Facebook</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/in-2024-innovative-approaches-for-effective-use-of-streamlabs-obs/"><u>In 2024, Innovative Approaches for Effective Use of Streamlabs OBS</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-manipulating-fonts-in-visual-media/"><u>In 2024, Manipulating Fonts in Visual Media</u></a></li>
-<li><a href="https://techidaily.com/repair-broken-or-corrupt-video-files-of-redmi-note-12t-pro-by-stellar-video-repair-mobile-video-repair/"><u>Repair broken or corrupt video files of Redmi Note 12T Pro</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/svchostexe-overuse-identification-causes-and-effective-solutions-for-netsvcs-problems/"><u>svchost.exe Overuse: Identification, Causes & Effective Solutions for NETSVCS Problems</u></a></li>
-<li><a href="https://techtrends.techidaily.com/unlock-the-power-of-live-view-in-google-maps-step-by-step-tutorial/"><u>Unlock the Power of Live View in Google Maps – Step-by-Step Tutorial</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-professional-tips-to-perfect-igtv-thumbnails/"><u>[New] 2024 Approved Professional Tips to Perfect IGTV Thumbnails</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-proven-techniques-to-elevate-your-igtv-videos-on-mobile-and-professional-cameras/"><u>[New] 2024 Approved Proven Techniques to Elevate Your IGTV Videos on Mobile & Professional Cameras</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-finding-value-in-cheap-gopro-sales-online/"><u>[New] In 2024, Finding Value in Cheap GoPro Sales Online</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-quick-fixes-screen-capturing-on-instagrams-feed-for-2024/"><u>[New] Quick Fixes Screen Capturing on Instagram's Feed for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-postpresence-mastering-photo-and-video-sizing-on-instagram/"><u>[Updated] 2024 Approved PostPresence Mastering Photo and Video Sizing on Instagram</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-perfect-every-moment-incorporating-captions-in-instagram-footage/"><u>[Updated] In 2024, Perfect Every Moment Incorporating Captions in Instagram Footage</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-perfecting-video-frames-for-instagram-shares/"><u>[Updated] In 2024, Perfecting Video Frames for Instagram Shares</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-perfectly-prepared-videos-a-guide-to-instagram-fitness/"><u>[Updated] In 2024, Perfectly Prepared Videos A Guide to Instagram Fitness</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-top-8-best-selfie-sticks-for-iphone-2024-review/"><u>[Updated] Top 8 Best Selfie Sticks for iPhone 2024 Review</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/astounding-vlogs-start-here-easy-to-create-projects/"><u>Astounding Vlogs Start Here Easy-to-Create Projects</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/humorhub-your-step-by-step-to-fun-videos-for-2024/"><u>HumorHub Your Step-by-Step to Fun Videos for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-a-complete-guide-to-oem-unlocking-on-infinix-hot-40-pro-by-drfone-android/"><u>In 2024, A Complete Guide To OEM Unlocking on Infinix Hot 40 Pro</u></a></li>
+<li><a href="https://win-best.techidaily.com/optimizacion-fotografica-eleva-tu-imagen-con-movavi/"><u>Optimización Fotográfica: Eleva Tu Imagen Con Movavi</u></a></li>
+<li><a href="https://extra-information.techidaily.com/transform-text-to-laughter-kapwings-toolkit/"><u>Transform Text to Laughter - Kapwing's Toolkit</u></a></li>
+<li><a href="https://win-able.techidaily.com/understanding-and-fixing-input-delay-in-cyberpunk-2077/"><u>Understanding and Fixing Input Delay in Cyberpunk 2077</u></a></li>
 </ul></div>
 

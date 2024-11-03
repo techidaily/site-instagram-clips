@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Expert Tips for Crafting Engaging Instagram Stories"
-date: 2024-10-25T20:06:37.666Z
-updated: 2024-10-27T16:23:03.956Z
+date: 2024-10-27T00:20:56.024Z
+updated: 2024-11-02T21:57:03.659Z
 tags:
   - ai video
   - ai instagram
@@ -95,10 +95,10 @@ So, you have tried all the options with Instagram camera? Let's go through 'Hand
 After you have captured the video using any of the above lenses, you can share them as your Insta Story. We are sure that you have enjoyed reading about these cool camera lenses. It's time to go out and check how to use them for Instagram Stories. So, get ready with your smartphone and start capturing. Click! Click! Click!
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Tips and Tricks
@@ -109,22 +109,15 @@ Now that you have an idea about all the filters and lenses of Instagram, we thou
 
 Image resource: Ryan Bilello
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Use Stickers
 
 ![](https://images.wondershare.com/filmora/article-images/instagram-stickers.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Using 'Stickers' with your video or images you can spice up your Insta Stories. To use these stickers, first open Instagram, and then capture a video/picture or select one from your gallery. Now, tap on the smiley icon at the top right corner of the picture or video. You will see lot of options under it. Select any of them and then pin it to your picture/video to share. You can resize the 'Stickers' by pinching (to zoom in and out) them.
@@ -143,33 +136,40 @@ To turn your own face into a sticker, you can tap the camera icon under the 'Sti
 
 ![](https://images.wondershare.com/filmora/article-images/instagram-pen.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Now that you have used funny stickers to make your picture (for Insta Story) attractive, how about adding a cute personal note as well? Well, you can do that by tapping on the pen icon right next to 'Stickers'. Select the desired pen type (highlighter, airbrush, eraser, etc.) from the top and then color from the bottom of the screen. You can adjust the pen size using the slider found at the left side. After writing or doodling on the image, tap on the tick mark at the top right corner and you are good to go.
 
 Whoa! You are becoming a sport at how to use Instagram Stories.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Add text
 
 ![](https://images.wondershare.com/filmora/article-images/add-text-to-instagram.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 You can also add text to make your Instagram Stories more attractive. Tap on the 'Aa' icon on the extreme right corner of your screen (in Instagram camera) and start typing. You can change the font style by tapping the style available on top of the screen, as well as select the color of the 'Text'. You can also tag people in 'Text' by typing '@' and then the handle name of the person, then click on their image.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Add color overlays
 
 ![](https://images.wondershare.com/filmora/article-images/instagram-pen.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Adorn your creative hat and weave some magic into the Insta Stories now. For adding color overlays to your Insta Story image or video you need to use the 'Pen' tool here and choose a color. Now, click anywhere on the screen and hold for a moment until the entire screen is covered with that color. After that tap on the 'Eraser' tool and uncover specific portions of the picture or video to create interesting Instagram Stories.
 
@@ -206,16 +206,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-a-final-farewell-to-your-instagram-world-process-and-steps/"><u>[New] A Final Farewell to Your Instagram World Process & Steps</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-aesthetic-all-stars-popular-instagram-filters/"><u>[Updated] Aesthetic All-Stars Popular Instagram Filters</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-boost-interaction-with-crafted-ig-story-queries/"><u>2024 Approved Boost Interaction with Crafted IG Story Queries</u></a></li>
-<li><a href="https://blog-min.techidaily.com/best-3-software-to-transfer-files-tofrom-your-realme-12plus-5g-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Best 3 Software to Transfer Files to/from Your Realme 12+ 5G via a USB Cable | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/cannot-play-mkv-files-on-13t-pro-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Cannot play MKV files on 13T Pro</u></a></li>
-<li><a href="https://techidaily.com/how-to-upgrade-or-downgrade-apple-iphone-se-2020-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Upgrade or Downgrade Apple iPhone SE (2020)? | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-a-beginners-roadmap-for-instagram-reels-mastery/"><u>In 2024, A Beginner's Roadmap for Instagram Reels Mastery</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/in-2024-free-high-quality-the-best-srt-translation-tools-ranked/"><u>In 2024, Free, High-Quality The Best SRT Translation Tools Ranked</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/new-2024-approved-the-ultimate-guide-to-enhancing-logic-pro-x-8-top-ranked-free-and-premium-plugins/"><u>New 2024 Approved The Ultimate Guide to Enhancing Logic Pro X - 8 Top-Ranked Free & Premium Plugins</u></a></li>
-<li><a href="https://fox-that.techidaily.com/regain-control-of-your-devices-the-simple-methods-for-new-apple-id-screen-time-password-on-all-platforms/"><u>Regain Control of Your Devices: The Simple Methods for New Apple ID Screen Time Password on All Platforms</u></a></li>
-<li><a href="https://techtrends.techidaily.com/understanding-ray-tracing-an-introduction/"><u>Understanding Ray Tracing: An Introduction</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-the-complete-process-of-adding-soundtracks-to-ig/"><u>[New] 2024 Approved The Complete Process of Adding Soundtracks to IG</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-swift-playback-on-instagram-videos-mobiledesktop/"><u>[Updated] 2024 Approved Swift Playback on Instagram Videos (Mobile/Desktop)</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-swiftly-uncover-unfollowers-on-instagram/"><u>[Updated] 2024 Approved Swiftly Uncover Unfollowers on Instagram</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-achieving-professional-bokeh-on-mobile-phones/"><u>[Updated] Achieving Professional Bokeh on Mobile Phones</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-syncing-songs-with-stories-and-videos-on-instagram/"><u>[Updated] In 2024, Syncing Songs with Stories and Videos on Instagram</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-techniques-for-uploading-original-posts-again/"><u>[Updated] In 2024, Techniques for Uploading Original Posts Again</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-unpacking-tunefab-written-review-on-latest-tech-for-screen-recording-for-2024/"><u>[Updated] Unpacking Tunefab' Written Review on Latest Tech for Screen Recording for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-xsplit-collection-direct-download-guide-and-review/"><u>2024 Approved XSplit Collection Direct Download Guide & Review</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-honor-100-pro-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from Honor 100 Pro to New Phone | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/navigating-next-gen-webinar-software-for-2024/"><u>Navigating Next-Gen Webinar Software for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/ultimate-list-of-over-80-stealing-deal-smart-televisions-for-prime-subscribers-in-action/"><u>Ultimate List of Over 80 Stealing-Deal Smart Televisions for Prime Subscribers in Action!</u></a></li>
 </ul></div>
 

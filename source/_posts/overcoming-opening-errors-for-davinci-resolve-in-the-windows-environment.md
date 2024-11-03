@@ -1,7 +1,7 @@
 ---
 title: Overcoming Opening Errors for DaVinci Resolve in the Windows Environment
-date: 2024-10-20T19:32:22.250Z
-updated: 2024-10-27T19:30:13.059Z
+date: 2024-10-27T16:57:33.145Z
+updated: 2024-11-02T22:04:49.339Z
 tags:
   - win11
   - win10
@@ -47,16 +47,10 @@ thumbnail: https://thmb.techidaily.com/cc0866b80e38550ff25e3009719b526ea4484f9d3
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bd0204fe6005.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  You can also click Update to do it for free if you like, but it’s partly manual.
@@ -66,13 +60,6 @@ thumbnail: https://thmb.techidaily.com/cc0866b80e38550ff25e3009719b526ea4484f9d3
 5) Check to see if the Engine Error on Apex Legends has been resolved. If yes, then great! If the issue remains, please move on to**Fix 2** , below.
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 2: Run Apex Legends as an administrator
 
@@ -104,13 +91,6 @@ Here is how to verify game files:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/image-439-1024x522.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  2) Right-click on**Apex Legends** and click**Repair** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/03/image-561.png)
@@ -119,22 +99,16 @@ Here is how to verify game files:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/03/image-343-1024x728.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  4) Once done, run Apex Legends and check if the engine error is fixed. If yes, then great! If the issue persists, please move on to**Fix 4** , below.
 
 ---
-
-<!-- affiliate ads begin -->
-<span id="1899850">
-					<video width="486" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 4: Edit Registry
 
@@ -148,6 +122,13 @@ Here are the steps to add the command line:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/image-474.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 2) Add the following command to the text document.
 
 Windows Registry Editor Version 5.00
@@ -157,10 +138,10 @@ Windows Registry Editor Version 5.00
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/image-475.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  3) Click**File** \>**Save as…**
@@ -170,6 +151,13 @@ Windows Registry Editor Version 5.00
  4) Save the file name as**fix.reg** and select the type as**All files** . then click Save.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/image-477.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  5) Click**Yes** once you’re prompted about the message.
 
@@ -197,24 +185,22 @@ Windows Registry Editor Version 5.00
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-seamlessly-post-vimeo-to-instagram/"><u>[New] 2024 Approved Seamlessly Post Vimeo to Instagram</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-synergizing-social-networks-share-your-igtv-content/"><u>[New] 2024 Approved Synergizing Social Networks Share Your IGTV Content</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-chromebook-screen-capture-4-easy-techniques/"><u>[New] Chromebook Screen Capture 4 Easy Techniques</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-elevate-your-mobile-photography-mastering-leading-lines-for-2024/"><u>[New] Elevate Your Mobile Photography Mastering Leading Lines for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-step-up-your-instagram-game-with-these-highest-rated-grid-makers/"><u>[New] In 2024, Step Up Your Instagram Game with These Highest-Rated Grid Makers</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-quick-start-uploading-your-videos-to-instagram-via-pcmac-for-2024/"><u>[New] Quick Start Uploading Your Videos to Instagram via PC/Mac for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-skyrocketing-video-performance-in-instagram-stories-mobile-for-2024/"><u>[New] Skyrocketing Video Performance in Instagram Stories (Mobile) for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-staying-pure-hearted-amidst-the-ruse-of-ratings-and-likes-for-2024/"><u>[New] Staying Pure-Hearted Amidst the Ruse of Ratings and Likes for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-strategic-social-media-mastery-instagrams-5-crucial-steps-with-examples-for-2024/"><u>[New] Strategic Social Media Mastery Instagram's 5 Crucial Steps with Examples for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-spurring-instagram-audience-for-more-vids/"><u>[Updated] 2024 Approved Spurring Instagram Audience for More Vids</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-step-by-step-guide-adding-subs-to-igtv/"><u>[Updated] In 2024, Step-by-Step Guide Adding Subs to IGTV</u></a></li>
-<li><a href="https://location-fake.techidaily.com/8-solutions-to-fix-find-my-friends-location-not-available-on-lava-blaze-2-5g-drfone-by-drfone-virtual-android/"><u>8 Solutions to Fix Find My Friends Location Not Available On Lava Blaze 2 5G | Dr.fone</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/diagnosing-and-repairing-the-non-functional-mic-on-a-steelseries-arctis-7-headset/"><u>Diagnosing and Repairing the Non-Functional Mic on a SteelSeries Arctis 7 Headset</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/expert-techniques-for-flipping-and-tilting-iphone-images-for-2024/"><u>Expert Techniques for Flipping & Tilting iPhone Images for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-infinix-smart-8-phone-password-without-factory-reset-by-drfone-android/"><u>How to Unlock Infinix Smart 8 Phone Password Without Factory Reset?</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-9-best-phone-monitoring-apps-for-nokia-c02-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Best Phone Monitoring Apps for Nokia C02 | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-enable-usb-debugging-on-a-locked-oppo-a78-phone-by-drfone-android/"><u>In 2024, How To Enable USB Debugging on a Locked Oppo A78 Phone</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/new-era-increased-customization-on-windows-11/"><u>New Era: Increased Customization on Windows 11</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/speech-styling-made-simple-tips-for-enriching-your-vocal-presence-affordably-for-2024/"><u>Speech Styling Made Simple Tips for Enriching Your Vocal Presence Affordably for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-crafting-a-compelling-pitch-products-sponsoring-youtubers/"><u>[New] Crafting a Compelling Pitch Products Sponsoring Youtubers</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-free-online-toolkit-for-youtubefb-video-transformations-in-720p-1080p/"><u>[New] In 2024, Free Online Toolkit for YouTube/FB Video Transformations in 720P, 1080P</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-transforming-your-instagram-video-into-a-social-sensation/"><u>[New] Transforming Your Instagram Video Into a Social Sensation</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-ultimate-guide-5-top-earning-instagram-strategies/"><u>[New] Ultimate Guide 5 Top-Earning Instagram Strategies</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-top-10-social-media-tag-analyzers-fb-twt-and-insta/"><u>[Updated] Top 10 Social Media Tag Analyzers FB, Twt & Insta</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-15-advanced-tips-for-sports-broadcasting-nba/"><u>2024 Approved 15 Advanced Tips for Sports Broadcasting (NBA)</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-unleash-your-social-media-potential-with-insta-post-magic/"><u>2024 Approved Unleash Your Social Media Potential with Insta Post Magic</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-unlock-creative-filmmaking-instagrams-green-room-technique/"><u>2024 Approved Unlock Creative Filmmaking Instagram's Green Room Technique</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/4-ways-to-transfer-contacts-from-apple-iphone-se-2022-to-iphone-quickly-drfone-by-drfone-transfer-from-ios/"><u>4 Ways to Transfer Contacts from Apple iPhone SE (2022) to iPhone Quickly | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/creating-the-ultimate-home-pc-for-professional-video-editors/"><u>Creating the Ultimate Home PC for Professional Video Editors</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-eliminate-irritating-buzz-noise-in-headphone-experience-effective-solutions/"><u>How to Eliminate Irritating Buzz Noise in Headphone Experience: Effective Solutions</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-top-25-instagram-hashtags-to-get-more-likes-and-followers/"><u>In 2024, Top 25 Instagram Hashtags to Get More Likes and Followers</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/integrating-gmail-with-outlook-on-windows-a-step-by-step-guide/"><u>Integrating Gmail with Outlook on Windows: A Step-by-Step Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/lg-oled-c9-series-the-ultimate-feast-of-a-65-inch-4k-widescreen-tv-reviewed-by-experts/"><u>LG OLED C9 Series: The Ultimate Feast of a 65-Inch, 4K Widescreen TV Reviewed by Experts!</u></a></li>
+<li><a href="https://discover-bits.techidaily.com/solucion-para-problemas-de-historial-en-el-explorador-de-archivos-de-windows-11/"><u>Solución Para Problemas De Historial en El Explorador De Archivos De Windows 11</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/top-6-must-have-apps-to-elevate-your-instagram-video-content-for-2024/"><u>Top 6 Must-Have Apps to Elevate Your Instagram Video Content for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/transforming-your-photos-on-instagram-green-screen-for-2024/"><u>Transforming Your Photos on Instagram Green Screen for 2024</u></a></li>
 </ul></div>
 

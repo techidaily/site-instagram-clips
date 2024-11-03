@@ -1,7 +1,7 @@
 ---
 title: "Petcube Premium: Budget-Conscious HD Pet Surveillance Camera"
-date: 2024-10-25T09:19:50.419Z
-updated: 2024-10-28T08:46:19.033Z
+date: 2024-11-01T04:30:15.291Z
+updated: 2024-11-03T05:39:41.351Z
 categories:
   - BestProducts
 description: "This Article Describes Petcube Premium: Budget-Conscious HD Pet Surveillance Camera"
@@ -41,13 +41,6 @@ Lifewire / Kelsey Simon
 
 ![Dying Light](https://www.lifewire.com/thmb/YWkGikwP23JK119N4M7J22dAPJY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Dying-Light-Zombie-Game-PS4-1-f2e898d54052439c9e158d01dc3d691a.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Kelsey Simon
 
 [View On Amazon](https://www.amazon.com/dp/B00D2ZK1IG/?tag=lifewire-onsite-prod-20&ascsubtag=4778324%7Cn8b17d62e028148938085d16c4455799211%7CB00D2ZK1IG) [View On Gamestop.com](https://www.gamestop.com/video-games/playstation-4/games/products/dying-light/10111372.html)
@@ -70,6 +63,13 @@ Lifewire / Kelsey Simon
  Dying Light is a first-person action-adventure game set in the midst of a zombie apocalypse. Its headline feature is kinetic parkour traversal through an open-world infested with unique zombies.
 
 ![Dying Light](https://www.lifewire.com/thmb/_0yEidfS3S4dy57s584t378TZYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-5-4ec68914607c4b56acff25a78887af7f.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -95,13 +95,6 @@ Harran is a whole different city at night.
 
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Gameplay: Parkour and zombies galore**
 
  You won’t have to wait long in the game before you’re introduced to its main unique mechanic: parkour. Other zombie games focus on having slow zombies you can run away from, or dumb zombies you sneak past, but Dying Light takes a completely different approach. Instead, the basic zombies are fast and almost always know where you are―but they can’t climb or jump. This means you can stay safe by leaping between rooftops, running up ramps, balancing across bars, etc. The parkour feature is the biggest thing that makes Dying Light unique in an oversaturated genre, and also part of what makes the game so much fun. It’s entertaining to cross the city running as fast as you can without pausing, challenging yourself to get from point A to point B without ever touching the ground.
@@ -117,19 +110,20 @@ Harran is a whole different city at night.
 ![Dying Light](https://www.lifewire.com/thmb/YctEePpYKsIXQ5kU-hQ8w7o9CDo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-4-1edeaf05c6ba435e9b81e68a13831ac6.jpg)
 
 <!-- affiliate ads begin -->
-<span id="2127886">
-					<video width="576" height="1024" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Graphics: Attention to detail**
 
@@ -142,10 +136,10 @@ Harran is a whole different city at night.
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Worth the cost, especially with a friend**
@@ -153,10 +147,16 @@ Harran is a whole different city at night.
  On PlayStation 4, you can purchase the game for $14, a fantastic value. You’ll get more than enough gameplay and fun to justify a purchase at that low cost. However, if you want to play on[PC](https://www.lifewire.com/best-desktop-pcs-4045927) , you’ll have to either wait for the game to go on sale, or you’ll have to pay $40\. Considering the game is older now, we’d suggest getting the game on sale (it goes on sale often through Steam). There’s a lot of fun to be had in Dying Light, especially if you have a friend to play with, so if you’re thinking about getting the game, we’d say go for it.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1484963">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Competition: Other zombie and parkour games**
@@ -192,24 +192,19 @@ Harran is a whole different city at night.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-chef-challenges-top-10-improvisational-cooking-videos-for-2024/"><u>[New] Chef Challenges Top 10 Improvisational Cooking Videos for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-quick-start-uploading-your-videos-to-instagram-via-pcmac/"><u>[New] Quick Start Uploading Your Videos to Instagram via PC/Mac</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-saving-reels-made-simple-direct-and-indirect-techniques-explained/"><u>[New] Saving Reels Made Simple Direct and Indirect Techniques Explained</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/nlocking-earnings-potential-with-youtube-adsense-payments-per-1k-viewer/"><u>[New] Unlocking Earnings Potential with Youtube AdSense Payments Per 1K Viewer</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-enhance-viewing-experience-by-adjusting-snapchats-frame-rate-for-2024/"><u>[Updated] Enhance Viewing Experience by Adjusting Snapchat's Frame Rate for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-scouring-influencers-tailoring-your-niches-insta-community/"><u>[Updated] Scouring Influencers Tailoring Your Niche's Insta Community</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-navigating-through-instagram-video-woes-with-ease/"><u>2024 Approved Navigating Through Instagram Video Woes with Ease</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-propel-your-igtv-presence-techniques-to-skyrocket-subscriber-count/"><u>2024 Approved Propel Your IGTV Presence Techniques to Skyrocket Subscriber Count</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/how-to-enable-the-text-to-speech-function-on-iphone/"><u>How to Enable the Text to Speech Function on iPhone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-poco-x5-pro-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Poco X5 Pro to Other Android Devices? | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-perfect-pace-essential-strategies-to-create-engaging-slow-motion-videos-and-images-for-instagram-audiences/"><u>In 2024, Perfect Pace Essential Strategies to Create Engaging Slow Motion Videos and Images for Instagram Audiences</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-removing-obscured-display-issues-in-recording/"><u>In 2024, Removing Obscured Display Issues in Recording</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-revolutionize-how-you-interact-with-tech-best-mac-tts-programs-reviewed/"><u>In 2024, Revolutionize How You Interact with Tech Best Mac TTS Programs Reviewed</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-revolutionize-your-social-media-strategy-essential-instagram-analytics-platforms/"><u>In 2024, Revolutionize Your Social Media Strategy Essential Instagram Analytics Platforms</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-seamlessly-post-pictures-your-youtube-visual-guide/"><u>In 2024, Seamlessly Post Pictures Your YouTube Visual Guide</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-selfie-validation-is-it-essential-for-instagram-users/"><u>In 2024, Selfie Validation Is It Essential for Instagram Users?</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/in-depth-lenovo-thinkpad-x12-reveal-a-top-tier-2-in-1-device-with-exceptional-keyboard-quality/"><u>In-Depth Lenovo ThinkPad X12 Reveal: A Top-Tier 2-in-1 Device with Exceptional Keyboard Quality</u></a></li>
-<li><a href="https://windows11.techidaily.com/overcoming-stubbornness-in-windows-ui-elements/"><u>Overcoming Stubbornness in Windows UI Elements</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/proper-placement-of-external-webpages-in-insta-content-for-2024/"><u>Proper Placement of External Webpages in Insta Content for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-unlock-the-power-of-visual-storytelling-with-screen-capture-skills/"><u>[Updated] 2024 Approved Unlock the Power of Visual Storytelling with Screen Capture Skills</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-premier-8-safe-video-communication-programs-for-smbs/"><u>[Updated] In 2024, Premier 8 Safe Video Communication Programs for SMBs</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Apple iPhone 12 | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/elevating-your-engagement-game-the-instagram-edge-guide/"><u>Elevating Your Engagement Game The Instagram Edge Guide</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/enhancing-instagram-video-visibility/"><u>Enhancing Instagram Video Visibility</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/how-to-boost-your-instagram-vids-visibility/"><u>How to Boost Your Instagram Vids' Visibility</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/how-to-download-igtv-videos-on-iphone-and-android-5-ways/"><u>How to Download IGTV Videos on iPhone & Android [5 Ways]</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-creating-captivating-insta-vids-3-description-strategies/"><u>In 2024, Creating Captivating Insta Vids 3 Description Strategies</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/integrate-soundtracks-into-instagram-storytelling/"><u>Integrate Soundtracks Into Instagram Storytelling</u></a></li>
+<li><a href="https://review-topics.techidaily.com/issues-playing-h-265-hevc-video-on-p60-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Issues playing H.265 HEVC video on P60</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/leading-your-audience-into-a-world-of-instagram-live/"><u>Leading Your Audience Into a World of Instagram Live</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/posting-a-youtube-video-via-insta-stories-a-step-by-step-guide/"><u>Posting a YouTube Video via Insta Stories A Step-by-Step Guide</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/recovering-irretrievably-lost-screen-captures-a-guide-with-find-data-rescue-tool-by-ifind/"><u>Recovering Irretrievably Lost Screen Captures: A Guide with Find Data Rescue Tool by iFinD</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/trasforma-i-tuoi-file-neff-in-tiff-senza-costi-con-il-servizio-di-conversione-online-completo/"><u>Trasforma I Tuoi File Neff in Tiff Senza Costi Con Il Servizio Di Conversione Online Completo!</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] A Beginner's Guide to Instagram Story Feature for 2024"
-date: 2024-10-26T09:27:42.767Z
-updated: 2024-10-27T17:28:30.645Z
+date: 2024-10-27T17:47:43.105Z
+updated: 2024-11-02T21:39:48.311Z
 tags:
   - ai video
   - ai instagram
@@ -37,13 +37,6 @@ Story Highlights allows you to display all sides of your personality, and you ca
 
 An amazing feature of Instagram highlights is that you can group your stories into sections and create them as folder sections (i.e highlights) on your profile. Once you post a story, you can save it in a Highlight (which is like a folder) and that will automatically be featured on your profile permanently until you decide to delete it or archive it. With this tool, you can design your profile in a unique way that best expresses you.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How to Create Instagram Highlights from Stories Archive?
 
 As mentioned above, Highlights are created through your Stories. You have two options for creating a Highlight. The first is that you either create a Highlight from a current Story or your Stories Archive.
@@ -55,13 +48,6 @@ Your Stories Archive is a feature that when enabled, ensures your Stories are au
 3. Scroll down till you see **Saving,** then turn on **Save story to archive.**
 
 ![ Instagram Highlight Archive](https://images.wondershare.com/filmora/article-images/save-story-to-archive-instagram.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 If you choose to create Highlights from your Stories archive, this is how you go about it:
 
@@ -83,10 +69,10 @@ Another way to create a highlight from archived stories is by;
 Above are the ways to create highlights on Instagram from Archive. They are pretty easy as long as you follow instructions correctly.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: How to Add New Stories to a Highlight?
@@ -109,16 +95,10 @@ You can choose to create a highlight from your current Story, all you need to do
 * Click on the **plus** **sign** if you want to create a new highlight, customize the name of the highlight and click
 
 <!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: How to Delete Instagram Highlights?
@@ -134,6 +114,13 @@ If for instance, you decide that you want to remove some stories from a highligh
 * Go to the story you want to remove from that particular highlight folder.
 * Once you find the story you want to remove, click on **More,** located on the lower right-hand corner of the page.
 * Click **Remove highlight,** then you are done!
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## FAQs About Instagram Highlights
 
@@ -165,6 +152,19 @@ attire need to be easy to find. You create a Highlight that you refer them to so
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1975555">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -180,16 +180,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-anon-mode-unveiling-instagram-stories-across-oses-for-2024/"><u>[New] Anon Mode Unveiling Instagram Stories Across OSes for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-boundless-treasure-tales-of-instagram-flair-for-2024/"><u>[New] Boundless Treasure Tales of Instagram Flair for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-beyond-the-screen-shaping-perceptions-on-instagram-through-captions/"><u>[New] In 2024, Beyond the Screen - Shaping Perceptions on Instagram Through Captions</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-virtual-reality-walking-platforms-an-in-depth-look/"><u>[New] Virtual Reality Walking Platforms An In-Depth Look</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-become-an-instagram-analytics-expert-with-this-ultimate-performance-guide/"><u>[Updated] 2024 Approved Become an Instagram Analytics Expert with This Ultimate Performance Guide</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-a-step-by-step-guide-to-updating-photos-and-videos-on-instagram-for-2024/"><u>[Updated] A Step-by-Step Guide to Updating Photos and Videos on Instagram for 2024</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/updated-mastering-discord-message-pinning-essentials-for-2024/"><u>[Updated] Mastering Discord Message Pinning Essentials for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-master-your-subtitles-with-top-10-free-converter-websites/"><u>2024 Approved Master Your Subtitles with Top 10 Free Converter Websites</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/dark-realm-explorations-dos-and-donts-of-nocturnal-shooting-for-2024/"><u>Dark Realm Explorations Do's & Don'ts of Nocturnal Shooting for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-discover-top-10-flv-to-youtube-conversion-tools/"><u>In 2024, Discover Top 10 Flv-to-YouTube Conversion Tools</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/unstuck-with-a-broken-redragon-mic-discover-proven-techniques-to-get-your-pc-microphone-up-and-running-again/"><u>Unstuck with a Broken Redragon Mic? Discover Proven Techniques to Get Your PC Microphone Up and Running Again</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-enhancing-productivity-the-art-of-using-no-cost-timers/"><u>[New] 2024 Approved Enhancing Productivity The Art of Using No-Cost Timers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-channeling-musical-charm-crafting-custom-playlists-on-youtube-for-2024/"><u>[Updated] Channeling Musical Charm Crafting Custom Playlists on Youtube for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-deep-dive-into-theta-s-a-full-camera-examination-for-2024/"><u>[Updated] Deep Dive Into Theta S A Full Camera Examination for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-distinguished-makers-elite-instagram-highlight-constructors/"><u>[Updated] Distinguished Makers Elite Instagram Highlight Constructors</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-blueprints-for-impressive-fb-ad-campaigns/"><u>[Updated] In 2024, Blueprints for Impressive FB Ad Campaigns</u></a></li>
+<li><a href="https://extra-information.techidaily.com/achieving-stunning-iphone-hdr-results-for-2024/"><u>Achieving Stunning iPhone HDR Results for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-oppo-reno-11f-5g-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Oppo Reno 11F 5G? | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/driving-traffic-and-likes-a-guide-for-instagram-pros-for-2024/"><u>Driving Traffic & Likes A Guide for Instagram Pros for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/elevate-video-storytelling-adding-music-to-instareels-for-2024/"><u>Elevate Video Storytelling Adding Music to InstaReels for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/elevating-your-social-media-presence-with-igtv-videos-for-2024/"><u>Elevating Your Social Media Presence with IGTV Videos for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/enhance-your-reel-with-rhythms-instagrams-music-guide-for-2024/"><u>Enhance Your Reel with Rhythms Instagram's Music Guide for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-curating-striking-instagram-profile-photos/"><u>In 2024, Curating Striking Instagram Profile Photos</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-easy-steps-to-deactivate-igtv/"><u>In 2024, Easy Steps to Deactivate IGTV</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-spotify-location-after-moving-to-another-country-on-samsung-galaxy-s23-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Spotify Location After Moving to Another Country On Samsung Galaxy S23 | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/resolving-code-vein-game-lag-effective-solutions-and-tips/"><u>Resolving Code Vein Game Lag: Effective Solutions & Tips</u></a></li>
 </ul></div>
 

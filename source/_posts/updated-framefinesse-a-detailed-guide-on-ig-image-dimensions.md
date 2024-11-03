@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] FrameFinesse  A Detailed Guide on IG Image Dimensions\""
-date: 2024-10-24T02:31:12.602Z
-updated: 2024-10-27T23:53:15.176Z
+date: 2024-11-01T21:24:17.362Z
+updated: 2024-11-03T04:50:09.781Z
 tags:
   - ai video
   - ai instagram
@@ -46,10 +46,10 @@ Duration of Videos on Instagram
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087262/19272" target="_top" id="2087262">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087262" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087262/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Best Image Sizes for Instagram Posts
@@ -61,10 +61,10 @@ A couple of years ago, Instagram has finally allowed its users to upload images 
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
@@ -92,10 +92,10 @@ The profile pictures on Instagram are tiny, and the optimum size for them is 160
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -113,18 +113,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/updated-capturing-stills-in-time-a-guide-to-slow-motion-on-ig/"><u>[Updated] Capturing Stills in Time A Guide to Slow Motion on IG</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-collabcanvas-pro-instagram-video-mosaics-unite/"><u>[Updated] CollabCanvas Pro Instagram Video Mosaics Unite</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-crafting-captivating-content-uploading-h-videos-for-igtv-success/"><u>2024 Approved Crafting Captivating Content Uploading H-Videos for IGTV Success</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-critiquing-the-validation-status-of-online-instagramselfies/"><u>2024 Approved Critiquing the Validation Status of Online Instagramselfies</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-cutting-edge-tools-for-instagrams-most-trendy-reels/"><u>2024 Approved Cutting-Edge Tools for Instagram's Most Trendy Reels</u></a></li>
-<li><a href="https://common-error.techidaily.com/fixing-non-responsive-fn-key-issues-on-your-pc/"><u>Fixing Non-Responsive Fn Key Issues on Your PC</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/how-do-shared-links-operate-within-chatgpt-insights-and-explanations/"><u>How Do Shared Links Operate Within ChatGPT? Insights and Explanations</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/how-to-securely-erasing-data-from-your-dell-computer-or-laptop-with-ease/"><u>How-To: Securely Erasing Data From Your Dell Computer or Laptop with Ease</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-elevate-your-videos-auditory-experience-on-youtube/"><u>In 2024, Elevate Your Video's Auditory Experience on YouTube</u></a></li>
-<li><a href="https://driver-install.techidaily.com/revolutionary-updates-enhance-dell-laptop-performance/"><u>Revolutionary Updates: Enhance Dell Laptop Performance</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/scripting-journalisms-closing-statements-for-2024/"><u>Scripting Journalism's Closing Statements for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/solution-irreversible-pulpitis-is-often-characterized-by-spontaneous-lingering-pain-that-does-not-subside-quickly-after-removing-the-stimulus/"><u>Solution: Irreversible Pulpitis Is Often Characterized by Spontaneous, Lingering Pain that Does Not Subside Quickly After Removing the Stimulus.</u></a></li>
-<li><a href="https://extra-information.techidaily.com/sony-bdp-s6500-review-updated/"><u>Sony BDP-S6500 Review - Updated</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-high-performance-drone-gimbals/"><u>[New] 2024 Approved High-Performance Drone Gimbals</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-ios-leading-edge-psp-emulators-top-5-lists/"><u>[New] 2024 Approved IOS Leading Edge PSP Emulators, Top 5 Lists</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-learn-to-convert-your-vids-into-music-on-instagram-today/"><u>[New] 2024 Approved Learn to Convert Your Vids Into Music on Instagram Today</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-key-metrics-to-track-igtv-video-analytics/"><u>[New] In 2024, Key Metrics to Track IGTV Video Analytics</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-making-every-frame-count-in-instagram-videos/"><u>[New] In 2024, Making Every Frame Count in Instagram Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-mobile-media-upload-share-videos-on-twitter-without-retweeting-for-2024/"><u>[New] Mobile Media Upload Share Videos on Twitter Without Retweeting for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-leading-the-pack-in-multi-media-posting-on-instagram/"><u>[Updated] In 2024, Leading the Pack in Multi-Media Posting on Instagram</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/d-vidcon-top-50-youtube-celebrations-for-2024/"><u>Beyond VidCon Top 50 YouTube Celebrations for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fixing-the-sluggish-closure-solutions-to-your-windows-10-shutdown-woes/"><u>Fixing the Sluggish Closure: Solutions to Your Windows 10 Shutdown Woes</u></a></li>
+<li><a href="https://win-able.techidaily.com/1723000000594-how-to-enable-msi-afterburner-detection-for-your-gpu-on-windows-1011-problem-solved/"><u>How to Enable MSI Afterburner Detection for Your GPU on Windows 10/11: Problem Solved!</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-oppo-find-x6-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your Oppo Find X6</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/oculus-equipment-error-resolution-best-practices/"><u>Oculus Equipment Error Resolution: Best Practices</u></a></li>
 </ul></div>
 

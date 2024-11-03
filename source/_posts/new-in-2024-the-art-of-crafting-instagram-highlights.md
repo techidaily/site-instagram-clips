@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, The Art of Crafting Instagram Highlights"
-date: 2024-10-21T11:17:53.930Z
-updated: 2024-10-27T21:03:01.059Z
+date: 2024-11-01T19:43:18.677Z
+updated: 2024-11-02T22:25:12.664Z
 tags:
   - ai video
   - ai instagram
@@ -72,6 +72,13 @@ How to save Instagram Highlights? Dive in and follow these three easy steps:
 
 ![how to download instagram highlights - click to download instagram highlights](https://images.wondershare.com/filmora/article-images/click-download-instagram-highlight4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Method 2: Download Instagram Highlights Using Stories Archive
 
 Stories Archive is a library of all the stories ever uploaded. However, the stories disappear after 24-hours, but not without a trace. They can still be accessed from the 'Stories Archive.' However, don't forget to activate this option to save all published stories automatically. Download Instagram Highlights from 'Stories Archive' and take a free trip down memory lane.
@@ -82,50 +89,30 @@ Stories Archive is a rich library full of the oldest to latest stories. It is co
 
 ![using stories archive - tap archive button](https://images.wondershare.com/filmora/article-images/tap-archive-button5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 2\. The Archive library will pop open. Finding a specific story can be like looking for a needle in the haystack. But luckily, the stories are arranged date-wise.
 
 ![using stories archive to download Instagram Highlights - find story highlight](https://images.wondershare.com/filmora/article-images/find-story-highlight6.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 3\. Click the story you wish to save and tap the three dots in the bottom left corner.
 
 ![Download Instagram Highlights using stories archive - tap to download highlights](https://images.wondershare.com/filmora/article-images/tap-more-highlight-download7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 4\. Then click on '**Save photo/video**' to download it on your phone instantly.
 
 ![download instagram highlights as](https://images.wondershare.com/filmora/article-images/download-instagram-highlight-as8.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Bonus Tip 1: How to Create an Instagram Highlight
@@ -152,16 +139,16 @@ If you haven't created an Instagram Highlight yet, hop on and make one. There ar
 
 ![edit instagram highlight cover](https://images.wondershare.com/filmora/article-images/edit-highlight-cover11.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Tap 'Done', and add your own Instagram highlight.
 
 ![finish creating instagram highlight](https://images.wondershare.com/filmora/article-images/finish-create-instagram-highlight12.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Bonus Tip 2: Best Instagram Video Editor — [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -213,13 +200,20 @@ Go on, craft, or download Instagram highlights and enjoy. Good luck, Instagramme
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -240,20 +234,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-a-comprehensive-look-at-merging-youtube-content-into-instagrams-story-feature-for-2024/"><u>[New] A Comprehensive Look at Merging YouTube Content Into Instagram's Story Feature for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-accelerating-instagram-videos-mobile-and-desktop-tips-for-2024/"><u>[New] Accelerating Instagram Videos Mobile & Desktop Tips for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/mooth-cinematography-premium-stabilizer-recommendations-for-2024/"><u>[New] Smooth Cinematography Premium Stabilizer Recommendations for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-unlocking-hidden-potential-with-instagrams-inquiry-emoji/"><u>[New] Unlocking Hidden Potential with Instagram’s Inquiry Emoji</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-a-comprehensible-guide-for-mastering-instagram-live-engagements/"><u>[Updated] 2024 Approved A Comprehensible Guide for Mastering Instagram Live Engagements</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-unlock-your-visual-potential-the-leading-ten-tools-for-instagram-grids/"><u>[Updated] Unlock Your Visual Potential The Leading Ten Tools for Instagram Grids</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-rapid-methods-to-customize-your-soundscaping-in-pubg/"><u>2024 Approved Rapid Methods to Customize Your Soundscaping in PUBG</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/5pit5a245ywn6lk75oyh5y2x77ya5aac5l2v6ksh6ko956gs56kf5lit55qe5lia6zq75yiw5yplusm5lia6zq7/"><u>易學免費指南：如何複製硬碟中的一隻到另一隻</u></a></li>
-<li><a href="https://fox-info.techidaily.com/aural-tales-the-best-of-radio-plays/"><u>Aural Tales The Best of Radio Plays</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/discover-the-best-8-ios-messenger-data-recovery-tools-with-our-comprehensive-list/"><u>Discover the Best 8 iOS Messenger Data Recovery Tools with Our Comprehensive List</u></a></li>
-<li><a href="https://change-location.techidaily.com/guide-how-to-unbrick-a-bricked-lava-yuva-3-phone-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Guide How To Unbrick a Bricked Lava Yuva 3 Phone | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-honor-80-pro-straight-screen-edition-location-by-number-drfone-by-drfone-virtual-android/"><u>How to Track Honor 80 Pro Straight Screen Edition Location by Number | Dr.fone</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/resolving-no-permissions-errors-for-activating-voice-input-on-gboard/"><u>Resolving 'No Permissions' Errors for Activating Voice Input on Gboard</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/upgrade-instagram-visuals-with-3-effective-borders-for-2024/"><u>Upgrade Instagram Visuals with 3 Effective Borders for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/visualize-better-incorporating-borders-in-insta-videos-for-2024/"><u>Visualize Better Incorporating Borders in Insta-Videos for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-photoshop-wizardry-for-bending-photos/"><u>[New] Photoshop Wizardry for Bending Photos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-boost-your-youtube-success-with-free-high-quality-audio/"><u>[Updated] In 2024, Boost Your YouTube Success with Free, High-Quality Audio</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-mastering-the-art-of-hash-tracking-top-apps-reviewed-fbtwitterinsta/"><u>[Updated] Mastering the Art of Hash Tracking Top Apps Reviewed (FB/Twitter/Insta)</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-navigating-the-maze-choosing-the-right-vimeo-membership-plan/"><u>[Updated] Navigating the Maze Choosing the Right Vimeo Membership Plan</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-navigating-youtube-and-instagram-sharing-video-content-without-limits/"><u>[Updated] Navigating YouTube and Instagram Sharing Video Content without Limits</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-peeling-back-the-layers-10-realities-about-instagram-reels/"><u>[Updated] Peeling Back the Layers 10 Realities About Instagram Reels</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-lost-data-from-vivo-y78-5g-by-fonelab-android-recover-data/"><u>How to recover lost data from Vivo Y78 5G?</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-navigating-instagrams-posting-video-count/"><u>In 2024, Navigating Instagram's Posting Video Count</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-navigating-the-starscape-a-guide-to-influencers-for-your-needs/"><u>In 2024, Navigating the Starscape A Guide to Influencers for Your Needs</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-one-device-live-broadcast-mastery-easy-steps-to-success/"><u>In 2024, One-Device LIVE Broadcast Mastery Easy Steps to Success</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-revealing-the-top-10-secret-story-admirers/"><u>In 2024, Revealing the Top 10 Secret Story Admirers</u></a></li>
+<li><a href="https://extra-information.techidaily.com/insights-on-lg-bp350-user-perspectives-and-ratings/"><u>Insights on LG BP350 - User Perspectives and Ratings</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/the-art-of-captioning-on-tiktok-5-essential-insights-for-enhanced-engagement/"><u>The Art of Captioning on TikTok 5 Essential Insights for Enhanced Engagement</u></a></li>
+<li><a href="https://fox-that.techidaily.com/the-ultimate-guide-to-rebooting-iphones-when-physical-buttons-fail-you/"><u>The Ultimate Guide to Rebooting iPhones When Physical Buttons Fail You</u></a></li>
 </ul></div>
 
