@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Crafting Personalized Instagram Story Sections for 2024"
-date: 2024-11-01T20:57:17.798Z
-updated: 2024-11-03T01:09:30.697Z
+date: 2024-11-10T02:41:42.543Z
+updated: 2024-11-11T16:37:31.119Z
 tags:
   - ai video
   - ai instagram
@@ -39,6 +39,13 @@ Generally, the Instagram highlight covers dimensions are the same as Insta stori
 
 When designing custom highlight covers on Canva, you will notice that the icon will be in the middle of a story-size rectangle. The overall aspect ratio to make highlight covers in Canva is 9:16\. However, ensure that that the illustration is centered when you add it as your Instagram highlight icon.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Make Instagram Highlight Cover on Canva?
 
 Instagram allows you to use just about any image you like for your highlight covers. However, if you want your brand to stand out among the competition, you must get past just any image. Highlight covers are a prime space to attract visitors, turn them into customers, and leave a lasting impression. So, make the best use of it by creating custom highlight covers.
@@ -55,6 +62,13 @@ Once you are on the website, create your free account if you do not have one, an
 
 ![Canva create a highlight cover design](https://images.wondershare.com/filmora/article-images/canva-create-a-design-ins-story-highlight-cover.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 On the Canva homepage, click on **Create a design** tab at the right-hand upper corner. Now from the drop-down menu, you can type Instagram Story Highlight Cover in the search bar to locate it quickly, or you can scroll down to find it. The dimensions are automatically set as 1080 X 1920 pixels for Instagram story highlight in Canva, and if you don’t want to use this default size, you can click the Custom Size menu to identify the size, let’s say, 2000 \* 2000 pixels.
 
 **Step 3: Select a background color or photo**
@@ -63,6 +77,13 @@ Canva provides fully customizable templates for highlight cover, you can drag on
 
 ![Canva highlight cover template](https://images.wondershare.com/filmora/article-images/canva-instagram-highlight-cover-templates.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If you choose to create Instagram highlight covers from scratch without a template, you can follow the steps below.
 
 On the design page, click on **Add Page** and then on the upper left side, you will see Background color, click on it and select the color you want to add. Alternatively, you can add your brand's hex code color. For the photos, you can either select a stock image from the Canva, connect your Instagram, or upload your own.
@@ -70,16 +91,10 @@ On the design page, click on **Add Page** and then on the upper left side, you w
 ![Add background to Canva highlight cover](https://images.wondershare.com/filmora/article-images/add-background-highlight-cover.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 4: Choose an icon or add text**
@@ -90,13 +105,6 @@ Once you have a background color or photo, you can add an icon, emoji, or text. 
 
 ![ add text to  highlight cover ](https://images.wondershare.com/filmora/article-images/add-text-highlight-cover-canva.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 You can make as many highlights covers as you want. Just click on the +Add page to replicate the background and then add a new icon or text for each new page created.
 
 **Step 5: Download the highlight covers**
@@ -105,13 +113,6 @@ You can make as many highlights covers as you want. Just click on the +Add page 
 
 Once you are done making the Instagram highlight covers and are satisfied with the work, click on the Download button. Choose the file type like PNG or JPG, save your download settings, and hit the Download tab. Your highlight covers download as a zip file. Unzip them and transfer them to your phone via your preferred method.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: How to Upload a Highlight Cover on Instagram
 
 Before you upload the highlight covers on Instagram, ensure you turn on the Archive feature. Go to your Instagram settings and select the story settings and then turn on the Save to Archive. This enables you to see your old stories without downloading them.
@@ -119,13 +120,6 @@ Before you upload the highlight covers on Instagram, ensure you turn on the Arch
 ![ upload  highlight cover to instagram ](https://images.wondershare.com/filmora/article-images/upload-highlight-cover-to-instagram.jpg)
 
 As we said before, you should transfer the created highlight cover photos from desktop to you phone, and then click on your Instagram profile and add a new highlight, follow the instructions on the screen to edit cover and then add the highlight cover photo you just created, give it a name, and click on Done. Your new Insta Story Highlight appears at the bottom of your Instagram bio.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4: How to Change Existing Highlight Cover on Instagram?
 
@@ -172,19 +166,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-from-standard-definition-to-high-dynamic-range-a-comprehensive-tutorial/"><u>[New] From Standard Definition to High Dynamic Range - A Comprehensive Tutorial</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-inspire-your-brand-with-smart-channel-name-genesis/"><u>[New] In 2024, Inspire Your Brand with Smart Channel Name Genesis</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-the-ultimate-guide-to-building-podcast-rss/"><u>[New] The Ultimate Guide to Building Podcast RSS</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-audio-calls-tracker-iphone-voice-memo/"><u>2024 Approved Audio Calls Tracker IPhone Voice Memo</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/fine-tune-video-aspect-ratios-for-instagram-bliss/"><u>Fine-Tune Video Aspect Ratios for Instagram Bliss</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-itel-a05s-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Itel A05s? | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-comparative-study-of-youtubes-and-dailymentions/"><u>In 2024, Comparative Study of YouTubes and DailyMentions</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/insights-on-instagram-maximum-video-length/"><u>Insights on Instagram Maximum Video Length</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/instagram-searching-skills-unlock-additional-free-filters/"><u>Instagram Searching Skills – Unlock Additional Free Filters</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/instagram-stories-unseen-aspects-revealed/"><u>Instagram Stories Unseen Aspects Revealed</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/keep-an-eye-out-for-insta-follower-fleece/"><u>Keep an Eye Out for Insta Follower Fleece</u></a></li>
-<li><a href="https://change-location.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-samsung-galaxy-xcover-6-pro-tactical-edition-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Samsung Galaxy XCover 6 Pro Tactical Edition? | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/step-by-step-guide-converting-your-wavpack-tracks-into-high-quality-flac-format/"><u>Step-by-Step Guide: Converting Your WavPack Tracks Into High-Quality FLAC Format</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-samsung-galaxy-s23-fe-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Samsung Galaxy S23 FE Location | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-prime-8-instagram-managers-for-mobile-devices/"><u>[New] Prime 8 Instagram Managers for Mobile Devices</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-a-comprehensible-guide-to-screen-recording-on-the-mi-11-for-2024/"><u>[Updated] A Comprehensible Guide to Screen Recording on the Mi 11 for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-real-vs-fake-quick-ways-to-audit-your-insta-circle/"><u>[Updated] Real Vs. Fake Quick Ways to Audit Your Insta Circle</u></a></li>
+<li><a href="https://fox-sure.techidaily.com/1-high-quality-video-downloads-get-the-guardian-episodes-in-multiple-formats-mp4-mov-avi-etc/"><u>1. High-Quality Video Downloads: Get The Guardian Episodes in Multiple Formats (MP4, MOV, AVI, Etc.)</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-sonic-storytelling-how-to-enhance-ig-stories-with-melodies/"><u>2024 Approved Sonic Storytelling How to Enhance IG Stories with Melodies</u></a></li>
+<li><a href="https://win-info.techidaily.com/enhancing-ai-powered-music-creation-with-the-latest-upgrades-on-github-copilot-techzdnet/"><u>Enhancing AI-Powered Music Creation with the Latest Upgrades on GitHub Copilot | TechZDNet</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/how-to-connect-to-a-vpn-in-windows-mac-ios-android/"><u>How to Connect to a VPN in Windows / Mac / iOS / Android</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-ultimate-visionary-insights-the-top-8k-cameras-guide/"><u>In 2024, Ultimate Visionary Insights The Top 8K Cameras Guide</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-visual-enthusiasts-list-top-10-must-have-tiktok-filters/"><u>In 2024, Visual Enthusiasts' List Top 10 Must-Have TikTok Filters</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/seamless-igtv-and-fb-sharing-guide-for-2024/"><u>Seamless IGTV and FB Sharing Guide for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/showcasing-self-with-instagram-a-collection-of-100-captions-for-2024/"><u>Showcasing Self with Instagram A Collection of 100 Captions for 2024</u></a></li>
 </ul></div>
 

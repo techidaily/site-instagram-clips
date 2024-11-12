@@ -1,7 +1,7 @@
 ---
 title: "[New] Banish the Automatic Post Proposals on Instagram"
-date: 2024-10-30T20:46:29.408Z
-updated: 2024-11-03T02:26:40.942Z
+date: 2024-11-10T07:20:56.989Z
+updated: 2024-11-11T18:02:27.819Z
 tags:
   - ai video
   - ai instagram
@@ -49,6 +49,13 @@ Suggested posts will let you scroll through Instagram a bit more and even give y
 
 The intent of these features is to know more like-minded people and follow them to see more of their posts.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Turn off Suggested Posts on Instagram?
 
 So, if you are searching for answers to **remove suggested posts on Instagram,** here comes upsetting news, and that's there is no direct way to stop seeing unwanted suggested posts right at the bottom of the feed. Instagram has also made it clear that there is no way one can close suggested posts. However, this certainly doesn't mean that you can hide suggested posts at all.
@@ -61,13 +68,6 @@ Here's what you need to do:
 
 ![ suggestions for you on Ins](https://images.wondershare.com/filmora/article-images/instagram-suggestions-for-you.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 2:** Go to the home page, where you can see posts of the people you follow. Now, scroll down towards the end and stop when you see the "you're all caught up" message.
 
 **Step 3:** Right below that, you will see Suggested Posts, and the whole section will be filled with posts of people you don't know.
@@ -79,22 +79,15 @@ Here's what you need to do:
 ![click on not interested on suggested posts](https://images.wondershare.com/filmora/article-images/instagram-suggestion-posts-options.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 6:** That post and user will be removed, and instead of that, you will see a message by Instagram asking for feedback. You can click on the option: I don't want to see posts from this account, and Instagram won't show you that user's posts.
 
 ![choose your feedback option](https://images.wondershare.com/filmora/article-images/instagram-suggestion-posts-feedback.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Now, you can apply the same steps for the rest of the posts as well. But do keep in mind that suggested posts will still appear. And you will have to apply this setting for each one so that you are shown fewer posts of unknown people.
 
@@ -115,10 +108,10 @@ If you don't want to see suggested users on your Instagram feed, there is a way 
 **Step 4:** To delete multiple suggested users, just click on the see all option, and the list of suggested users will appear; now click on the X for each user you want to delete. However, you need to delete everyone one by one individually.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### For web browsers
@@ -136,6 +129,19 @@ Just like Instagram show you suggested users and posts, your account gets recomm
 **Step 3:** Scroll down towards the bottom, and you will find the similar account suggestions section. In this section, you will see a checkbox. You need to uncheck that if you don't want your name to appear as a suggested user.
 
 ![ uncheck the similar account suggestions box](https://images.wondershare.com/filmora/article-images/uncheck-similar-account-suggestions.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 5: How Does Instagram Suggestions Work?
 
@@ -170,17 +176,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-skills.techidaily.com/new-premium-free-ticking-counters/"><u>[New] Premium Free Ticking Counters</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-facebook-360-video-how-to-make-and-upload-360-video-to-facebook-for-2024/"><u>[Updated] Facebook 360 Video How to Make and Upload 360 Video to Facebook for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-instagrams-hidden-gems-designing-stunning-engaging-puzzle-posts/"><u>[Updated] Instagram's Hidden Gems Designing Stunning, Engaging Puzzle Posts</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-keeping-your-creative-content-on-ios-with-ease/"><u>[Updated] Keeping Your Creative Content on iOS with Ease</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-larger-than-life-instagram-videos-tips-to-break-the-barrier/"><u>[Updated] Larger-than-Life Instagram Videos Tips to Break the Barrier</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-latest-instagram-photo-and-video-size-checklist/"><u>2024 Approved Latest Instagram Photo and Video Size Checklist</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-the-zen-of-sleep-curated-asmr-vocalists/"><u>2024 Approved The Zen of Sleep Curated ASMR Vocalists</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/award-winning-wonderfox-software-free-dvd-extraction-and-high-def-video-conversion-experience/"><u>Award-Winning WonderFox Software: Free DVD Extraction & High-Def Video Conversion Experience</u></a></li>
-<li><a href="https://network-issues.techidaily.com/clearing-up-youtube-green-screen-faux-pas/"><u>Clearing Up YouTube Green Screen Faux Pas</u></a></li>
-<li><a href="https://win-hot.techidaily.com/discover-apowersofts-latest-android-record-app-enhanced-functionality-and-new-innovations/"><u>Discover Apowersoft's Latest Android Record App: Enhanced Functionality and New Innovations</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-lightning-flicker-viewer-windows-photos/"><u>In 2024, Lightning Flicker Viewer - Windows Photos</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/windows-amozekioe11-not-working-heres-how-you-can-repair-it/"><u>Windows Amozekioe11 Not Working? Here's How You Can Repair It</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-enhancing-social-media-with-vimeo-content-on-instagram/"><u>[New] 2024 Approved Enhancing Social Media with Vimeo Content on Instagram</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-elevating-your-social-media-presence-with-igtv-videos/"><u>[New] In 2024, Elevating Your Social Media Presence with IGTV Videos</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-drive-audience-participation-through-custom-stories-queries/"><u>[Updated] 2024 Approved Drive Audience Participation Through Custom Stories Queries</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-edge-it-all-out-the-finest-frame-options-for-social-media-photography/"><u>[Updated] In 2024, Edge It All Out The Finest Frame Options for Social Media Photography</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-elevate-content-with-properly-sized-videos-on-instagram/"><u>[Updated] In 2024, Elevate Content with Properly Sized Videos on Instagram</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-essential-steadicams-to-boost-the-performance-of-your-dslr-cameras/"><u>[Updated] In 2024, Essential Steadicams to Boost the Performance of Your DSLR Cameras</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-ways-to-track-infinix-smart-8-without-them-knowing-drfone-by-drfone-virtual-android/"><u>3 Ways to Track Infinix Smart 8 without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/expert-insights-on-the-ultimate-list-of-2024s-most-superior-stylus-tablets-zdnet/"><u>Expert Insights on the Ultimate List of 2024'S Most Superior Stylus Tablets | ZDNET</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/explore-the-world-of-secure-private-ai-chat-options-choose-duckduckgo-for-enhanced-security/"><u>Explore the World of Secure, Private AI Chat Options – Choose DuckDuckGo for Enhanced Security</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-xiaomi-14-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Xiaomi 14 to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-pixel-power-the-best-for-web-video-gems/"><u>In 2024, Pixel Power The Best for Web Video Gems</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/insider-wisdom-how-to-effortlessly-upload-photosvideos-in-win11-for-2024/"><u>Insider Wisdom How to Effortlessly Upload Photos/Videos in Win11 for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-nokia-xr21-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Nokia XR21</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/understanding-wex-windows-exe-structure/"><u>Understanding WEX: Windows EXE Structure</u></a></li>
 </ul></div>
 

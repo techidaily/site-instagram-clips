@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Final Cut Pro X  Achieving Perfect Vertical Video for Instagram for 2024\""
-date: 2024-10-30T22:07:02.773Z
-updated: 2024-11-02T16:14:29.570Z
+date: 2024-11-10T22:24:01.147Z
+updated: 2024-11-11T23:51:16.741Z
 tags:
   - ai video
   - ai instagram
@@ -50,6 +50,13 @@ Before entering the nitty-gritty on how to edit vertical videos with FCPX, you s
 | **Video codecs supported**       | VP8                                                      |
 | **Audio codecs supported**       | 128 kbps, Vorbis                                         |
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Edit and Export Vertical Videos for Instagram in Final Cut Pro X?
 
 Thus, to edit vertical video for Instagram in Final Cut Pro X, all you need is to follow the steps given below. We have also covered how to export vertical videos for Instagram in FCPX without black bars.
@@ -89,17 +96,10 @@ Too many steps? Then try a **beginner-friendly editing tool**, Filmora!
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
-  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: Tips on Editing Vertical Videos for Instagram
@@ -119,10 +119,10 @@ Is the video already shot horizontally on your camera or smartphone? No worries,
 Vertical video is a great option to showcase wide and tall subjects where you can place close-ups and show off details to get up close and personal. It could be a product or fabric. You can showcase enticing minor elements that attract an audience in such landscape shots.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -132,10 +132,16 @@ Hence, I am sure you found new tactics to create vertical videos for Instagram. 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -153,22 +159,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/ow-to-authenticate-your-yt-account-a-hint-list-for-2024/"><u>[New] How to Authenticate Your YT Account? A Hint List for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-impact-of-new-instagrams-algorithms-on-users/"><u>[New] Impact of New Instagram's Algorithms on Users</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-top-8-websites-for-3d-graffiti-fonts/"><u>[New] In 2024, Top 8 Websites for 3D Graffiti Fonts</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-from-raw-footage-to-instagram-gold-top-10-editor-shortlists/"><u>[Updated] From Raw Footage to Instagram Gold - Top 10 Editor Shortlists</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-harnessing-new-filters-on-instagram-a-modern-take-2023-techniques/"><u>2024 Approved Harnessing New Filters on Instagram A Modern Take (2023 Techniques)</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-how-to-spark-interest-and-boost-views-on-instagram-videos/"><u>2024 Approved How to Spark Interest & Boost Views on Instagram Videos</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/clear-cut-cinematic-9-ways-to-ensure-smooth-videos-on-windows-os/"><u>Clear Cut Cinematic: 9 Ways to Ensure Smooth Videos on Windows OS</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/decouvrez-la-recuperation-unikey-comprendre-sa-fonction-et-ses-tactiques-dutilisation/"><u>Découvrez La Récupération UniKey: Comprendre Sa Fonction Et Ses Tactiques D'Utilisation</u></a></li>
-<li><a href="https://solve-help.techidaily.com/download-and-install-the-ultimate-windows-media-codec-suite-for-win10win11/"><u>Download & Install the Ultimate Windows Media Codec Suite for Win10/Win11</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-share-location-in-messenger-on-oppo-find-x6-drfone-by-drfone-virtual-android/"><u>How to Share Location in Messenger On Oppo Find X6? | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/ignite-social-success-discover-the-10-most-powerful-igtv-video-ideas-for-brands-for-2024/"><u>Ignite Social Success Discover the 10 Most Powerful IGTV Video Ideas for Brands for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-how-to-reverse-video-on-instagram-complete-guide/"><u>In 2024, How to Reverse Video on Instagram? [Complete Guide]</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-how-to-upside-down-your-instagram-videos-complete-manual/"><u>In 2024, How to Upside Down Your Instagram Videos [Complete Manual]</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-navigating-inter-service-playlist-shuffling-with-ease/"><u>In 2024, Navigating Inter-Service Playlist Shuffling with Ease</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-ranked-best-ipad-speech-to-text-programs-3/"><u>In 2024, Ranked Best iPad Speech-to-Text Programs #3</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/influencers-insight-quick-pathways-to-instagram-fame-with-our-ultimate-list-of-15-tips-for-2024/"><u>Influencer's Insight Quick Pathways to Instagram Fame with Our Ultimate List of 15 Tips for 2024</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-2024-approved-mavericks-movie-maker-how-to-create-stunning-videos/"><u>Updated 2024 Approved Mavericks Movie Maker How to Create Stunning Videos</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-androids-best-practice-for-saving-gameplay-videos/"><u>[New] 2024 Approved Android's Best Practice for Saving Gameplay Videos</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-building-a-brand-on-instagram-establishing-a-business-entity-for-2024/"><u>[New] Building a Brand on Instagram Establishing a Business Entity for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-avoid-social-stress-how-to-unfollow-people/"><u>[New] In 2024, Avoid Social Stress How to Unfollow People</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-best-igtv-sources-for-daily-inspiration/"><u>[New] In 2024, Best IGTV Sources for Daily Inspiration</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-building-an-affluent-future-with-instagram-know-how/"><u>[Updated] 2024 Approved Building an Affluent Future with Instagram Know-How</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-best-tools-to-create-stunning-igtv-video-edits-for-2024/"><u>[Updated] Best Tools to Create Stunning IGTV Video Edits for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-conquering-the-top-5-common-instagram-video-issues-for-2024/"><u>[Updated] Conquering the Top 5 Common Instagram Video Issues for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-fire-up-your-dreams-with-these-10-movie-gems/"><u>[Updated] Fire Up Your Dreams with These 10 Movie Gems</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-boosting-engagement-navigate-to-these-8-best-apps-for-post-timers/"><u>[Updated] In 2024, Boosting Engagement Navigate to These 8 Best Apps for Post Timers</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-save-instastories-infinite-the-liberation-app/"><u>2024 Approved Save InstaStories Infinite The Liberation App</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-scenes-of-soundmojis-on-social-messaging-platforms/"><u>Behind the Scenes of Soundmojis on Social Messaging Platforms</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/how-to-share-screen-on-google-meet/"><u>How to Share Screen on Google Meet</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-building-an-intriguing-vlog-conversation-guide/"><u>In 2024, Building an Intriguing Vlog Conversation Guide</u></a></li>
 </ul></div>
 

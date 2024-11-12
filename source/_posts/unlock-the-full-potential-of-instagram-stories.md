@@ -1,7 +1,7 @@
 ---
 title: "Unlock the Full Potential of Instagram Stories"
-date: 2024-10-30T22:25:52.178Z
-updated: 2024-11-02T19:47:44.898Z
+date: 2024-11-04T17:42:38.376Z
+updated: 2024-11-11T19:14:03.075Z
 tags:
   - ai video
   - ai instagram
@@ -100,6 +100,13 @@ Now that you have an idea about all the filters and lenses of Instagram, we thou
 
 ![](https://images.wondershare.com/filmora/article-images/create-insta-stories-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Image resource: Ryan Bilello
 
 ### Use Stickers
@@ -107,10 +114,10 @@ Image resource: Ryan Bilello
 ![](https://images.wondershare.com/filmora/article-images/instagram-stickers.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Using 'Stickers' with your video or images you can spice up your Insta Stories. To use these stickers, first open Instagram, and then capture a video/picture or select one from your gallery. Now, tap on the smiley icon at the top right corner of the picture or video. You will see lot of options under it. Select any of them and then pin it to your picture/video to share. You can resize the 'Stickers' by pinching (to zoom in and out) them.
@@ -137,33 +144,26 @@ Whoa! You are becoming a sport at how to use Instagram Stories.
 
 ![](https://images.wondershare.com/filmora/article-images/add-text-to-instagram.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 You can also add text to make your Instagram Stories more attractive. Tap on the 'Aa' icon on the extreme right corner of your screen (in Instagram camera) and start typing. You can change the font style by tapping the style available on top of the screen, as well as select the color of the 'Text'. You can also tag people in 'Text' by typing '@' and then the handle name of the person, then click on their image.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Add color overlays
 
 ![](https://images.wondershare.com/filmora/article-images/instagram-pen.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Adorn your creative hat and weave some magic into the Insta Stories now. For adding color overlays to your Insta Story image or video you need to use the 'Pen' tool here and choose a color. Now, click anywhere on the screen and hold for a moment until the entire screen is covered with that color. After that tap on the 'Eraser' tool and uncover specific portions of the picture or video to create interesting Instagram Stories.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Add link
@@ -174,6 +174,13 @@ First add a video or picture and then click on the paperclip icon from the top r
 
 **You May Also Like:** [How to Post a Link to Instagram Stories and Posts](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Add music
 
 If adding 'Stickers', 'Text', and choosing filters aren't enough for your perfect Insta Story video, why don't you try adding your favorite music to it? First of all play an audio using the inbuilt player in your phone (you can stream online as well) and then move to Instagram and tap the camera icon to shoot the video. When your recording is complete, you can share this video along with your favorite track as your Instagram Story. Take care that the music icon is not muted ('X' mark over it).
@@ -183,13 +190,6 @@ If adding 'Stickers', 'Text', and choosing filters aren't enough for your perfec
 With this complete guide for Instagram Stories, we are hopeful that you are going to be a pro in how to use Instagram Stories. Bring out that creative soul in you and explore the world of Insta Stories with these amazingly cool features. Keep telling your stories through your camera lens (the Instagram one!).
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -206,20 +206,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-professional-tips-to-perfect-igtv-thumbnails/"><u>[New] 2024 Approved Professional Tips to Perfect IGTV Thumbnails</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-proven-techniques-to-elevate-your-igtv-videos-on-mobile-and-professional-cameras/"><u>[New] 2024 Approved Proven Techniques to Elevate Your IGTV Videos on Mobile & Professional Cameras</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-finding-value-in-cheap-gopro-sales-online/"><u>[New] In 2024, Finding Value in Cheap GoPro Sales Online</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-quick-fixes-screen-capturing-on-instagrams-feed-for-2024/"><u>[New] Quick Fixes Screen Capturing on Instagram's Feed for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-postpresence-mastering-photo-and-video-sizing-on-instagram/"><u>[Updated] 2024 Approved PostPresence Mastering Photo and Video Sizing on Instagram</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-perfect-every-moment-incorporating-captions-in-instagram-footage/"><u>[Updated] In 2024, Perfect Every Moment Incorporating Captions in Instagram Footage</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-perfecting-video-frames-for-instagram-shares/"><u>[Updated] In 2024, Perfecting Video Frames for Instagram Shares</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-perfectly-prepared-videos-a-guide-to-instagram-fitness/"><u>[Updated] In 2024, Perfectly Prepared Videos A Guide to Instagram Fitness</u></a></li>
-<li><a href="https://extra-information.techidaily.com/updated-top-8-best-selfie-sticks-for-iphone-2024-review/"><u>[Updated] Top 8 Best Selfie Sticks for iPhone 2024 Review</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/astounding-vlogs-start-here-easy-to-create-projects/"><u>Astounding Vlogs Start Here Easy-to-Create Projects</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/humorhub-your-step-by-step-to-fun-videos-for-2024/"><u>HumorHub Your Step-by-Step to Fun Videos for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-a-complete-guide-to-oem-unlocking-on-infinix-hot-40-pro-by-drfone-android/"><u>In 2024, A Complete Guide To OEM Unlocking on Infinix Hot 40 Pro</u></a></li>
-<li><a href="https://win-best.techidaily.com/optimizacion-fotografica-eleva-tu-imagen-con-movavi/"><u>Optimización Fotográfica: Eleva Tu Imagen Con Movavi</u></a></li>
-<li><a href="https://extra-information.techidaily.com/transform-text-to-laughter-kapwings-toolkit/"><u>Transform Text to Laughter - Kapwing's Toolkit</u></a></li>
-<li><a href="https://win-able.techidaily.com/understanding-and-fixing-input-delay-in-cyberpunk-2077/"><u>Understanding and Fixing Input Delay in Cyberpunk 2077</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-ranking-of-top-10-budget-friendly-video-calls-iphoneandroid/"><u>[New] 2024 Approved Ranking of Top 10 Budget-Friendly Video Calls (iPhone/Android)</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-final-cut-pro-x-insider-market-vertical-videos-for-instagram-enthusiasts/"><u>[New] Final Cut Pro X Insider' Market Vertical Videos for Instagram Enthusiasts</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-finessing-voices-in-instagrams-storytelling-and-videos/"><u>[New] Finessing Voices in Instagram's Storytelling and Videos</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-from-capture-to-share-precision-cropping-and-export-tips-for-instagram/"><u>[New] From Capture to Share Precision Cropping & Export Tips for Instagram</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-combining-youtube-and-imovie-for-professional-results/"><u>[New] In 2024, Combining YouTube and iMovie for Professional Results</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-polarr-editor-essentials-unlocking-the-potential-of-images/"><u>[Updated] Polarr Editor Essentials Unlocking the Potential of Images</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-how-to-post-a-vimeo-video-on-instagram/"><u>2024 Approved How to Post a Vimeo Video on Instagram</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-it-samsung-galaxy-a54-5g-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix It Samsung Galaxy A54 5G Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-use-google-assistant-on-your-lock-screen-of-lava-yuva-2-pro-phone-by-drfone-android/"><u>How to Use Google Assistant on Your Lock Screen Of Lava Yuva 2 Pro Phone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-frame-it-right-vertical-video-mastery-with-final-cut-pro-x/"><u>In 2024, Frame It Right Vertical Video Mastery with Final Cut Pro X</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/insta-flip-fundamentals-rotating-videos-for-maximum-engagement-and-reach-for-2024/"><u>Insta-Flip Fundamentals Rotating Videos for Maximum Engagement and Reach for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/trasforma-i-tuoi-file-avi-in-mpeg-senza-costi-con-questo-servizio-online-di-movavi/"><u>Trasforma I Tuoi File AVI in MPEG Senza Costi Con Questo Servizio Online Di Movavi</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/utilize-snapchats-star-trail-effectively-for-2024/"><u>Utilize Snapchat's Star Trail Effectively for 2024</u></a></li>
 </ul></div>
 

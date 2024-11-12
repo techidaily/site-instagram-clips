@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] PictureProfessional  Expert Guide to Adjusting IG Content Sizes\""
-date: 2024-10-27T22:46:32.390Z
-updated: 2024-11-02T17:09:30.027Z
+date: 2024-11-06T23:30:41.820Z
+updated: 2024-11-11T19:21:04.815Z
 tags:
   - ai video
   - ai instagram
@@ -46,10 +46,10 @@ Duration of Videos on Instagram
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Best Image Sizes for Instagram Posts
@@ -61,10 +61,10 @@ A couple of years ago, Instagram has finally allowed its users to upload images 
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
@@ -92,16 +92,10 @@ The profile pictures on Instagram are tiny, and the optimum size for them is 160
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -119,19 +113,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-unleash-the-power-of-pause-tips-for-instas-next-viral-slow-motion-reels/"><u>[New] 2024 Approved Unleash the Power of Pause Tips for Insta's Next Viral Slow-Motion Reels</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-unlock-ig-success-with-expert-insights-on-loop-videos/"><u>[New] 2024 Approved Unlock IG Success with Expert Insights on Loop Videos</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-transform-your-reels-6-advanced-applications-for-instagram-for-2024/"><u>[New] Transform Your Reels 6 Advanced Applications for Instagram for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-transforming-instagram-vids-into-a-backup-solution-via-computers-and-macs-for-2024/"><u>[New] Transforming Instagram Vids Into a Backup Solution via Computers & Macs for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-turn-your-instagram-footage-backwards-easily/"><u>[Updated] 2024 Approved Turn Your Instagram Footage Backwards Easily</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-instant-access-to-12-high-quality-livestreams/"><u>[Updated] Instant Access to 12 High-Quality Livestreams</u></a></li>
-<li><a href="https://techtrends.techidaily.com/excel-mastery-combining-separate-column-information-into-a-single-streamlined-format/"><u>Excel Mastery: Combining Separate Column Information Into a Single Streamlined Format</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-the-error-of-unfortunately-the-processcomandroidphone-has-stopped-on-tecno-pova-5-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix the Error of Unfortunately the Process.com.android.phone Has Stopped on Tecno Pova 5 | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-android-to-apple-how-to-transfer-photos-from-vivo-v29-pro-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Android to Apple How To Transfer Photos From Vivo V29 Pro to iPad Easily | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlock-realme-v30-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>In 2024, Unlock Realme V30 Phone Password Without Factory Reset Full Guide Here</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-unlock-the-secrets-of-color-balance-in-gopro-videos/"><u>In 2024, Unlock the Secrets of Color Balance in GoPro Videos</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/seamless-printer-function-release/"><u>Seamless Printer Function Release</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/ultimate-guide-to-affordable-online-photo-edits-of-the-year/"><u>Ultimate Guide to Affordable Online Photo Edits of the Year</u></a></li>
-<li><a href="https://howto.techidaily.com/what-to-do-when-nokia-g42-5g-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Nokia G42 5G Has Black Screen of Death? | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-capture-and-craft-premium-coverings-for-iphonesandroid/"><u>[New] Capture and Craft Premium Coverings for iPhones/Android</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-get-savvy-with-io-screener-a-primer-for-2024/"><u>[Updated] Get Savvy with IO Screener A Primer for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-quick-kinemaster-techniques-for-memelore/"><u>[Updated] In 2024, Quick KineMaster Techniques for Memelore</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-rethink-your-favorite-films-top-7-replacements/"><u>[Updated] Rethink Your Favorite Films - Top 7 Replacements</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-building-a-solid-base-for-higher-instagram-video-view-counts/"><u>2024 Approved Building a Solid Base for Higher Instagram Video View Counts</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-deactivating-instagrams-igtv-feature/"><u>2024 Approved Deactivating Instagram's IGTV Feature</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/conquering-content-diversity-with-verticalized-h-video-posts-for-2024/"><u>Conquering Content Diversity with Verticalized H-Video Posts for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/craft-your-creative-identity-mastering-instagram-photowatermarking-for-2024/"><u>Craft Your Creative Identity Mastering Instagram Photowatermarking for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-enable-and-utilize-a-keyboardmouse-on-your-playstation-4-console/"><u>How To Enable And Utilize A Keyboard/Mouse On Your PlayStation 4 Console</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-3-effective-ways-to-unlock-icloud-account-without-password-on-apple-iphone-15-by-drfone-ios/"><u>In 2024, 3 Effective Ways to Unlock iCloud Account Without Password On Apple iPhone 15</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-capture-and-convert-your-instagram-feeds-top-15-free-exporters-for-windows-and-macos-users/"><u>In 2024, Capture and Convert Your Instagram Feeds Top 15 Free Exporters For Windows & macOS Users</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-climbing-the-feed-ladder-the-most-effective-hashtags-for-likes-and-followers-on-insta/"><u>In 2024, Climbing the Feed Ladder The Most Effective Hashtags for Likes and Followers on Insta</u></a></li>
+<li><a href="https://win-alternatives.techidaily.com/seamless-integration-how-to-transfer-an-ost-file-into-your-microsoft-outlook-seamlessly/"><u>Seamless Integration: How to Transfer an OST File Into Your Microsoft Outlook Seamlessly</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/superb-alter-ego-voice-tools-for-aspiring-vtubers/"><u>Superb Alter-Ego Voice Tools For Aspiring VTubers</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-ultimate-guide-to-removing-backdrops-a-comprehensive-approach/"><u>The Ultimate Guide to Removing Backdrops A Comprehensive Approach</u></a></li>
 </ul></div>
 

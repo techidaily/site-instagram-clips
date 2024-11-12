@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] FrameFinesse  A Detailed Guide on IG Image Dimensions\""
-date: 2024-11-01T21:24:17.362Z
-updated: 2024-11-03T04:50:09.781Z
+date: 2024-11-08T19:17:05.421Z
+updated: 2024-11-11T16:35:51.305Z
 tags:
   - ai video
   - ai instagram
@@ -46,10 +46,10 @@ Duration of Videos on Instagram
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087262/19272" target="_top" id="2087262">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087262" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087262/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Best Image Sizes for Instagram Posts
@@ -61,10 +61,10 @@ A couple of years ago, Instagram has finally allowed its users to upload images 
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
@@ -92,10 +92,10 @@ The profile pictures on Instagram are tiny, and the optimum size for them is 160
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -113,17 +113,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-high-performance-drone-gimbals/"><u>[New] 2024 Approved High-Performance Drone Gimbals</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-ios-leading-edge-psp-emulators-top-5-lists/"><u>[New] 2024 Approved IOS Leading Edge PSP Emulators, Top 5 Lists</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-learn-to-convert-your-vids-into-music-on-instagram-today/"><u>[New] 2024 Approved Learn to Convert Your Vids Into Music on Instagram Today</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-key-metrics-to-track-igtv-video-analytics/"><u>[New] In 2024, Key Metrics to Track IGTV Video Analytics</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-making-every-frame-count-in-instagram-videos/"><u>[New] In 2024, Making Every Frame Count in Instagram Videos</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-mobile-media-upload-share-videos-on-twitter-without-retweeting-for-2024/"><u>[New] Mobile Media Upload Share Videos on Twitter Without Retweeting for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-leading-the-pack-in-multi-media-posting-on-instagram/"><u>[Updated] In 2024, Leading the Pack in Multi-Media Posting on Instagram</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/d-vidcon-top-50-youtube-celebrations-for-2024/"><u>Beyond VidCon Top 50 YouTube Celebrations for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/fixing-the-sluggish-closure-solutions-to-your-windows-10-shutdown-woes/"><u>Fixing the Sluggish Closure: Solutions to Your Windows 10 Shutdown Woes</u></a></li>
-<li><a href="https://win-able.techidaily.com/1723000000594-how-to-enable-msi-afterburner-detection-for-your-gpu-on-windows-1011-problem-solved/"><u>How to Enable MSI Afterburner Detection for Your GPU on Windows 10/11: Problem Solved!</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-oppo-find-x6-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your Oppo Find X6</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/oculus-equipment-error-resolution-best-practices/"><u>Oculus Equipment Error Resolution: Best Practices</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-top-10-youtube-video-grabber-apps-best-in-class-compatibility/"><u>[New] 2024 Approved Top 10 YouTube Video Grabber Apps, Best-in-Class Compatibility</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-unobstructed-movie-magic-erasing-youtube-borders/"><u>[New] 2024 Approved Unobstructed Movie Magic Erasing YouTube Borders</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-avoid-the-fake-out-maintaining-authenticity-in-likes/"><u>[New] Avoid the Fake-Out Maintaining Authenticity in Likes</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-becoming-professionally-active-registering-a-business-on-ig/"><u>[New] Becoming Professionally Active Registering a Business on IG</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-beyond-likes-the-unseen-world-of-instagram-story-audiences/"><u>[New] Beyond Likes The Unseen World of Instagram Story Audiences</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-the-blueprint-for-capturing-compelling-powerpoint-presentations/"><u>[New] The Blueprint for Capturing Compelling PowerPoint Presentations</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-boost-your-brand-accrue-1k-ig-friendsmonthly/"><u>[Updated] Boost Your Brand Accrue 1K IG Friends/Monthly</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-copyright-guide-for-instagram-music/"><u>[Updated] Copyright Guide for Instagram Music</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/artisans-nexus-reports-in-depth-studio-scrutiny-2023-edition/"><u>Artisan's Nexus Reports In-Depth Studio Scrutiny, 2023 Edition</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/boost-your-instagram-influence-5-key-tactics-for-enhanced-followers-for-2024/"><u>Boost Your Instagram Influence 5 Key Tactics for Enhanced Followers for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/from-pixels-to-prints-master-snapseed-fundamentals-for-2024/"><u>From Pixels to Prints Master Snapseed Fundamentals for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-conquer-video-lengths-your-ultimate-guide-to-auto-resizing-on-mac/"><u>In 2024, Conquer Video Lengths Your Ultimate Guide to Auto-Resizing on Mac</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-discover-the-best-insta-grid-creators-our-leading-ten-picks/"><u>In 2024, Discover the Best Insta Grid Creators Our Leading Ten Picks</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/in-summary-avengers-endgame-is-often-seen-as-a-landmark-film-not-only-for-its-place-within-the-mcu-but-also-for-its-broader-influence-on-modern-cinemas-appr445/"><u>In Summary, Avengers: Endgame Is Often Seen as a Landmark Film Not only for Its Place Within the MCU but Also for Its Broader Influence on Modern Cinema's Approach to Franchise-Building and Storytelling Across Multiple Installments</u></a></li>
+<li><a href="https://win11.techidaily.com/resolving-power-user-permissions-issues-in-windows-os/"><u>Resolving Power-User Permissions Issues in Windows OS</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-ultimate-guide-converting-any-tiktok-sound-into-phone-alerts/"><u>The Ultimate Guide Converting Any TikTok Sound Into Phone Alerts</u></a></li>
+<li><a href="https://win-blog.techidaily.com/vrijwelgratis-omzetting-van-swf-bestandjes-de-beste-oplossingen-voor-online-converters/"><u>Vrijwelgratis Omzetting Van Swf-Bestandjes: De Beste Oplossingen Voor Online Converters</u></a></li>
 </ul></div>
 
