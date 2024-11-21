@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] PicturePerfectionist  Expert Guide to IG Size Settings for 2024\""
-date: 2024-11-10T20:28:45.843Z
-updated: 2024-11-11T21:00:24.494Z
+date: 2024-11-15T21:40:16.949Z
+updated: 2024-11-21T08:01:44.757Z
 tags:
   - ai video
   - ai instagram
@@ -29,6 +29,10 @@ Taking photos with iPhones and Android Smartphones and posting them to Instagram
 
 Troubles begin when you want to upload photos and videos that weren't captured with a Smartphone to Instagram. In most cases, the photos and videos produced by DSLR cameras and other semi-professional and professional equipment are much larger than the sizes supported by Instagram. That is the reason why we created this guide that will help you post visual content that is perfectly adjusted to Instagram in 2021.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Types of Files Accepted by Instagram
 
 The first thing you need to pay attention to when uploading images and videos to Instagram is that the files you are uploading are in one of the photo or video formats that Instagram supports.
@@ -46,16 +50,7 @@ Duration of Videos on Instagram
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
 <!-- affiliate ads begin -->
-<span id="1444782">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Best Image Sizes for Instagram Posts
@@ -67,10 +62,7 @@ A couple of years ago, Instagram has finally allowed its users to upload images 
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
@@ -98,10 +90,7 @@ The profile pictures on Instagram are tiny, and the optimum size for them is 160
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -119,22 +108,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-fixing-blurred-footage-in-social-media-streaming-for-2024/"><u>[New] Fixing Blurred Footage in Social Media Streaming for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-navigating-through-the-best-android-podcast-apps-top-6/"><u>[New] Navigating Through The Best Android Podcast Apps (Top 6)</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-say-goodbye-to-stumbles-in-your-instagram-stream/"><u>[New] Say Goodbye to Stumbles in Your Instagram Stream</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-mastering-media-an-intuitive-approach-to-pc-mac-and-mobile-movies/"><u>[Updated] 2024 Approved Mastering Media An Intuitive Approach to PC, Mac & Mobile Movies</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-noble-mic-necessities-for-youtube-newbies-on-the-cheap/"><u>[Updated] 2024 Approved Noble Mic Necessities for YouTube Newbies on the Cheap</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-mastering-the-art-of-igtv-production-phone-and-dslr-techniques/"><u>[Updated] Mastering the Art of IGTV Production Phone and DSLR Techniques</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-perfect-timing-for-instagram-loops-key-strategies-revealed/"><u>[Updated] Perfect Timing for Instagram Loops Key Strategies Revealed</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-secrets-from-pros-how-to-convert-insta-videos-to-premium-mp4/"><u>[Updated] Secrets From Pros How to Convert Insta Videos to Premium MP4</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-fb-flicks-grabber-tool/"><u>2024 Approved FB Flicks Grabber Tool</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-no-cost-speedy-tips-for-exposing-deceptive-instagram-acquaintances/"><u>2024 Approved No-Cost, Speedy Tips for Exposing Deceptive Instagram Acquaintances</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/innovative-ways-to-record-and-tweak-videos-using-the-adobe-connect-platform-for-2024/"><u>Innovative Ways to Record & Tweak Videos Using the Adobe Connect Platform for 2024</u></a></li>
-<li><a href="https://discover-exceptional.techidaily.com/macrium-reflect-is-it-still-free-or-time-for-a-top-rated-substitute/"><u>Macrium Reflect: Is It Still Free or Time for a Top-Rated Substitute?</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/monitoring-lost-instagram-connections-for-2024/"><u>Monitoring Lost Instagram Connections for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/navigating-content-savings-top-5-techniques-to-download-igtv-videos-for-2024/"><u>Navigating Content Savings Top 5 Techniques to Download IGTV Videos for 2024</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/pattern-locks-are-unsafe-secure-your-poco-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your Poco Phone Now with These Tips</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/professional-insights-mastering-the-craft-of-creating-stunning-slow-motion-content-for-instagram-for-2024/"><u>Professional Insights Mastering the Craft of Creating Stunning Slow Motion Content for Instagram for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-vivo-x90s-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On Vivo X90S | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-secretive-story-viewing-tactics-for-android-iphone-and-pc/"><u>[New] 2024 Approved Secretive Story Viewing Tactics for Android, iPhone & PC</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-top-10-insta-management-gadgets-for-boosting-engagement/"><u>[New] 2024 Approved Top 10 Insta Management Gadgets for Boosting Engagement</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-visual-virtuosos-popular-ig-effects/"><u>[New] In 2024, Visual Virtuosos Popular IG Effects</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-the-secret-life-of-instagrams-interrogation-icon/"><u>[Updated] In 2024, The Secret Life of Instagram’s Interrogation Icon</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-tailoring-your-video-for-optimal-instagram-impact/"><u>[Updated] Tailoring Your Video for Optimal Instagram Impact</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-poco-x5-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Poco X5 Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/choosing-your-preferred-ai-assistant-bard-chatgpt-or-offline-alpaca/"><u>Choosing Your Preferred AI Assistant: Bard, ChatGPT or Offline Alpaca?</u></a></li>
+<li><a href="https://win-blog.techidaily.com/fixing-the-issue-why-is-battlefield-4-failing-to-start-on-your-pc/"><u>Fixing the Issue: Why Is Battlefield 4 Failing to Start on Your PC?</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/how-can-you-create-animated-facebook-ads-with-high-roi/"><u>How Can You Create Animated Facebook Ads With High ROI?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-barnes-and-noble-nook-glowlight-3-your-ideal-device-for-reading-at-night/"><u>In-Depth Analysis of the Barnes & Noble Nook GlowLight 3 - Your Ideal Device for Reading at Night</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621314-9781601634528-sex-sorcery-and-spirit/"><u>Sex, Sorcery, and Spirit | Free Book</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/stabilize-your-gaming-experience-overcome-persistent-pc-crashes-in-new-world/"><u>Stabilize Your Gaming Experience: Overcome Persistent PC Crashes in 'New World'</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-translating-music-into-words-easy-online-techniques-for-mp3-to-text-conversion-updated-guide-for-2024/"><u>Updated Translating Music Into Words Easy Online Techniques for MP3 to Text Conversion Updated Guide for 2024</u></a></li>
 </ul></div>
 

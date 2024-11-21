@@ -1,7 +1,7 @@
 ---
 title: "\"Optimize Video Posts  A Comprehensive Crop & Export Method for 2024\""
-date: 2024-10-25T21:34:07.835Z
-updated: 2024-10-27T23:42:00.686Z
+date: 2024-11-14T04:40:32.029Z
+updated: 2024-11-21T02:54:29.853Z
 tags:
   - ai video
   - ai instagram
@@ -49,9 +49,17 @@ In order to start cropping your videos, you first must install the Filmora video
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2: Drag and Drop the video file onto the Timeline**
 
 ![](https://images.wondershare.com/filmora/article-images/video-editor-main-interface-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Now that the video clip you want to edit is in the editor's media library, drag it and drop it to the timeline.
 
@@ -63,17 +71,29 @@ Chances are that the camera you used to record your video clip recorded the foot
 
 ![check aspect ratio](https://images.wondershare.com/filmora/article-images/check-aspect-ratio.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Once the new window appears, you should click on the Format icon positioned in the upper left corner of the screen. Select the MP4 format, name your file and select the folder where the file will be exported.
 
 Click on the Settings button and then set the Quality of the video to Best and select the HD Optimized option in the Encoder menu. Choose the Resolution and Frame Rate that match the ones in your video and change the Bitrate in the Audio settings to 128 Kbps and hit OK.
 
 ![](https://images.wondershare.com/filmora/article-images/16-9-aspect-ratio-export.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **2\. Portrait (4:3)**
 
 In order to create a video that has a portrait aspect ratio, you need to crop it. You can do this by clicking on the **Crop and Pan tool**, located in the timeline tools. Use an [online aspect ratio calculator](https://calculateaspectratio.com/) to find the exact resolution that matches the portrait aspect ratio. Once you made the calculations return to Filmora and click on the Manually option in the Crop and Pan screen. Insert the numbers manually to resize the video.
 
 ![crop and zoom filmora](https://images.wondershare.com/filmora/article-images/crop-and-zoom-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Adjust the crop tool's position and click OK. The export process for landscape and portrait videos is nearly identical and the only thing you need to change is the resolution. Click on the Resolution drop-down menu and select the custom option and then enter the height and weight values you inserted in the cropping tool. Your portrait video is ready to be exported.
 
@@ -100,31 +120,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-harmonyhub-pro-downloads-and-reviews/"><u>[New] In 2024, HarmonyHub Pro Downloads & Reviews</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-top-25-mentors-in-modern-social-media-mastery-on-instagram-for-2024/"><u>[New] Top 25 Mentors in Modern Social Media Mastery on Instagram for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-the-rotation-revelation-manual-transform-your-visual-content-on-social-media-sites/"><u>[Updated] 2024 Approved The Rotation Revelation Manual Transform Your Visual Content on Social Media Sites</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-the-ultimate-soundtrack-for-ig-story-posts-unveiled/"><u>[Updated] 2024 Approved The Ultimate Soundtrack for IG Story Posts Unveiled</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-craft-engaging-videos-insights-into-youtube-movie-maker/"><u>[Updated] Craft Engaging Videos Insights Into YouTube Movie Maker</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-expert-guide-to-free-pc-software-for-capturing-tv-for-2024/"><u>[Updated] Expert Guide to Free PC Software for Capturing TV for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-premium-5-hidden-video-access-tools-for-2024/"><u>[Updated] Premium 5 Hidden Video Access Tools for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-the-science-of-hashtags-how-they-drive-instagram-success-for-2024/"><u>[Updated] The Science of Hashtags How They Drive Instagram Success for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-your-realme-gt-3-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Realme GT 3 Location on Twitter | Dr.fone</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/in-2024-how-to-detect-and-remove-spyware-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Detect and Remove Spyware on Apple iPhone 6? | Dr.fone</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/optimal-bitrate-configuration-for-1080p-at-60fps-choosing-the-right-obs-recording-settings/"><u>Optimal Bitrate Configuration for 1080P at 60Fps: Choosing the Right OBS Recording Settings</u></a></li>
-<li><a href="https://driver-error.techidaily.com/resolving-hcmon-driver-installation-failures-a-step-by-step-guide/"><u>Resolving HCMon Driver Installation Failures: A Step-by-Step Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-importance-of-learning-german-or-french-for-international-affairs/"><u>The Importance of Learning: German or French for International Affairs?</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-a-deep-dive-into-ideal-instagram-post-times/"><u>[New] In 2024, A Deep Dive Into Ideal Instagram Post Times</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-leading-edge-technology-in-capturing-virtual-meetings-5-top-picks-for-2024/"><u>[New] Leading Edge Technology in Capturing Virtual Meetings (5 Top Picks) for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-the-ultimate-selection-of-frames-for-professional-ig-artistry-for-2024/"><u>[New] The Ultimate Selection of Frames for Professional IG Artistry for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-turn-the-tape-counterclockwise-instagrams-reverse-play-technique-for-2024/"><u>[New] Turn the Tape Counterclockwise Instagram's Reverse Play Technique for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-from-followers-to-earnings-instagrams-complete-guide/"><u>[Updated] 2024 Approved From Followers to Earnings Instagram's Complete Guide</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-list-of-ex-followers-on-instagram/"><u>[Updated] 2024 Approved List of Ex-Followers on Instagram</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-secrets-from-pros-how-to-convert-insta-videos-to-premium-mp4-for-2024/"><u>[Updated] Secrets From Pros How to Convert Insta Videos to Premium MP4 for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-soundtrack-of-your-phone-classic-tones-download-site-guide/"><u>2024 Approved The Soundtrack of Your Phone Classic Tones Download Site Guide</u></a></li>
+<li><a href="https://win-able.techidaily.com/fix-implemented-accessing-origin-accounts-is-possible-again/"><u>Fix Implemented! Accessing Origin Accounts Is Possible Again</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fixing-silent-pcs-a-guide-to-troubleshooting-sound-problems/"><u>Fixing Silent PCs: A Guide to Troubleshooting Sound Problems</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-musicians-can-monetize-songs-with-facebooks-innovative-approach/"><u>How Musicians Can Monetize Songs with Facebook's Innovative Approach</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-2-ways-to-monitor-poco-m6-pro-4g-activity-drfone-by-drfone-virtual-android/"><u>In 2024, 2 Ways to Monitor Poco M6 Pro 4G Activity | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-newly-released-samsung-galaxy-chromebook-2-a-perfect-blend-of-mobility-and-productivity/"><u>Ultimate Guide to the Newly Released Samsung Galaxy Chromebook 2: A Perfect Blend of Mobility & Productivity</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

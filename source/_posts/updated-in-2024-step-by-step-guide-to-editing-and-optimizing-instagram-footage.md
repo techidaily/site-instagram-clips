@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Step-by-Step Guide to Editing and Optimizing Instagram Footage\""
-date: 2024-11-06T22:34:35.546Z
-updated: 2024-11-12T06:33:58.768Z
+date: 2024-11-20T05:09:25.809Z
+updated: 2024-11-21T06:11:51.624Z
 tags:
   - ai video
   - ai instagram
@@ -53,13 +53,25 @@ We recommend you to use Filmora video editor to edit your Instagram videos becau
 
 ![custom-project-ratio.jpg](https://images.wondershare.com/filmora/article-images/custom-project-ratio.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Filmora provides plentiful filters such as Instagram-like filters, background blur filters specially built for Instagram videos.
 
 ![apply-instagram-filters](https://images.wondershare.com/filmora/article-images/apply-instagram-filters.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Filmora supports various formats & devices, and enables you to change the frame rate and resolution etc. as well as upload video to other social platform like YouTube and Vimeo.
 
 ![filmora9-export-panel](https://images.wondershare.com/filmora/article-images/filmora9-export-panel.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 New to video editing world? Check this [ultimate guide to Editing Video](https://tools.techidaily.com/wondershare/filmora/download/) to learn video editing step by step.
 
@@ -82,28 +94,23 @@ Video editing in Instagram video system is relatively straightforward. All you n
 
 ![instagram filters](https://images.wondershare.com/filmora/article-images/instagram-filters.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Image Stabilization:** There's a small camera icon at the top of the screen after you taking the video. By default, it's turned on on and applied to your video. If you want to turn it off, just tap it again.
 
 **Add Cover Frame:** Once you have completed adding a filter to your video, you can select a cover. The cover frame is one particular frame from the video and it will be in the front of the video. It is important to choose an interesting cover to attract your friends to watch.
 
 ![instagram cover](https://images.wondershare.com/filmora/article-images/instagram-cover.JPG)
 
-<!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Recommend to choose a handheld stabilizer for your phone to make your video footage to next level
 
 ![zhiyun z1 smooth c](https://images.wondershare.com/filmora/article-images/zhiyun-z1-smooth-c.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 [Check at Amazon](https://www.amazon.com/gp/product/B017K42FVA/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-pop-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B017K42FVA&linkId=239170a7361e67e8d0d848644e4b1f99)
 
@@ -116,13 +123,6 @@ You can just do some basic video editing within the Instagram app. However, if y
 Download it now and follow the steps below to edit your Instagram videos quickly and easily.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 1\.  Import videos to the program
 
@@ -149,26 +149,13 @@ Once your video clip is ready, just save it to your local folder or device in mp
 ![add-filmora9-filters](https://images.wondershare.com/filmora/article-images/filmora9-export-panel.jpg "edit instagram")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Making Instagram Video More Attractive with Filmora Effects Packs
@@ -177,16 +164,13 @@ Want to make your video standing out in your Instagram community? Try the Filter
 
 ![get-Filmstock-effects](https://images.wondershare.com/filmora/article-images/get-Filmstock-effects.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
-  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Watch the video below about Filmora effect packs in Beauty series :
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 [Learn more about the excellent Filmora Filmstock](https://filmstock.wondershare.com/)
 
@@ -209,24 +193,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-scaling-up-your-social-media-presence-with-effective-strategies/"><u>[New] In 2024, Scaling Up Your Social Media Presence with Effective Strategies</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-soundwaves-on-social-a-guide-to-embedding-tracks-in-stories/"><u>[New] In 2024, Soundwaves on Social A Guide to Embedding Tracks in Stories</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-starting-point-connecting-seamlessly-via-instagram-for-2024/"><u>[New] Starting Point Connecting Seamlessly via Instagram for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-superior-console-emulation-best-ps1-games-for-your-pc/"><u>[Updated] 2024 Approved Superior Console Emulation Best PS1 Games for Your PC</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-safeguard-your-memories-saving-instagram-on-iphone/"><u>[Updated] In 2024, Safeguard Your Memories Saving Instagram on iPhone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-practical-guide-to-swapping-gender-representation-online-from-basics-to-expertise-for-2024/"><u>[Updated] Practical Guide to Swapping Gender Representation Online From Basics to Expertise for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-professional-insights-for-perfecting-your-instagram-aesthetics-for-2024/"><u>[Updated] Professional Insights for Perfecting Your Instagram Aesthetics for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-rethinking-social-media-presence-in-light-of-instagrams-new-algorithm-for-2024/"><u>[Updated] Rethinking Social Media Presence in Light of Instagram's New Algorithm for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-seamless-social-media-execution-with-the-top-8-iphone-and-android-apps-for-2024/"><u>[Updated] Seamless Social Media Execution with The Top 8 iPhone & Android Apps for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-secure-insta-wealth-with-our-safest-and-most-effective-tips-for-2024/"><u>[Updated] Secure Insta Wealth with Our Safest & Most Effective Tips for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/effective-strategies-for-utilizing-slack-in-your-job/"><u>Effective Strategies for Utilizing Slack in Your Job</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/free-online-ogg-file-converter-to-wmv-easy-and-fast/"><u>Free Online Ogg File Converter to WMV - Easy and Fast!</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/from-twitter-to-facebook-sending-your-tweets/"><u>From Twitter to Facebook Sending Your Tweets</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-secure-fb-links-8plus-comprehensive-no-cost-downloaders-for-23/"><u>In 2024, Secure FB Links 8+ Comprehensive, No-Cost Downloaders for '23</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/passos-faceis-para-disparar-a-tela-em-descord-e-smartphone-um-guia-completo/"><u>Passos Fáceis Para Disparar a Tela Em Descórd E Smartphone: Um Guia Completo</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/pro-streamers-list-5-innovative-webcams-for-gamers/"><u>Pro Streamer's List 5 Innovative Webcams for Gamers</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/simplifying-slide-creations-with-youtube-content-for-2024/"><u>Simplifying Slide Creations with YouTube Content for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/king-the-potential-of-youtube-shorts-a-comprehensive-tutorial-for-2024/"><u>Unlocking the Potential of YouTube Shorts A Comprehensive Tutorial for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-oneplus-ace-2-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On OnePlus Ace 2 | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-the-art-of-instagram-covers-your-stepwise-journey-begins-here/"><u>[New] 2024 Approved The Art of Instagram Covers Your Stepwise Journey Begins Here</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-elevating-your-igtv-video-game-techniques-for-smartphones-and-dslrs-for-2024/"><u>[New] Elevating Your IGTV Video Game Techniques for Smartphones and DSLRs for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-prime-6-social-sites-boosting-biz-success/"><u>[New] Prime 6 Social Sites Boosting Biz Success</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-instagram-story-stealth-mode-accessible-for-everyone-without-link-sharing/"><u>[Updated] 2024 Approved Instagram Story Stealth Mode Accessible for Everyone without Link Sharing</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-integrating-chroma-keying-into-your-edit-suite/"><u>[Updated] 2024 Approved Integrating Chroma Keying Into Your Edit Suite</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-effective-method-for-adding-music-to-facebook-iphone-for-2024/"><u>[Updated] Effective Method for Adding Music to Facebook (iPhone) for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-flip-to-impress-the-instagram-video-guide/"><u>[Updated] Flip to Impress The Instagram Video Guide</u></a></li>
+<li><a href="https://driver-download.techidaily.com/free-downloader-tool-updated-creative-cam-driver-suite-for-windows/"><u>Free Downloader Tool: Updated Creative Cam Driver Suite for Windows</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-google-play-location-on-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Google Play Location On Poco M6 5G | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/perfectly-prepared-videos-a-guide-to-instagram-fitness-for-2024/"><u>Perfectly Prepared Videos A Guide to Instagram Fitness for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-pulse-of-printed-words-2-methods-of-bouncing-text-for-2024/"><u>The Pulse of Printed Words 2 Methods of Bouncing Text for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/unveiling-ease-of-repair-apple-confirms-enhanced-maintenance-with-iphone-16-compared-to-earlier-models-insights/"><u>Unveiling Ease of Repair: Apple Confirms Enhanced Maintenance with iPhone 16 Compared to Earlier Models - Insights</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/what-do-podcast-producers-really-make/"><u>What Do Podcast Producers Really Make?</u></a></li>
 </ul></div>
 

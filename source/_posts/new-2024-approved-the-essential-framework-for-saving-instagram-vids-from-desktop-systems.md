@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  The Essential Framework for Saving Instagram Vids From Desktop Systems\""
-date: 2024-08-31T01:51:32.691Z
-updated: 2024-09-01T01:51:32.691Z
+date: 2024-11-18T22:26:09.174Z
+updated: 2024-11-21T07:46:33.563Z
 tags:
   - ai video
   - ai instagram
@@ -19,11 +19,6 @@ thumbnail: https://thmb.techidaily.com/b271e3424a506666cfc32d0840f08d97d7b8b324d
 
 # How to Download Instagram Videos on PC and Mac
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -42,15 +37,15 @@ There are a few [different solutions to help you download Instagram videos on PC
 * [Method 2: Online solutions](#part2)
 * [Method 3: Add-ons](#part3)
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Method 1: Source code
 
 Did you know that there's a way to inspect the source code of the Instagram video page? 'What the heck is source code?', we hear you cry. Well, it doesn't really matter what it is, and you don't need to understand it at all, because all you're looking for here is a little link that will let you download the video directly to your computer. Here's how you do it:
 
-
 ![Source code](https://images.wondershare.com/filmora/article-images/2023/04/how-to-download-instagram-videos-on-pc-and-mac-01.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Open the video you'd like to download on Instagram
 * Right-click (or on a Mac, ⌘+click) and choose 'inspect element' or 'view page source', depending on the specific browser that you're using.
@@ -70,7 +65,6 @@ If you'd prefer a more elegant way to download Instagram videos on PC or Mac, th
 
 * Go to [DreDown.com](https://www.dredown.com/) in your browser
 
-
 ![download instagram video using dredown](https://images.wondershare.com/dredown-image.jpg)
 
 * In another tab, open Instagram and navigate to the video (or photo) you'd like to download
@@ -81,8 +75,9 @@ If you'd prefer a more elegant way to download Instagram videos on PC or Mac, th
 We've tried DreDown with Instagram, YouTube, Vimeo, and Vine, and it works smoothly and quickly without any issues on all of them. On the website, it states it also works with Facebook, Keek, Twitter, Twitch, Vevo, and many more too, so if you're wondering how to download Instagram videos or any other type of video, this is the website to trust.
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Method 3: Add-ons
 
 The one last method we wanted to share with you is to use a browser extension to facilitate your download. There are a few different downloaders out there, so feel free to explore your own solutions, but for the purposes of this tutorial, we've picked Instag Downloader as an easy option. Here's how you use it:
@@ -91,7 +86,6 @@ The one last method we wanted to share with you is to use a browser extension to
 * Click 'add to Chrome' in the top right of the screen to install this add-on for your browser. You may need to restart Chrome for it to start working
 * Go to Instagram and find any video or photograph you'd like to download to your PC. You'll notice some new icons in the top right of the image, which are 'view, share link and download', added by Instag Downloader
 * Hit the download icon to instantly save that image or video from Instagram to your PC or Mac
-
 
 ![Add-ons](https://images.wondershare.com/filmora/article-images/2023/04/how-to-download-instagram-videos-on-pc-and-mac-03.jpg)
 
@@ -105,6 +99,10 @@ Now you know how to download Instagram videos, do make sure you are doing so res
 
 You can now download Instagram videos on PC and Mac and can transfer them to any of your mobile devices too. Let us know which method worked best for you, or if you know of another way we've not yet mentioned.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Edit Your Instagram Video with Filmora
 
 If you are looking for a desktop video editing software to [edit videos](https://tools.techidaily.com/wondershare/filmora/download/) for Instagram, try Filmora! As a video editing software, Filmora makes creating video easier than ever. With its plenty of effects, transistions, elements, you can create an Instagram video that will catch the eyes of your friends.
@@ -113,16 +111,11 @@ If you are looking for a desktop video editing software to [edit videos](https:/
 
 For Win 7 or later (64-bit)
 
-
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)
 
 For macOS 10.14 or later
-
 
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
@@ -131,140 +124,11 @@ or Try Filmora App for mobile >>>
 
 [download filmora app for ios](https://images.wondershare.com/filmorago/article-common/app_store.svg) ](https://app.adjust.com/b0k9hf2%5F4bsu85t) [download filmora app for android](https://images.wondershare.com/filmorago/article-common/google_play.svg) ](https://app.adjust.com/b0k9hf2%5F4bsu85t)
 
-
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-If you've found an Instagram video that you love, chances are you don't want it to just disappear into the endless flood of posts on your feed. After all, you might want to see it again. But, if you've ever tried to download Instagram videos on PC or Mac, you'll know it's not all that easy. You can't do it straight from the app or website, so how can you make it work?
-
-Here, we'll highlight a few tried and tested methods of how to download Instagram videos so that you can save all your favorites for evermore.
-
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-## How to download Instagram videos on PC and Mac
-
-There are a few [different solutions to help you download Instagram videos on PC or Mac](https://tools.techidaily.com/wondershare/filmora/download/), some of which require at least a degree in coding to get your head around. We've selected three of the easiest and most accessible methods to share with you, and we promise you don't need to speak HTML to use them!
-
-* [Method 1: Source code](#part1)
-* [Method 2: Online solutions](#part2)
-* [Method 3: Add-ons](#part3)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-### Method 1: Source code
-
-Did you know that there's a way to inspect the source code of the Instagram video page? 'What the heck is source code?', we hear you cry. Well, it doesn't really matter what it is, and you don't need to understand it at all, because all you're looking for here is a little link that will let you download the video directly to your computer. Here's how you do it:
-
-
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![Source code](https://images.wondershare.com/filmora/article-images/2023/04/how-to-download-instagram-videos-on-pc-and-mac-01.jpg)
-
-* Open the video you'd like to download on Instagram
-* Right-click (or on a Mac, ⌘+click) and choose 'inspect element' or 'view page source', depending on the specific browser that you're using.
-* Press Ctrl+F (or ⌘+F on a Mac) to open the 'find' menu
-* Type in .mp4 into the box, and the search will return a section of code
-* Look for a hyperlinked bit of code that is next to 'src=' and ends with .mp4
-* Select this, and copy it using Ctrl+C (or ⌘+C), and then paste it into your browser using Ctrl+P (or ⌘+P)
-* The video will play in the window. Simply right-click (or ⌘+click) and select 'save video as' to download the video to your PC's hard drive
-
-This might sound all a bit cumbersome, but once you've had a couple of goes you'll find it's not as hard as it looks. If you're not used to keyboard shortcuts you might have a bit of a learning curve to traverse, but overall, it's a tried and tested method to download Instagram videos on PC and Mac that is popular with many users.
-
-Please check this video to know more details:
-
-### Method 2: Online solutions
-
-If you'd prefer a more elegant way to download Instagram videos on PC or Mac, there are numerous online solutions that can work for you. We've picked DreDown to share with you; it's totally free, founded on excellent anti-capitalist principles, and functions with all major social platforms as well as Instagram. Here's how it works:
-
-* Go to [DreDown.com](https://www.dredown.com/) in your browser
-
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
-![download instagram video using dredown](https://images.wondershare.com/dredown-image.jpg)
-
-* In another tab, open Instagram and navigate to the video (or photo) you'd like to download
-* Highlight the URL in your browser bar that shows when you're viewing the video, and copy it using either right-click / ⌘+click and 'copy', or the keyboard shortcut Ctrl+C / ⌘+C
-* Go back to the DreDown webpage and paste the URL into the search bar, using either right-click / ⌘+click and 'paste' or the keyboard shortcut Ctrl+P / ⌘+P
-* Hit the DreDown button and your video will instantly download to your machine
-
-We've tried DreDown with Instagram, YouTube, Vimeo, and Vine, and it works smoothly and quickly without any issues on all of them. On the website, it states it also works with Facebook, Keek, Twitter, Twitch, Vevo, and many more too, so if you're wondering how to download Instagram videos or any other type of video, this is the website to trust.
-
-### Method 3: Add-ons
-
-The one last method we wanted to share with you is to use a browser extension to facilitate your download. There are a few different downloaders out there, so feel free to explore your own solutions, but for the purposes of this tutorial, we've picked Instag Downloader as an easy option. Here's how you use it:
-
-* Go to the Chrome web store and search Instag Downloader, or click here to go to the page directly. Mac users will need to install Chrome if they usually browse using Safari
-* Click 'add to Chrome' in the top right of the screen to install this add-on for your browser. You may need to restart Chrome for it to start working
-* Go to Instagram and find any video or photograph you'd like to download to your PC. You'll notice some new icons in the top right of the image, which are 'view, share link and download', added by Instag Downloader
-* Hit the download icon to instantly save that image or video from Instagram to your PC or Mac
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![Add-ons](https://images.wondershare.com/filmora/article-images/2023/04/how-to-download-instagram-videos-on-pc-and-mac-03.jpg)
-
-It really is that easy.
-
-Once you've downloaded your selected video to your computer, you can choose to transfer them to your iPhone or iPad either using iTunes or without. Find out how here. (internal link to our article “How to download Instagram video/photo on iPhone”)
-
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-### The last word
-
-Now you know how to download Instagram videos, do make sure you are doing so responsibly. Instagram takes copyright and privacy very seriously, so if you did not create the content, you must not share or redistribute it without the permission of the owner. If you do share it, make sure you clearly attribute the content creator in your work.
-
-You can now download Instagram videos on PC and Mac and can transfer them to any of your mobile devices too. Let us know which method worked best for you, or if you know of another way we've not yet mentioned.
-
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
-### Edit Your Instagram Video with Filmora
-
-If you are looking for a desktop video editing software to [edit videos](https://tools.techidaily.com/wondershare/filmora/download/) for Instagram, try Filmora! As a video editing software, Filmora makes creating video easier than ever. With its plenty of effects, transistions, elements, you can create an Instagram video that will catch the eyes of your friends.
-
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)
-
-For Win 7 or later (64-bit)
-
-
-![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
-
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)
-
-For macOS 10.14 or later
-
-
-![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
-
-[Click here to get Filmora for PC by email](https://tools.techidaily.com/wondershare/filmora/download/)
-or Try Filmora App for mobile >>>
-
-[download filmora app for ios](https://images.wondershare.com/filmorago/article-common/app_store.svg) ](https://app.adjust.com/b0k9hf2%5F4bsu85t) [download filmora app for android](https://images.wondershare.com/filmorago/article-common/google_play.svg) ](https://app.adjust.com/b0k9hf2%5F4bsu85t)
-
-
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
 
@@ -288,14 +152,14 @@ There are a few [different solutions to help you download Instagram videos on PC
 * [Method 2: Online solutions](#part2)
 * [Method 3: Add-ons](#part3)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Method 1: Source code
 
 Did you know that there's a way to inspect the source code of the Instagram video page? 'What the heck is source code?', we hear you cry. Well, it doesn't really matter what it is, and you don't need to understand it at all, because all you're looking for here is a little link that will let you download the video directly to your computer. Here's how you do it:
 
-
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Source code](https://images.wondershare.com/filmora/article-images/2023/04/how-to-download-instagram-videos-on-pc-and-mac-01.jpg)
 
 * Open the video you'd like to download on Instagram
@@ -310,15 +174,11 @@ This might sound all a bit cumbersome, but once you've had a couple of goes you'
 
 Please check this video to know more details:
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Method 2: Online solutions
 
 If you'd prefer a more elegant way to download Instagram videos on PC or Mac, there are numerous online solutions that can work for you. We've picked DreDown to share with you; it's totally free, founded on excellent anti-capitalist principles, and functions with all major social platforms as well as Instagram. Here's how it works:
 
 * Go to [DreDown.com](https://www.dredown.com/) in your browser
-
 
 ![download instagram video using dredown](https://images.wondershare.com/dredown-image.jpg)
 
@@ -329,9 +189,6 @@ If you'd prefer a more elegant way to download Instagram videos on PC or Mac, th
 
 We've tried DreDown with Instagram, YouTube, Vimeo, and Vine, and it works smoothly and quickly without any issues on all of them. On the website, it states it also works with Facebook, Keek, Twitter, Twitch, Vevo, and many more too, so if you're wondering how to download Instagram videos or any other type of video, this is the website to trust.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
 ### Method 3: Add-ons
 
 The one last method we wanted to share with you is to use a browser extension to facilitate your download. There are a few different downloaders out there, so feel free to explore your own solutions, but for the purposes of this tutorial, we've picked Instag Downloader as an easy option. Here's how you use it:
@@ -340,7 +197,6 @@ The one last method we wanted to share with you is to use a browser extension to
 * Click 'add to Chrome' in the top right of the screen to install this add-on for your browser. You may need to restart Chrome for it to start working
 * Go to Instagram and find any video or photograph you'd like to download to your PC. You'll notice some new icons in the top right of the image, which are 'view, share link and download', added by Instag Downloader
 * Hit the download icon to instantly save that image or video from Instagram to your PC or Mac
-
 
 ![Add-ons](https://images.wondershare.com/filmora/article-images/2023/04/how-to-download-instagram-videos-on-pc-and-mac-03.jpg)
 
@@ -354,9 +210,6 @@ Now you know how to download Instagram videos, do make sure you are doing so res
 
 You can now download Instagram videos on PC and Mac and can transfer them to any of your mobile devices too. Let us know which method worked best for you, or if you know of another way we've not yet mentioned.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Edit Your Instagram Video with Filmora
 
 If you are looking for a desktop video editing software to [edit videos](https://tools.techidaily.com/wondershare/filmora/download/) for Instagram, try Filmora! As a video editing software, Filmora makes creating video easier than ever. With its plenty of effects, transistions, elements, you can create an Instagram video that will catch the eyes of your friends.
@@ -365,24 +218,18 @@ If you are looking for a desktop video editing software to [edit videos](https:/
 
 For Win 7 or later (64-bit)
 
-
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)
 
 For macOS 10.14 or later
 
-
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
 [Click here to get Filmora for PC by email](https://tools.techidaily.com/wondershare/filmora/download/)
 or Try Filmora App for mobile >>>
 
 [download filmora app for ios](https://images.wondershare.com/filmorago/article-common/app_store.svg) ](https://app.adjust.com/b0k9hf2%5F4bsu85t) [download filmora app for android](https://images.wondershare.com/filmorago/article-common/google_play.svg) ](https://app.adjust.com/b0k9hf2%5F4bsu85t)
-
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -400,6 +247,10 @@ If you've found an Instagram video that you love, chances are you don't want it 
 
 Here, we'll highlight a few tried and tested methods of how to download Instagram videos so that you can save all your favorites for evermore.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to download Instagram videos on PC and Mac
 
 There are a few [different solutions to help you download Instagram videos on PC or Mac](https://tools.techidaily.com/wondershare/filmora/download/), some of which require at least a degree in coding to get your head around. We've selected three of the easiest and most accessible methods to share with you, and we promise you don't need to speak HTML to use them!
@@ -411,7 +262,6 @@ There are a few [different solutions to help you download Instagram videos on PC
 ### Method 1: Source code
 
 Did you know that there's a way to inspect the source code of the Instagram video page? 'What the heck is source code?', we hear you cry. Well, it doesn't really matter what it is, and you don't need to understand it at all, because all you're looking for here is a little link that will let you download the video directly to your computer. Here's how you do it:
-
 
 ![Source code](https://images.wondershare.com/filmora/article-images/2023/04/how-to-download-instagram-videos-on-pc-and-mac-01.jpg)
 
@@ -433,10 +283,6 @@ If you'd prefer a more elegant way to download Instagram videos on PC or Mac, th
 
 * Go to [DreDown.com](https://www.dredown.com/) in your browser
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ![download instagram video using dredown](https://images.wondershare.com/dredown-image.jpg)
 
 * In another tab, open Instagram and navigate to the video (or photo) you'd like to download
@@ -446,9 +292,6 @@ If you'd prefer a more elegant way to download Instagram videos on PC or Mac, th
 
 We've tried DreDown with Instagram, YouTube, Vimeo, and Vine, and it works smoothly and quickly without any issues on all of them. On the website, it states it also works with Facebook, Keek, Twitter, Twitch, Vevo, and many more too, so if you're wondering how to download Instagram videos or any other type of video, this is the website to trust.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Method 3: Add-ons
 
 The one last method we wanted to share with you is to use a browser extension to facilitate your download. There are a few different downloaders out there, so feel free to explore your own solutions, but for the purposes of this tutorial, we've picked Instag Downloader as an easy option. Here's how you use it:
@@ -458,17 +301,12 @@ The one last method we wanted to share with you is to use a browser extension to
 * Go to Instagram and find any video or photograph you'd like to download to your PC. You'll notice some new icons in the top right of the image, which are 'view, share link and download', added by Instag Downloader
 * Hit the download icon to instantly save that image or video from Instagram to your PC or Mac
 
-
 ![Add-ons](https://images.wondershare.com/filmora/article-images/2023/04/how-to-download-instagram-videos-on-pc-and-mac-03.jpg)
 
 It really is that easy.
 
 Once you've downloaded your selected video to your computer, you can choose to transfer them to your iPhone or iPad either using iTunes or without. Find out how here. (internal link to our article “How to download Instagram video/photo on iPhone”)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
 ### The last word
 
 Now you know how to download Instagram videos, do make sure you are doing so responsibly. Instagram takes copyright and privacy very seriously, so if you did not create the content, you must not share or redistribute it without the permission of the owner. If you do share it, make sure you clearly attribute the content creator in your work.
@@ -483,20 +321,12 @@ If you are looking for a desktop video editing software to [edit videos](https:/
 
 For Win 7 or later (64-bit)
 
-
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)
 
 For macOS 10.14 or later
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
 [Click here to get Filmora for PC by email](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -504,8 +334,122 @@ or Try Filmora App for mobile >>>
 
 [download filmora app for ios](https://images.wondershare.com/filmorago/article-common/app_store.svg) ](https://app.adjust.com/b0k9hf2%5F4bsu85t) [download filmora app for android](https://images.wondershare.com/filmorago/article-common/google_play.svg) ](https://app.adjust.com/b0k9hf2%5F4bsu85t)
 
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+If you've found an Instagram video that you love, chances are you don't want it to just disappear into the endless flood of posts on your feed. After all, you might want to see it again. But, if you've ever tried to download Instagram videos on PC or Mac, you'll know it's not all that easy. You can't do it straight from the app or website, so how can you make it work?
+
+Here, we'll highlight a few tried and tested methods of how to download Instagram videos so that you can save all your favorites for evermore.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## How to download Instagram videos on PC and Mac
+
+There are a few [different solutions to help you download Instagram videos on PC or Mac](https://tools.techidaily.com/wondershare/filmora/download/), some of which require at least a degree in coding to get your head around. We've selected three of the easiest and most accessible methods to share with you, and we promise you don't need to speak HTML to use them!
+
+* [Method 1: Source code](#part1)
+* [Method 2: Online solutions](#part2)
+* [Method 3: Add-ons](#part3)
+
+### Method 1: Source code
+
+Did you know that there's a way to inspect the source code of the Instagram video page? 'What the heck is source code?', we hear you cry. Well, it doesn't really matter what it is, and you don't need to understand it at all, because all you're looking for here is a little link that will let you download the video directly to your computer. Here's how you do it:
+
+![Source code](https://images.wondershare.com/filmora/article-images/2023/04/how-to-download-instagram-videos-on-pc-and-mac-01.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+* Open the video you'd like to download on Instagram
+* Right-click (or on a Mac, ⌘+click) and choose 'inspect element' or 'view page source', depending on the specific browser that you're using.
+* Press Ctrl+F (or ⌘+F on a Mac) to open the 'find' menu
+* Type in .mp4 into the box, and the search will return a section of code
+* Look for a hyperlinked bit of code that is next to 'src=' and ends with .mp4
+* Select this, and copy it using Ctrl+C (or ⌘+C), and then paste it into your browser using Ctrl+P (or ⌘+P)
+* The video will play in the window. Simply right-click (or ⌘+click) and select 'save video as' to download the video to your PC's hard drive
+
+This might sound all a bit cumbersome, but once you've had a couple of goes you'll find it's not as hard as it looks. If you're not used to keyboard shortcuts you might have a bit of a learning curve to traverse, but overall, it's a tried and tested method to download Instagram videos on PC and Mac that is popular with many users.
+
+Please check this video to know more details:
+
+### Method 2: Online solutions
+
+If you'd prefer a more elegant way to download Instagram videos on PC or Mac, there are numerous online solutions that can work for you. We've picked DreDown to share with you; it's totally free, founded on excellent anti-capitalist principles, and functions with all major social platforms as well as Instagram. Here's how it works:
+
+* Go to [DreDown.com](https://www.dredown.com/) in your browser
+
+![download instagram video using dredown](https://images.wondershare.com/dredown-image.jpg)
+
+* In another tab, open Instagram and navigate to the video (or photo) you'd like to download
+* Highlight the URL in your browser bar that shows when you're viewing the video, and copy it using either right-click / ⌘+click and 'copy', or the keyboard shortcut Ctrl+C / ⌘+C
+* Go back to the DreDown webpage and paste the URL into the search bar, using either right-click / ⌘+click and 'paste' or the keyboard shortcut Ctrl+P / ⌘+P
+* Hit the DreDown button and your video will instantly download to your machine
+
+We've tried DreDown with Instagram, YouTube, Vimeo, and Vine, and it works smoothly and quickly without any issues on all of them. On the website, it states it also works with Facebook, Keek, Twitter, Twitch, Vevo, and many more too, so if you're wondering how to download Instagram videos or any other type of video, this is the website to trust.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+### Method 3: Add-ons
+
+The one last method we wanted to share with you is to use a browser extension to facilitate your download. There are a few different downloaders out there, so feel free to explore your own solutions, but for the purposes of this tutorial, we've picked Instag Downloader as an easy option. Here's how you use it:
+
+* Go to the Chrome web store and search Instag Downloader, or click here to go to the page directly. Mac users will need to install Chrome if they usually browse using Safari
+* Click 'add to Chrome' in the top right of the screen to install this add-on for your browser. You may need to restart Chrome for it to start working
+* Go to Instagram and find any video or photograph you'd like to download to your PC. You'll notice some new icons in the top right of the image, which are 'view, share link and download', added by Instag Downloader
+* Hit the download icon to instantly save that image or video from Instagram to your PC or Mac
+
+![Add-ons](https://images.wondershare.com/filmora/article-images/2023/04/how-to-download-instagram-videos-on-pc-and-mac-03.jpg)
+
+It really is that easy.
+
+Once you've downloaded your selected video to your computer, you can choose to transfer them to your iPhone or iPad either using iTunes or without. Find out how here. (internal link to our article “How to download Instagram video/photo on iPhone”)
+
+### The last word
+
+Now you know how to download Instagram videos, do make sure you are doing so responsibly. Instagram takes copyright and privacy very seriously, so if you did not create the content, you must not share or redistribute it without the permission of the owner. If you do share it, make sure you clearly attribute the content creator in your work.
+
+You can now download Instagram videos on PC and Mac and can transfer them to any of your mobile devices too. Let us know which method worked best for you, or if you know of another way we've not yet mentioned.
+
+### Edit Your Instagram Video with Filmora
+
+If you are looking for a desktop video editing software to [edit videos](https://tools.techidaily.com/wondershare/filmora/download/) for Instagram, try Filmora! As a video editing software, Filmora makes creating video easier than ever. With its plenty of effects, transistions, elements, you can create an Instagram video that will catch the eyes of your friends.
+
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For Win 7 or later (64-bit)
+
+![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
+
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For macOS 10.14 or later
+
+![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
+
+[Click here to get Filmora for PC by email](https://tools.techidaily.com/wondershare/filmora/download/)
+or Try Filmora App for mobile >>>
+
+[download filmora app for ios](https://images.wondershare.com/filmorago/article-common/app_store.svg) ](https://app.adjust.com/b0k9hf2%5F4bsu85t) [download filmora app for android](https://images.wondershare.com/filmorago/article-common/google_play.svg) ](https://app.adjust.com/b0k9hf2%5F4bsu85t)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -524,8 +468,6 @@ Follow @Shanoon Cox
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -534,7 +476,20 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-tips.techidaily.com/new-10plus-preferred-no-pay-webm-player-options/"><u>[New] 10+ Preferred No-Pay WebM Player Options</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-iphone-savvy-techniques-for-storing-and-streaming-animated-images/"><u>[New] 2024 Approved IPhone-Savvy Techniques for Storing and Streaming Animated Images</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-level-up-your-instagram-posts-with-expert-edits/"><u>[Updated] 2024 Approved Level Up Your Instagram Posts with Expert Edits</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-localizing-your-content-adding-subtitles-to-igtv/"><u>[Updated] 2024 Approved Localizing Your Content Adding Subtitles to IGTV</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-making-history-shine-again-instagram-effects-for-your-archive/"><u>[Updated] In 2024, Making History Shine Again Instagram Effects for Your Archive</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-mastering-copyright-compliance-in-instagrams-musical-world-for-2024/"><u>[Updated] Mastering Copyright Compliance in Instagram's Musical World for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/audiopiece-recorder-guide-installation-and-test/"><u>AudioPiece Recorder Guide Installation & Test</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-music-on-motorola-edgeplus-2023-by-fonelab-android-recover-music/"><u>How to restore wiped music on Motorola Edge+ (2023)</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-a-comprehensive-guide-to-icloud-unlock-from-iphone-13-pro-online-by-drfone-ios/"><u>In 2024, A Comprehensive Guide to iCloud Unlock From iPhone 13 Pro Online</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/mastering-star-wars-fighter-squadron-collisions-resolved/"><u>Mastering Star Wars: Fighter Squadron Collisions - Resolved</u></a></li>
+<li><a href="https://article-tips.techidaily.com/premium-enterprise-sky-saver-guide-for-2024/"><u>Premium Enterprise Sky Saver Guide for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/tiktok-content-mastery-learn-to-alter-digit-scenes-effectively-for-2024/"><u>TikTok Content Mastery Learn to Alter Digit Scenes Effectively for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/top-5-high-res-screens-for-playstation-5-for-2024/"><u>Top 5 High-Res Screens for PlayStation 5 for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Efficient Editing Techniques  Mastering Video Cropping and Exporting\""
-date: 2024-11-04T22:16:33.871Z
-updated: 2024-11-12T04:10:15.258Z
+date: 2024-11-15T17:25:30.347Z
+updated: 2024-11-20T18:48:18.259Z
 tags:
   - ai video
   - ai instagram
@@ -37,6 +37,10 @@ In order to create videos that will get thousands of likes on Instagram, you nee
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **How to crop videos for instagram in Filmora**
 
 Unless you shoot your video directly from the Instagram app, the aspect ratio of your videos will not match the square aspect ratio used on Instagram. The only solution to this issue is to crop the video and change its aspect ratio so it fits one of the commonly used aspect ratios on Instagram.
@@ -47,11 +51,23 @@ In order to start cropping your videos, you first must install the Filmora video
 
 ![](https://images.wondershare.com/filmora/article-images/filmora-import.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 2: Drag and Drop the video file onto the Timeline**
 
 ![](https://images.wondershare.com/filmora/article-images/video-editor-main-interface-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Now that the video clip you want to edit is in the editor's media library, drag it and drop it to the timeline.
 
@@ -62,6 +78,10 @@ Now that the video clip you want to edit is in the editor's media library, drag 
 Chances are that the camera you used to record your video clip recorded the footage in the landscape aspect ratio. Before you can export your video clip, you must first check the resolution and frame rate of the clip you want to export. Right-click on the clip in the media panel and select Properties. After you found out this information, click on the Export button located just below the media panel.
 
 ![check aspect ratio](https://images.wondershare.com/filmora/article-images/check-aspect-ratio.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Once the new window appears, you should click on the Format icon positioned in the upper left corner of the screen. Select the MP4 format, name your file and select the folder where the file will be exported.
 
@@ -100,24 +120,20 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-stealthy-view-tips-for-invisible-instagram-stories-consumption-via-pcandroidiphone/"><u>[New] 2024 Approved Stealthy View Tips for Invisible Instagram Stories Consumption via PC/Android/iPhone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-step-by-step-approach-to-conquering-igtv/"><u>[New] 2024 Approved Step-By-Step Approach to Conquering IGTV</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-streamlining-social-media-posting-vimeo-on-instagram/"><u>[New] 2024 Approved Streamlining Social Media Posting Vimeo on Instagram</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-quantum-hdrs-role-in-modern-photography-trends/"><u>[New] Quantum HDR's Role in Modern Photography Trends</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-mastering-twitter-videos-in-ultra-hd/"><u>[Updated] 2024 Approved Mastering Twitter Videos in Ultra HD</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-channeling-success-the-personal-brand-strategy-for-youtubers/"><u>[Updated] Channeling Success The Personal Brand Strategy for YouTubers</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-step-by-step-guide-embellishing-images-with-borders-on-instagram/"><u>[Updated] In 2024, Step-by-Step Guide Embellishing Images with Borders on Instagram</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-finding-affordable-no-cost-artistic-elements/"><u>In 2024, Finding Affordable, No-Cost Artistic Elements</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/in-2024-what-makes-a-youtube-short-go-viral/"><u>In 2024, What Makes a YouTube Short Go Viral?</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/mastering-the-selection-of-classroom-laptops-and-desktops-your-complete-guide/"><u>Mastering the Selection of Classroom Laptops and Desktops: Your Complete Guide</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/the-unattainable-tech-gem-exploring-the-exceptional-features-of-the-iqoo-9t-zdnets-review/"><u>The Unattainable Tech Gem? Exploring the Exceptional Features of the iQOO 9T | ZDNET's Review</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/windows-10-audio-tips-essential-recording-methods/"><u>Windows 10 Audio Tips Essential Recording Methods</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-the-essential-guide-to-timeless-stop-motion-classics/"><u>[New] 2024 Approved The Essential Guide to Timeless Stop-Motion Classics</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nipperpro-suite/"><u>[New] SnipperPro Suite</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-a-comprehensive-guide-to-bringing-vividness-to-your-videos-sdr-hdr-conversion/"><u>[Updated] In 2024, A Comprehensive Guide to Bringing Vividness to Your Videos SDR-HDR Conversion</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-exclusive-guide-to-the-leading-top-10-fb-videos-downloader-for-android/"><u>[Updated] In 2024, Exclusive Guide to the Leading Top 10 FB Videos Downloader for Android</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-leveraging-social-media-trends-for-fan-growth-on-igtv/"><u>2024 Approved Leveraging Social Media Trends for Fan Growth on IGTV</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-luminous-likes-three-proven-ways-for-insta-highlights/"><u>2024 Approved Luminous Likes Three Proven Ways for Insta Highlights</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-mastering-insights-tracking-your-insta-posts-viewers/"><u>2024 Approved Mastering Insights Tracking Your Insta Posts' Viewers</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-mastering-insta-metrics-comprehensive-ig-data-analysis/"><u>2024 Approved Mastering Insta Metrics Comprehensive IG Data Analysis</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-mastering-instagram-the-ultimate-video-cropping-techniques/"><u>2024 Approved Mastering Instagram The Ultimate Video Cropping Techniques</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-mastering-instagrams-hashtag-language-for-enhanced-engagement/"><u>2024 Approved Mastering Instagram's Hashtag Language for Enhanced Engagement</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-mastering-instagrams-new-trends-reels-and-stories/"><u>2024 Approved Mastering Instagram’s New Trends Reels and Stories</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/6-proven-ways-to-unlock-vivo-y100t-phone-when-you-forget-the-password-by-drfone-android/"><u>6 Proven Ways to Unlock Vivo Y100t Phone When You Forget the Password</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/6-things-we-can-do-to-save-a-water-damaged-iphone-xs-max-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>6 Things We Can Do To Save A Water Damaged iPhone XS Max | Stellar</u></a></li>
+<li><a href="https://discover-able.techidaily.com/best-selling-epub-books-you-can-download-gratis/"><u>Best Selling EPUB Books You Can Download Gratis</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-top-6-ways-to-transfer-text-messages-from-itel-p55-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 6 Ways to Transfer Text Messages from Itel P55 to Other Android Devices | Dr.fone</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] Get Close or Farther with Ease on Instagram Stories"
-date: 2024-11-10T04:13:09.410Z
-updated: 2024-11-11T18:46:15.644Z
+date: 2024-11-14T09:45:57.303Z
+updated: 2024-11-20T23:50:34.378Z
 tags:
   - ai video
   - ai instagram
@@ -58,6 +58,10 @@ We know a video in 'Rewind' mode is pretty cute and funny, as the chain of event
 
 ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-superzoom-mode.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Image resource: metro.com
 
 Shooting a video in 'Boomerang' is exciting while creating Instagram Stories. We will explain to you how to zoom in/out Instagram Stories in 'Superzoom' mode in Boomerang. Press your record button longer and slide your finger up/down to zoom in/out, while recording the video for your Insta Stories. As long as you hold the button, the recording continues until it reaches the maximum duration.
@@ -66,6 +70,10 @@ Shooting a video in 'Boomerang' is exciting while creating Instagram Stories. We
 
 ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-hands-free-mode.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Image resource: later.com
 
 There are two-options while you want to zoom in/out using the 'Hands-Free' mode. You can pinch the screen and zoom in or out prior to recording the video. Now, tap the record button, the video will be automatically recorded after a few seconds. Remember! You are using the 'Hands-Free' mode, so no holding the record button. The second method is similar to the previous methods of zooming in/out videos for Instagram Stories. Tap the record button and wait till the point where you want to zoom in/out. At that very point, hold the record button and slide your finger up/down to zoom in/out the video. This is how to zoom in/out Instagram Stories using 'Hands-Free' mode.
@@ -73,10 +81,7 @@ There are two-options while you want to zoom in/out using the 'Hands-Free' mode.
 Be it a 'Boomerang', 'Rewind', 'Hands-Free', or 'Normal' mode video, learning how to zoom in Instagram Stories is sure to make your stories cool and funky.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
-  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Edit Instagram Videos with Wondershare Filmora
@@ -86,23 +91,7 @@ Editing Instagram videos is not difficult at all as long as you installed a powe
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Final Verdict
@@ -123,10 +112,7 @@ You May also like
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -144,17 +130,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-enhancing-visual-impact-editing-videos-for-instagram/"><u>[New] 2024 Approved Enhancing Visual Impact Editing Videos for Instagram</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-enhancing-visual-storytelling-on-instagram-with-loops-for-2024/"><u>[New] Enhancing Visual Storytelling on Instagram With Loops for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-essential-knowledge-for-instagram-success-a-guide-to-behind-the-scenes-metrics-for-2024/"><u>[New] Essential Knowledge for Instagram Success A Guide to Behind-the-Scenes Metrics for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-the-blueprint-for-brilliant-broadcasts-dos-and-donts-unveiled/"><u>[Updated] 2024 Approved The Blueprint for Brilliant Broadcasts Do's & Don'ts Unveiled</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-enhancing-visibility-and-following-on-instagram/"><u>[Updated] In 2024, Enhancing Visibility & Following on Instagram</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-essential-techniques-for-enhancing-your-instagram-videos/"><u>[Updated] In 2024, Essential Techniques for Enhancing Your Instagram Videos</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-zero-intrusions-check-out-our-list-of-top-7-android-apps/"><u>[Updated] In 2024, Zero Intrusions? Check Out Our List of Top 7 Android Apps</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-next-gen-game-viewing-top-5-hdmi-21-infinity-refresh-rates/"><u>[Updated] Next-Gen Game Viewing Top 5 HDMI 2.1 Infinity Refresh Rates</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/elevating-images-a-professionals-palette-playbook/"><u>Elevating Images A Professional's Palette Playbook</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-fix-oem-unlock-missing-on-samsung-galaxy-xcover-6-pro-tactical-edition-by-drfone-android/"><u>In 2024, How To Fix OEM Unlock Missing on Samsung Galaxy XCover 6 Pro Tactical Edition?</u></a></li>
-<li><a href="https://media-tips.techidaily.com/maximize-value-10-essential-tips-for-optimal-use-of-youtube-tv/"><u>Maximize Value: 10 Essential Tips for Optimal Use of YouTube TV</u></a></li>
-<li><a href="https://techidaily.com/turn-off-screen-lock-gionee-f3-pro-by-drfone-android-unlock-android-unlock/"><u>Turn Off Screen Lock - Gionee F3 Pro</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-unpacking-audafreewares-audio-retrieval-capabilities/"><u>[Updated] 2024 Approved Unpacking AudaFreeware's Audio Retrieval Capabilities</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-journey-through-the-past-with-these-leading-gba-console-emulators-for-windows-computers/"><u>2024 Approved Journey Through the Past With These Leading GBA Console Emulators for Windows Computers</u></a></li>
+<li><a href="https://win-wonderful.techidaily.com/effective-methods-to-retrieve-icloud-backed-up-contact-information/"><u>Effective Methods to Retrieve iCloud Backed-Up Contact Information</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/elevate-your-brands-instagram-presence-with-these-hacks-for-2024/"><u>Elevate Your Brand's Instagram Presence with These Hacks for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/elevate-your-feed-crafting-engaging-instagram-videos/"><u>Elevate Your Feed Crafting Engaging Instagram Videos</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/elevate-your-social-media-presence-top-25-hashtags-for-instagram-mastery-for-2024/"><u>Elevate Your Social Media Presence Top 25 Hashtags for Instagram Mastery for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/elevate-your-video-game-proficient-cropping-and-export-strategies/"><u>Elevate Your Video Game Proficient Cropping & Export Strategies</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/elevate-your-videography-with-top-instagram-techniques/"><u>Elevate Your Videography with Top Instagram Techniques</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/elevate-your-visual-storytelling-with-innovative-instagram-video-techniques/"><u>Elevate Your Visual Storytelling with Innovative Instagram Video Techniques</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/elevating-the-impact-of-your-instagram-videos/"><u>Elevating the Impact of Your Instagram Videos</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/exploring-the-latest-surprising-smart-home-device-that-packs-a-power-packed-array-of-beneficial-functions-reviewed-by-tech-experts/"><u>Exploring the Latest Surprising Smart Home Device That Packs a Power-Packed Array of Beneficial Functions - Reviewed by Tech Experts</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/power-up-android-studio-accelerated-development-on-win32/"><u>Power-Up Android Studio: Accelerated Development on Win32</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/quick-fix-guide-iphone-connection-setup-and-installation-on-windows-10-systems/"><u>Quick Fix Guide: IPhone Connection Setup and Installation on Windows 10 Systems</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209722679-9781507212158-the-moon-you/"><u>The Moon + You | Free Book</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/tri-band-wireless-excellence-with-netgear-nighthawk-x6-ac3200-comprehensive-review/"><u>Tri-Band Wireless Excellence with Netgear Nighthawk X6 AC3200: Comprehensive Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlocking-the-power-of-preview-on-your-mac-master-this-hidden-photo-editor/"><u>Unlocking the Power of Preview on Your Mac - Master This Hidden Photo Editor</u></a></li>
 </ul></div>
 

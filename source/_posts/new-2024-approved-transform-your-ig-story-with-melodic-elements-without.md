@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Transform Your IG Story with Melodic Elements (Without)\""
-date: 2024-11-06T01:28:37.206Z
-updated: 2024-11-12T05:50:20.589Z
+date: 2024-11-19T00:12:21.897Z
+updated: 2024-11-21T05:11:48.638Z
 tags:
   - ai video
   - ai instagram
@@ -50,6 +50,10 @@ After you have added a filter or edited your story, **click on the sticker icon*
 
 ![Instagram Music  Sticker](https://images.wondershare.com/filmora/article-images/instagram-music-sticker.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3: Add music**
 
 After you **click on the music sticker**, you will be presented with many song suggestions. You can use a search tab to find your favorite song or artist.
@@ -89,10 +93,7 @@ Before you post a story or send it to your close friends, you can enlarge or min
 ![Add Lyrics to Instagram Music](https://images.wondershare.com/filmora/article-images/add-lyrics-to-instagram-music.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to Add Music to Instagram without Music Stickers?
@@ -115,22 +116,12 @@ When you click on the three dots, you will be presented with a few options; clic
 
 ![Share Spotify Music to Instagram Story](https://images.wondershare.com/filmora/article-images/share-spotify-music-to-instagram-stories.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3: Post**
 
 When you **click on the Instagram stories option**, the cover art will automatically upload to your stories. You can add a filter or change its placement before posting.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Method 2: Upload music on Instagram stories through SoundCloud
@@ -148,10 +139,7 @@ When you **select the ellipsis sign,** you will see a few options and an Instagr
 ![Share SoundCloud Music to Instagram Story](https://images.wondershare.com/filmora/article-images/share-soundcloud-music-instagram.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 3: Post**
@@ -178,13 +166,6 @@ Note: You might have to click on "More" on some smartphones.
 
 ![Share Apple Music to Instagram Story](https://images.wondershare.com/filmora/article-images/share-apple-music-instagram.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 4: Post on stories**
 
 The last thing you will do is post the cover art and the song. People can click on the Apple Music icon to listen to it there.
@@ -206,6 +187,10 @@ You can select a video or photo of your choice either from your smartphone's gal
 Once selected, you can edit and customize that video or photo as per your choice. You can add music, text, effects, animations, and even crop the frame as you want.
 
 ![Add Music to Filmora](https://images.wondershare.com/filmora/article-images/add-music-to-video-filmorago.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 4: Share the** **Video** **with Music to Instagram**
 
@@ -229,6 +214,10 @@ If you wish to add music to your Instagram stories, there are many ways to do it
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -244,24 +233,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-pivotal-insights-into-online-story-crafting/"><u>[New] 2024 Approved Pivotal Insights Into Online Story Crafting</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-essential-strategies-for-uploading-to-instagram-tv/"><u>[New] Essential Strategies for Uploading to Instagram TV</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-how-superficial-shares-spell-social-deterioration/"><u>[New] How Superficial Shares Spell Social Deterioration</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-audience-choice-great-movies-not-on-the-main-list/"><u>[Updated] 2024 Approved Audience Choice Great Movies Not on the Main List</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-enhance-imagery-with-elegant-borders-ig-edition/"><u>[Updated] Enhance Imagery with Elegant Borders – IG Edition</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-exploring-originality-how-to-uncover-roots-of-instagram-visuals/"><u>2024 Approved Exploring Originality How to Uncover Roots of Instagram Visuals</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-hidden-insta-story-accessibility-step-by-step-for-tech-savvy/"><u>2024 Approved Hidden Insta Story Accessibility - Step-by-Step for Tech Savvy</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/ai-enhanced-development-your-blueprint-to-build-a-chatgpt-powered-web-site/"><u>AI-Enhanced Development: Your Blueprint to Build a ChatGPT-Powered Web Site</u></a></li>
-<li><a href="https://facebook.techidaily.com/alleged-shutdown-due-to-ethical-commerce-representation/"><u>Alleged Shutdown Due to Ethical Commerce Representation</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/downloadable-pci-device-driver-software-compatible-with-windows-11-10-8-and-7/"><u>Downloadable PCI Device Driver Software Compatible with Windows 11, 10, 8 & 7</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/filter-phenomena-social-media-hits-for-2024/"><u>Filter Phenomena Social Media Hits for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/harmonious-hits-a-guide-to-sound-in-instagram-clips-for-2024/"><u>Harmonious Hits A Guide to Sound in Instagram Clips for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-eye-on-your-instagram-disconnectors/"><u>In 2024, Eye on Your Instagram Disconnectors</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-hide-and-seek-top-5-for-secret-story-lovers/"><u>In 2024, Hide & Seek Top 5 For Secret Story Lovers</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-anything-from-oppo-reno-9a-to-apple-tv-drfone-by-drfone-android/"><u>In 2024, How To Stream Anything From Oppo Reno 9A to Apple TV | Dr.fone</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/new-best-online-video-spinners-rotate-your-clips-with-ease-for-2024/"><u>New Best Online Video Spinners Rotate Your Clips with Ease for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/successful-installation-of-mbox-nano-driver-pack-for-windows-complete-tutorial/"><u>Successful Installation of MBox Nano Driver Pack for Windows - Complete Tutorial</u></a></li>
-<li><a href="https://change-location.techidaily.com/where-is-the-best-place-to-catch-dratini-on-vivo-y77t-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Vivo Y77t | Dr.fone</u></a></li>
-<li><a href="https://games-able.techidaily.com/why-pausing-is-better-than-never-breaking/"><u>Why Pausing Is Better than Never Breaking</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-enhancing-instagram-visibility-with-powerful-promotions-for-2024/"><u>[New] Enhancing Instagram Visibility with Powerful Promotions for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-how-to-fix-common-instagram-video-errors/"><u>[New] In 2024, How to Fix Common Instagram Video Errors</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-unlocking-virality-mastering-the-art-of-influential-content/"><u>[New] In 2024, Unlocking Virality Mastering the Art of Influential Content</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-rediscovering-the-riches-delving-into-literary-masterpieces-of-yore/"><u>[Updated] 2024 Approved Rediscovering the Riches Delving Into Literary Masterpieces of Yore</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-building-a-solid-base-for-higher-instagram-video-view-counts/"><u>[Updated] Building a Solid Base for Higher Instagram Video View Counts</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-content-calendar-for-successful-instagram-filmmaking/"><u>[Updated] In 2024, Content Calendar for Successful Instagram Filmmaking</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-growth-hackers-guide-the-ultimate-list-of-top-strategies-to-retain-youtube-viewers/"><u>[Updated] In 2024, Growth Hackers Guide The Ultimate List of Top Strategies to Retain YouTube Viewers</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-insta-spin-wonders-expert-techniques-to-enthrall-your-followers-with-flipped-photos-for-2024/"><u>[Updated] Insta Spin Wonders Expert Techniques to Enthrall Your Followers with Flipped Photos for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-the-secret-sauce-to-instagram-success-with-engaging-puzzles/"><u>[Updated] The Secret Sauce to Instagram Success with Engaging Puzzles</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-viral-video-voyage-twitters-compiled-top-10-tiktoks/"><u>[Updated] Viral Video Voyage Twitter's Compiled Top 10 TikToks</u></a></li>
+<li><a href="https://win11.techidaily.com/easy-troubleshooting-techniques-for-renaming-folders-issue-on-windows-11/"><u>Easy Troubleshooting Techniques for Renaming Folders Issue on Windows 11</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-sharefake-location-on-whatsapp-for-poco-x6-pro-drfone-by-drfone-virtual-android/"><u>How to Share/Fake Location on WhatsApp for Poco X6 Pro | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-expertise-in-clip-blending-a-blend-mode-guide/"><u>In 2024, Expertise in Clip Blending A Blend Mode Guide</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/navigate-ios-tablets-and-phones-using-only-your-gaze-thanks-to-apples-latest-accessibility-innovation-zdnet/"><u>Navigate iOS Tablets and Phones Using Only Your Gaze, Thanks to Apple's Latest Accessibility Innovation | ZDNET</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/resolved-how-to-get-discord-to-capture-your-gaming-sessions-sound/"><u>Resolved: How to Get Discord to Capture Your Gaming Sessions' Sound</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/the-complete-guide-to-enhancing-tiktok-bio-with-linktree-for-2024/"><u>The Complete Guide to Enhancing TikTok Bio with Linktree for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/top-11-fixes-for-when-your-airpods-wont-stay-connected-to-your-iphone/"><u>Top 11 Fixes for When Your AirPods Won't Stay Connected to Your iPhone</u></a></li>
 </ul></div>
 

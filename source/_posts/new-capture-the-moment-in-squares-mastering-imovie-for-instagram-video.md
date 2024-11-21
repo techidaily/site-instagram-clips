@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Capture the Moment in Squares  Mastering iMovie for Instagram Video\""
-date: 2024-11-06T21:55:39.758Z
-updated: 2024-11-12T01:11:22.940Z
+date: 2024-11-18T10:39:06.010Z
+updated: 2024-11-21T10:47:01.582Z
 tags:
   - ai video
   - ai instagram
@@ -65,6 +65,10 @@ A guide to adding titles and credits to the cart is also included in the templat
 
 Let's look at how to generate square movies for Instagram with iMovie now.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1\. How to Make a Square Video for Instagram in iMovie on iPhone?
 
 Videos are a fantastic way to keep memories alive, but some social media platforms - specifically, Instagram - demand videos to be a certain size and length before they can be uploaded. Fortunately, cropping your video before sharing it is a straightforward process. Here are some pointers to help you crop a movie and modify the screen size to whatever you want. Cropping your films is useful for a variety of reasons. Perhaps you'd like to focus on a specific component of the film or get rid of your thumb from the screen's corner. You'll need iMovie, which comes preloaded on most iPhones, to crop a video on your iPhone. If your phone does not already have iMovie, you may get it for free from the App Store. The size or aspect ratio of your video will not change if you use this method. It will just zoom in on your video and possibly crop out any unwanted things.
@@ -92,10 +96,7 @@ To use the crop/zoom feature in iMovie on iPhone, follow these steps:
 **Step #10\.** To save your movie to your Camera Roll, tap the square with an arrow icon.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2\. How to Make a Square Video in iMovie on Mac?
@@ -123,10 +124,7 @@ Let's adjust the dimensions of your video to square using Keynote now that you'v
 **Step #9\.** Select a location to save your square video and then click **Export**.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Bonus Tip - How to Easily Make a Square Video for Social Media on Mac?
@@ -174,10 +172,7 @@ These steps have been written as an easy guide. Following them step by step is a
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -195,18 +190,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-discovering-the-quintessential-25-influence-kings-and-queens/"><u>[New] Discovering The Quintessential 25 Influence Kings and Queens</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-the-creative-edge-advanced-tips-for-shooting-with-gopro-hero5-black/"><u>[New] In 2024, The Creative Edge Advanced Tips for Shooting with GoPro Hero5 Black</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-cutting-edge-artisans-innovative-instagram-hlv-designs/"><u>[Updated] Cutting-Edge Artisans Innovative Instagram HLV Designs</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-chuckling-and-crying-on-the-same-ig-feed-top-memetic-pages/"><u>2024 Approved Chuckling and Crying on the Same IG Feed Top Memetic Pages</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-craft-your-future-with-instagram-video-marketing-step-by-step-guide/"><u>2024 Approved Craft Your Future with Instagram Video Marketing Step-by-Step Guide</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/critiquing-the-validation-status-of-online-instagramselfies-for-2024/"><u>Critiquing the Validation Status of Online Instagramselfies for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>Does Airplane Mode Turn off GPS Location On Apple iPhone 13 Pro Max? | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/easy-steps-to-secure-no-cost-licensing-approvals/"><u>Easy Steps to Secure No-Cost Licensing Approvals</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/gadget-guide-exploring-elite-17-inch-laptops-that-define-tech-trends/"><u>Gadget Guide: Exploring Elite 17-Inch Laptops that Define Tech Trends</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-craft-a-compelling-narrative-with-your-igtv-video-titles-and-texts/"><u>In 2024, Craft a Compelling Narrative with Your IGTV Video Titles & Texts</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-unlock-your-disabled-iphone-6-without-itunes-in-5-ways-drfone-by-drfone-ios/"><u>In 2024, Unlock Your Disabled iPhone 6 Without iTunes in 5 Ways | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/step-by-step-tutorial-how-to-bypass-tecno-spark-10c-frp-by-drfone-android/"><u>Step-by-Step Tutorial How To Bypass Tecno Spark 10C FRP</u></a></li>
-<li><a href="https://techidaily.com/video-fixer-software-for-all-corrupt-videos-of-infinix-smart-8-hd-by-stellar-video-repair-mobile-video-repair/"><u>Video Fixer Software for all Corrupt Videos of Infinix Smart 8 HD</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-10plus-top-free-youtube-image-extractors/"><u>[New] 2024 Approved 10+ Top FREE YouTube Image Extractors</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-blending-brands-joining-instagram-and-facebook-effortlessly/"><u>[New] Blending Brands Joining Instagram and Facebook Effortlessly</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-instagram-video-collage-app-for-androidandios/"><u>[New] In 2024, Instagram Video Collage App for Android&iOS</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-perfect-your-instagram-vocal-presence-quickly/"><u>[New] In 2024, Perfect Your Instagram Vocal Presence Quickly</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-universal-approach-how-to-record-any-youtube-stream-on-different-devices/"><u>[New] Universal Approach How To Record Any YouTube Stream on Different Devices</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-instagram-hidden-gems-top-tips-for-savvy-users/"><u>[Updated] 2024 Approved Instagram Hidden Gems Top Tips for Savvy Users</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-understanding-the-impact-of-igtv-videos-through-analysis/"><u>[Updated] 2024 Approved Understanding the Impact of IGTV Videos Through Analysis</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-boosting-popularity-on-instagram-mastery-of-the-top-25-tags/"><u>[Updated] Boosting Popularity on Instagram Mastery of the Top 25 Tags</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-efficient-launch-navigating-video-talks-in-instagram/"><u>[Updated] Efficient Launch Navigating Video Talks in Instagram</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-elevating-4k-video-output-on-your-devices/"><u>[Updated] Elevating 4K Video Output on Your Devices</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-cutting-down-video-lengths-the-ultimate-mac-guide-for-insta/"><u>[Updated] In 2024, Cutting Down Video Lengths The Ultimate Mac Guide for Insta</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-sonic-selections-fine-tuning-your-instagram-video-soundtrack-for-2024/"><u>[Updated] Sonic Selections Fine-Tuning Your Instagram Video Soundtrack for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-premium-video-gear-pick-your-favorite-15-cams/"><u>2024 Approved Premium Video Gear Pick Your Favorite #15 Cams</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-superior-psd-design-transformations/"><u>2024 Approved Superior PSD Design Transformations</u></a></li>
+<li><a href="https://extra-information.techidaily.com/boosting-playback-speed-guidelines-for-secure-sound-enhancement/"><u>Boosting Playback Speed Guidelines for Secure Sound Enhancement</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-oppo-k11x-bootloader-easily-by-drfone-android/"><u>How to Unlock Oppo K11x Bootloader Easily</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/instagram-stories-learn-to-modify-video-velocity-for-2024/"><u>Instagram Stories Learn to Modify Video Velocity for 2024</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/retrieving-lost-notes-a-step-by-step-guide-for-reviving-deleted-content-in-onenote/"><u>Retrieving Lost Notes: A Step-by-Step Guide for Reviving Deleted Content in OneNote</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/why-the-wheel-turns-slow-for-chatgpt-4-compared-to-35/"><u>Why the Wheel Turns Slow for ChatGPT-4 Compared to 3.5?</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, The Ultimate Guide to Shooting Phenomenal IGTV with DSLR/Smartphone"
-date: 2024-11-10T00:40:05.912Z
-updated: 2024-11-12T03:35:46.164Z
+date: 2024-11-16T01:44:18.431Z
+updated: 2024-11-21T07:47:08.200Z
 tags:
   - ai video
   - ai instagram
@@ -27,6 +27,10 @@ thumbnail: https://thmb.techidaily.com/bbb97d5449382acc8b92ab96bfb70e5ca97a93f11
 
 Instagram has been growing in popularity for a number of years, and the recent addition of the IGTV has only made the platform more diverse in terms of options it offers to its users. Before IGTV was launched the maximum duration of a video on Instagram was limited to just one minute, which made this platform better suited for photos than videos. Today you can upload videos that last up to ten minutes regardless of the type of account you have, and if you own a verified account you can even share hour-long videos on your channel. In case you were trying to find out how you can shoot IGTV videos with your Smartphone or DSLR camera, you’re at the right place because in this article we are going to show you how to create videos that are going to impress your followers.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Record IGTV Videos With a Smartphone?
 
 Before you can actually start uploading videos to IGTV, you first need to create your own channel. Once you’ve managed this step, you can then proceed to check if you have all the equipment you need to record a video. Obviously, you’re going to need a Smartphone that has a relatively **powerful rear camera capable of capturing videos in HD or Ultra HD quality**. You can only upload **vertically oriented videos** to IGTV, which is why it is slightly easier to record an IGTV video with a Smartphone than it is with a DSLR camera.
@@ -40,10 +44,7 @@ The type of video you’re trying to create determines which pieces of equipment
 **You may also like:** [\>> Blue Screen VS Green Screen: All You Need to Know](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Shoot IGTV Videos With a DSLR Camera?
@@ -59,16 +60,7 @@ Shooting videos on DSLR cameras also mean that you need access to a **video edit
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Conclusion**
@@ -78,10 +70,7 @@ You don’t have to be a professional in order to record an IGTV video, but you 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -99,24 +88,14 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-crafting-memes-perfecting-social-media-videos-on-fb-and-insta/"><u>[New] Crafting Memes Perfecting Social Media Videos on FB & Insta</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-deciphering-instagram-highlights-the-stories-guide/"><u>[New] Deciphering Instagram Highlights The Stories Guide</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-analyzing-the-dji-phantom-4-vision-tech/"><u>[Updated] In 2024, Analyzing the DJI Phantom 4 Vision Tech</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-ultimate-community-dos-and-donts-for-youtubers/"><u>[Updated] Ultimate Community Dos and Don'ts for Youtubers</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-climbing-the-viewership-ladder-with-igtv-strategies-to-succeed/"><u>2024 Approved Climbing the Viewership Ladder with IGTV Strategies to Succeed</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-crafting-impeccable-videos-for-instagram-enthusiasts/"><u>2024 Approved Crafting Impeccable Videos for Instagram Enthusiasts</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-elevate-your-social-media-game-3-techniques-to-enhance-video-captions-on-ig/"><u>2024 Approved Elevate Your Social Media Game 3 Techniques to Enhance Video Captions on IG</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-multitasking-mac-tech-screensound-recorder/"><u>2024 Approved Multitasking Mac Tech Screen/Sound Recorder</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/bypass-icloud-activation-lock-with-imei-code-on-apple-iphone-6s-by-drfone-ios/"><u>Bypass iCloud Activation Lock with IMEI Code On Apple iPhone 6s</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/crafting-instagram-magic-with-professional-edits-for-2024/"><u>Crafting Instagram Magic with Professional Edits for 2024</u></a></li>
-<li><a href="https://driver-download.techidaily.com/download-epson-workforce-ds-30-usb-printer-drivers-fully-supported-for-win-10win-8win-7/"><u>Download Epson WorkForce DS 30 USB Printer Drivers - Fully Supported for Win 10/Win 8/Win 7</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-comprehensible-guide-to-swapping-facial-gender-in-snapchat-images/"><u>In 2024, Comprehensible Guide to Swapping Facial Gender in Snapchat Images</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-elevate-brand-presence-effective-instagram-video-marketing-techniques/"><u>In 2024, Elevate Brand Presence Effective Instagram Video Marketing Techniques</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-elevating-your-content-game-strategic-use-of-igtv-hashtags/"><u>In 2024, Elevating Your Content Game Strategic Use of IGTV Hashtags</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-icloud-by-checkra1n-even-from-apple-iphone-x-if-youve-tried-everything-by-drfone-ios/"><u>In 2024, How To Bypass iCloud By Checkra1n Even From Apple iPhone X If Youve Tried Everything</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-sim-unlock-code-generators-unlock-your-vivo-y78-5g-phone-hassle-free-by-drfone-android/"><u>In 2024, The Best Android SIM Unlock Code Generators Unlock Your Vivo Y78 5G Phone Hassle-Free</u></a></li>
-<li><a href="https://techidaily.com/reset-pattern-lock-tutorial-for-realme-12-pro-5g-by-drfone-android-unlock-android-unlock/"><u>Reset pattern lock Tutorial for Realme 12 Pro 5G</u></a></li>
-<li><a href="https://ai-voice-clone.techidaily.com/the-ultimate-review-unveiling-the-benefits-of-heimvisons-a80s-alarm-clock-with-light-therapy/"><u>The Ultimate Review: Unveiling the Benefits of HeimVison's A80S Alarm Clock with Light Therapy</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-the-ultimate-list-of-online-video-rotators/"><u>Updated The Ultimate List of Online Video Rotators</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-expedient-techniques-to-spot-and-expel-deceptive-insta-connections/"><u>[New] In 2024, Expedient Techniques to Spot and Expel Deceptive Insta Connections</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-simplified-speech-to-text-integration-into-visual-content-for-2024/"><u>[New] Simplified Speech-to-Text Integration Into Visual Content for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-the-ultimate-guide-to-choosing-between-vidma-and-rivals-for-2024/"><u>[New] The Ultimate Guide to Choosing Between Vidma and Rivals for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-innovative-shots-with-purpose-top-20-ideas-for-inspiration/"><u>[Updated] Innovative Shots with Purpose Top 20 Ideas for Inspiration</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-mixing-music-into-your-instagram-visuals-for-2024/"><u>[Updated] Mixing Music Into Your Instagram Visuals for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-speedy-transformation-from-pixels-to-polished-youtube-thumbnails-for-2024/"><u>[Updated] Speedy Transformation From Pixels to Polished YouTube Thumbnails for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/advanced-analytics-and-personalization-enabled-by-cookiebot-inspired-technology/"><u>Advanced Analytics and Personalization Enabled by Cookiebot-Inspired Technology</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-locked-for-security-reasons-on-apple-iphone-15-pro-max-find-the-best-solution-here-by-drfone-ios/"><u>In 2024, Apple ID Locked for Security Reasons On Apple iPhone 15 Pro Max? Find the Best Solution Here</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/navigating-time-on-the-internet-tips-and-tricks-for-using-the-wayback-machine/"><u>Navigating Time on the Internet: Tips and Tricks for Using the Wayback Machine</u></a></li>
 </ul></div>
 

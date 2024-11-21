@@ -1,7 +1,7 @@
 ---
 title: "[Updated] IGTV Shutdown for Beginners"
-date: 2024-11-09T07:22:47.705Z
-updated: 2024-11-11T17:58:40.997Z
+date: 2024-11-15T05:25:10.234Z
+updated: 2024-11-21T09:48:56.615Z
 tags:
   - ai video
   - ai instagram
@@ -27,6 +27,10 @@ thumbnail: https://thmb.techidaily.com/84a7e5fe8a2d746104e06bccf0ffdc78d9a7d9997
 
  There is nothing more frustrating than receiving notifications about posts on social media you have zero interest in. Fortunately for all of us, turning off notifications is a quick and simple process that can be completed in just a few clicks or taps. IGTV, Instagram’s latest mobile video platform is no exception, and if you decide to use it, you will occasionally stumble upon the content you don’t necessarily like and you will receive notifications about posts that really have nothing to do with your interests. In case you are looking for a way to get rid of IGTV suggestions, you’ve come to the right place because in this article we are going to show you how to hide videos you don’t want to see and how to switch off notifications.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Turn Off IGTV Notifications on Instagram
 
  Preventing IGTV notifications from bothering you while you are scrolling down your Instagram feed requires a minimum amount of effort. You just have to **launch the Instagram app** and then once the app opens, you should tap on **the profile icon** that is located in the bottom right corner. Upon arriving at your Instagram profile page, you will be able to see **the hamburger icon** in the top right corner. Tapping on the hamburger icon will grant you access to a menu that contains options such as **Your Activity, Nametag or Saved**. At the very bottom of this menu, you’ll spot the **Settings icon**, tap on it and after the **Settings menu opens** tap on the **Notifications icon**.
@@ -34,10 +38,7 @@ thumbnail: https://thmb.techidaily.com/84a7e5fe8a2d746104e06bccf0ffdc78d9a7d9997
  Select the **Push Notifications option**, and then scroll all the way down to the **IGTV Video Updates section** of the Push Notifications menu. Tap on the **Off** option, and you’re done, you’ll no longer receive notifications from IGTV. If at any point you change your mind and you decide that you want to receive notifications from IGTV you can return to the Push Notifications menu and select the **From People I Follow** or **From Everyone** option in the IGTV Video Update section of the Push Notifications menu.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Hide IGTV Videos?
@@ -55,10 +56,7 @@ thumbnail: https://thmb.techidaily.com/84a7e5fe8a2d746104e06bccf0ffdc78d9a7d9997
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -76,22 +74,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-lessons.techidaily.com/new-a-detailed-step-by-step-guide-to-using-telegram-desktop/"><u>[New] A Detailed Step-By-Step Guide To Using Telegram Desktop</u></a></li>
-<li><a href="https://win-exceptional.techidaily.com/come-clonare-il-tuo-hard-disk-utilizzando-un-programma-di-clonazione-compatibile-con-windows-11-a-64-bit-una-guida-dettagliata/"><u>Come Clonare Il Tuo Hard Disk Utilizzando Un Programma Di Clonazione Compatibile Con Windows 11 a 64 Bit: Una Guida Dettagliata</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-unbrick-a-dead-infinix-note-30-vip-racing-edition-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Unbrick a Dead Infinix Note 30 VIP Racing Edition | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-3-effective-ways-to-bypass-activation-lock-on-iphone-7-plus-by-drfone-ios/"><u>In 2024, 3 Effective Ways to Bypass Activation Lock on iPhone 7 Plus</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-asus-rog-phone-7-ultimate-mirror-screen-to-pc-drfone-by-drfone-android/"><u>In 2024, How Asus ROG Phone 7 Ultimate Mirror Screen to PC? | Dr.fone</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/in-2024-perfect-slide-sharing-techniques-the-best-ways-to-use-a-webcam/"><u>In 2024, Perfect Slide Sharing Techniques The Best Ways to Use a Webcam</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/instagram-tv-essentials-step-by-step-upload-guide/"><u>Instagram TV Essentials Step-by-Step Upload Guide</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/instagram-video-collage-app-how-to-make-split-screen-videos/"><u>Instagram Video Collage App How to Make Split Screen Videos</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/make-waves-in-the-social-ocean-integrate-tiktok-into-your-insta-reels/"><u>Make Waves in the Social Ocean Integrate TikTok Into Your Insta Reels</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/navigating-the-igtv-landscape-a-beginners-roadmap/"><u>Navigating the IGTV Landscape A Beginner's Roadmap</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/navigating-the-world-of-unfollowed-instagrams/"><u>Navigating the World of Unfollowed Instagrams</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/navigating-video-dimensions-on-instagram-today-and-tomorrow/"><u>Navigating Video Dimensions on Instagram Today & Tomorrow</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/obscure-watching-methods-5-unique-stories-apps/"><u>Obscure Watching Methods 5 Unique Stories Apps</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/perfect-pace-essential-strategies-to-create-engaging-slow-motion-videos-and-images-for-instagram-audiences/"><u>Perfect Pace Essential Strategies to Create Engaging Slow Motion Videos and Images for Instagram Audiences</u></a></li>
-<li><a href="https://change-location.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-vivo-t2-5g-drfone-by-drfone-virtual-android/"><u>Preparation to Beat Giovani in Pokemon Go For Vivo T2 5G | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/rapid-growth-on-instagram-the-like-video-duo-power/"><u>Rapid Growth on Instagram The Like-Video Duo Power</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/still-using-pattern-locks-with-honor-play-40c-tips-tricks-and-helpful-advice-by-drfone-android/"><u>Still Using Pattern Locks with Honor Play 40C? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-10-best-tags-analyzing-apps-fb-twt-and-ig-platforms/"><u>[New] 10 Best Tags Analyzing Apps FB, Twt & IG Platforms</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-direct-linkage-bridging-youtube-and-imovie-with-music/"><u>[New] In 2024, Direct Linkage Bridging YouTube and iMovie with Music</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-comprehensive-guide-to-adding-music-icons-in-instagram-posts/"><u>[Updated] Comprehensive Guide to Adding Music Icons in Instagram Posts</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-dawn-of-new-horizons-lighten-up-your-android-vids/"><u>[Updated] Dawn of New Horizons Lighten Up Your Android Vids</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-dive-into-the-world-of-self-expression-a-treasury-of-instagramcaptions/"><u>[Updated] Dive Into the World of Self-Expression - A Treasury of #InstagramCaptions</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-expert-recommendations-for-downloading-snapchat-tunes/"><u>[Updated] Expert Recommendations for Downloading Snapchat Tunes</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-shot-solidity-choose-the-right-mobile-tripod/"><u>[Updated] Shot Solidity Choose the Right Mobile Tripod</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/breakdown-of-artificial-intelligence-making-sense-of-ai-concepts/"><u>Breakdown of Artificial Intelligence: Making Sense of AI Concepts</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/capture-and-save-top-15-insta-downloader-apps-for-2024/"><u>Capture and Save Top 15 Insta Downloader Apps for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/gaining-ground-on-competitors-with-your-instagram-videos-for-2024/"><u>Gaining Ground on Competitors with Your Instagram Videos for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/guide-shutting-down-igtv-for-2024/"><u>Guide Shutting Down IGTV for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-conquering-the-top-5-common-instagram-video-issues/"><u>In 2024, Conquering the Top 5 Common Instagram Video Issues</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-decoding-instagrams-max-video-content/"><u>In 2024, Decoding Instagram's Max Video Content</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Tecno Camon 30 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-tecno-camon-30-pro-5g-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, Tecno Camon 30 Pro 5G ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/mastering-clarity-and-detail-the-revolutionary-leap-into-200mp-camera-phones/"><u>Mastering Clarity and Detail: The Revolutionary Leap Into 200MP Camera Phones</u></a></li>
+<li><a href="https://extra-information.techidaily.com/where-innovation-meets-vr-watching/"><u>Where Innovation Meets VR Watching</u></a></li>
 </ul></div>
 

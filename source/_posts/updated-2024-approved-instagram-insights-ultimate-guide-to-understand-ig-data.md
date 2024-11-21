@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Instagram Insights  Ultimate Guide to Understand IG Data\""
-date: 2024-11-07T04:54:20.788Z
-updated: 2024-11-11T16:43:05.763Z
+date: 2024-11-14T21:58:21.719Z
+updated: 2024-11-20T22:39:17.672Z
 tags:
   - ai video
   - ai instagram
@@ -54,10 +54,11 @@ Impressions, profile visits, and reach can be visible with insights and can be t
 ![access insights from business](https://images.wondershare.com/filmora/article-images/access-instagram-insights-business.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Access insights from post
@@ -72,6 +73,10 @@ Automatic chronological sorting of Stories helps to understand the pattern of co
 
 * Open ‘Stories’, and swipe up the post.
 * Click the vertical-bar icon and view your Story insights.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: View Posts Data
 
@@ -97,13 +102,6 @@ The ‘Discovery’ section’s first statistics denotes percentage of non-follo
 
 ![view ig data from posts](https://images.wondershare.com/filmora/article-images/view-ig-data-from-posts.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Filtering post data based on metric, timeframe, and content type
 
 Three most recent posts are visible on the Instagram Insight’s ‘Posts’ section. This section by default displays the cumulative number of impressions for all the posts from the previous year.
@@ -111,6 +109,10 @@ Three most recent posts are visible on the Instagram Insight’s ‘Posts’ sec
 You can segregate the Instagram Insight data by clicking the blue links from the top. Hit any filter among Content type/measurement (saved, impressions, likes, comments, engagement, and reach)/time. These filters help you pick relevant information to determine campaigns, goals, and top performing content.
 
 You can measure goals for a certain period through impressions and reach, engagement, ratio of engagement to reach, best and worst performing content types. Campaign goals are measured by timeframe.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: What does stories data mean
 
@@ -130,28 +132,22 @@ Only ‘Stories’ after subscribing to a business account will be offered insig
 
 **Exits** \- how many times people exit Stories to see their feed
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 4: Notes you should know
 
 ### The difference between impressions and reach
 
 Impressions are a number of times a post has been viewed, whereas reach explains the unique views on your post. One account’s multiple views are taken as a single reach but multiple impressions.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Multiple photos or videos will be counted as one
 
 A post can be a single video/photo or an album on Instagram. The Instagram Insights takes the entire album post as a single entity and impressions and reach is determined based on that.
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 5: Alternatives to Instagram insights
@@ -162,25 +158,11 @@ Apart from Instagram Insights, you can look for a tool like Keyhole. Its Instagr
 
 ![keyhole](https://images.wondershare.com/filmora/article-images/keyhole.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
-  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2. [Squarelovin](https://squarelovin.com/business/home/instagram-insights/)
 
 Squarelovin is an in-depth Instagram analytics tool that shows the metrics for recent posts’ growth. Monthly analysis, posts’ history fragmented to year, month, day, and hour as well as deep insights on communities’ interests and preferences is possible. You get to know what fuels engagement, the best and worst time to post.
 
 ![squarelovin](https://images.wondershare.com/filmora/article-images/squarelovin.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -191,10 +173,7 @@ When you have a clear idea about Instagram Insights, achieving the best out of y
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -212,17 +191,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-achieve-superior-mp4-output-from-instagram-videos-2-ways/"><u>[New] 2024 Approved Achieve Superior MP4 Output From Instagram Videos 2 Ways</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-audio-from-visuals-making-mp3s-from-instagram-content-for-2024/"><u>[New] Audio From Visuals Making Mp3s From Instagram Content for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-anonymous-engagement-how-to-watch-instagram-stories-without-profile-reveal-pc-android-iphone/"><u>[New] In 2024, Anonymous Engagement How to Watch Instagram Stories without Profile Reveal [PC, Android, iPhone]</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-virtual-room-recordings-desktop-and-mobile-tips/"><u>[New] In 2024, Virtual Room Recordings Desktop & Mobile Tips</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-adaptive-sharing-techniques-for-igtv-on-fb/"><u>[Updated] 2024 Approved Adaptive Sharing Techniques for IGTV on FB</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-amass-a-thousand-tactics-for-monthly-instagram-following/"><u>[Updated] 2024 Approved Amass a Thousand Tactics for Monthly Instagram Following</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-guides-on-creating-cost-free-youtube-beginnings-and-conclusions/"><u>[Updated] 2024 Approved Guides on Creating Cost-Free YouTube Beginnings & Conclusions</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-best-practices-for-inserting-text-on-youtube-videos-effectively-for-2024/"><u>[Updated] Best Practices for Inserting Text on YouTube Videos Effectively for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/m4-powered-new-mac-mini-compact-performance-comparable-to-apple-tv-detailed-review/"><u>M4-Powered New Mac Mini: Compact Performance Comparable to Apple TV, Detailed Review</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/master-youtube-monetization-tips-to-boost-income-via-shorts/"><u>Master YouTube Monetization Tips to Boost Income via Shorts</u></a></li>
-<li><a href="https://windows11.techidaily.com/reconciling-winrars-file-sums-a-guide-with-6-fixes/"><u>Reconciling WinRAR's File Sums: A Guide with 6 Fixes</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/unveiling-storyboards-a-comprehensive-guide-on-crafting-your-own-with-easy-to-follow-step-by-step-instructions/"><u>Unveiling Storyboards: A Comprehensive Guide on Crafting Your Own with Easy-to-Follow, Step-by-Step Instructions</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-can-instagrams-video-selfies-be-trusted-for-2024/"><u>[New] Can Instagram's Video Selfies Be Trusted for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-instagrams-best-but-unseen-your-guide/"><u>[New] In 2024, Instagram's Best, But Unseen - Your Guide</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-premium-3ds-pc-mimicry-software-choices/"><u>[New] In 2024, Premium 3Ds PC Mimicry Software Choices</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-latest-instagram-photo-and-video-size-checklist/"><u>[New] Latest Instagram Photo and Video Size Checklist</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-unleash-the-power-of-branded-icons-and-gifs-in-instagram-stories-for-2024/"><u>[New] Unleash the Power of Branded Icons & GIFs in Instagram Stories for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-the-ultimate-guide-to-choosing-top-subtitle-editors-online/"><u>[Updated] 2024 Approved The Ultimate Guide to Choosing Top Subtitle Editors Online</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-prime-online-selections-for-glossy-typography-in-3d/"><u>[Updated] In 2024, Prime Online Selections for Glossy Typography in 3D</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-unleash-a-flood-of-supporters-attain-a-million-ish-on-ig-each-month/"><u>[Updated] In 2024, Unleash a Flood of Supporters Attain a Million-Ish on IG Each Month</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-3-easy-ways-to-factory-reset-a-locked-apple-iphone-13-pro-without-itunes-by-drfone-ios/"><u>In 2024, 3 Easy Ways to Factory Reset a Locked Apple iPhone 13 Pro Without iTunes</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-revolutionary-alternative-tools-for-fbx-file-capture/"><u>In 2024, Revolutionary Alternative Tools for FBX File Capture</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solve-silent-computers-fast-the-easy-fix-you-need-now/"><u>Solve Silent Computers Fast – The Easy Fix You Need Now</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/tech-unity-expert-easeus-reviews-for-2024/"><u>Tech Unity Expert EaseUS Reviews for 2024</u></a></li>
 </ul></div>
 

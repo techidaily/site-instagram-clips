@@ -1,7 +1,7 @@
 ---
 title: Troubleshooting Your Console's Audio Issues - The Ultimate Mic Fix Guide for 2nD4!
-date: 2024-11-08T00:51:38.453Z
-updated: 2024-11-12T03:16:58.619Z
+date: 2024-11-15T19:37:08.447Z
+updated: 2024-11-21T01:58:09.072Z
 tags:
   - win11
   - win10
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/c9c3286561c0cb162a6f36b6b19f491a65ddd3daf
 You may run into the_Path of Exile (PoE)_ freezing issue for several reasons, such as incompatible hardware, faulty drivers, corrupt game files, software conflicts, low RAM, etc.
 
  The information here is a general guide that has proved useful to many players in fixing this issue. You may not have to try them all, just work your way down the list until you find the one that does the trick for you. (If none of the fixes here helped, at least you’ve ruled out all these simple fixes before contacting the game developer.)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Fixes to try
 
@@ -40,6 +44,10 @@ Follow the instructions below:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_10-58-19.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **2)** Check your current **CPU and memory usage** to see what processes are consuming your resources most.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_10-58-28.jpg)
@@ -50,14 +58,11 @@ Follow the instructions below:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_10-58-35.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Relaunch your game to see if it runs properly now. If the issue continues to occur, read on and try the next fix.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 2: Update your graphics driver
 
@@ -74,10 +79,7 @@ Follow the instructions below:
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_11-02-53.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **3)** Click the **Update button** next to the graphics driver to automatically download the correct version of that driver, then you can manually install it (you can do this with the FREE version).
@@ -86,25 +88,16 @@ Follow the instructions below:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_11-02-59.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **The Pro version of Driver Easy** comes with full technical support.  
  If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
 
 4) Relaunch your game to test your issue.
 
 If your issue continues to occur, move on and try the next fix.
-
-<!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 3: Run your game as an administrator
 
@@ -152,9 +145,17 @@ If your issue continues to occur, move on and try the next fix.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_11-29-35.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **2)** Click **Settings** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_11-31-30.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **3)**  Click the **Advanced**  tab, and then click **Change** .
 
@@ -164,23 +165,9 @@ If your issue continues to occur, move on and try the next fix.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_11-31-44.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **6)** Select your **C drive** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_11-31-52.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **7)** Click the option button next to **Custom size** , and then type **4096** in the text box next to **Initial size (MB)**  and **Maximum size (MB)** .
 
@@ -188,16 +175,13 @@ If your issue continues to occur, move on and try the next fix.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_11-33-50.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **8)** Click **Set** , and then click **OK** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_11-32-10.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **9)** Restart your computer and your game.
 
@@ -217,6 +201,10 @@ If your issue persists, then ahead with the fix below.
 
  Restart your computer and your game. If your issue still exists, try the fix, below.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Fix 7: Reinstall Steam
 
  If none of the fixes above worked for you, reinstalling Steam is very likely the solution to your issue. Follow the instructions below:
@@ -225,29 +213,19 @@ If your issue persists, then ahead with the fix below.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_11-51-23.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **2)** Under **View by** , select **Category.**  Then, select **Uninstall a program** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_11-51-32.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **3)** Right-click **Steam** , and then click **Uninstall** . Then, wait for the process to be complete.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_11-51-38.jpg)
 
  **4)[Download](https://store.steampowered.com/about/)**  and install Steam. Then, reinstall your game on Steam.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 8: Clean the interior of your PC
 
@@ -276,24 +254,20 @@ Relaunch the game to see if this helped.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-inquiring-into-the-benefit-of-verified-online-self-portraits/"><u>[New] 2024 Approved Inquiring Into the Benefit of Verified Online Self-Portraits</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-instagram-desktop-tips-for-effortless-video-posts/"><u>[New] 2024 Approved Instagram Desktop Tips for Effortless Video Posts</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-instagram-innovations-enhancers-that-excite/"><u>[New] In 2024, Instagram Innovations Enhancers that Excite</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-refined-retouches-using-the-eraser-in-photoshop-proficiently/"><u>[New] In 2024, Refined Retouches Using the Eraser in Photoshop Proficiently</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-innovative-photography-adding-stylish-borders-to-instagram-pics-for-2024/"><u>[New] Innovative Photography Adding Stylish Borders to Instagram Pics for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-instagram-follower-shedding-insight-for-2024/"><u>[New] Instagram Follower Shedding Insight for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-instagram-filming-perfecting-the-chroma-key-effect/"><u>[Updated] 2024 Approved Instagram Filming Perfecting the Chroma Key Effect</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-how-will-instagrams-algorithm-update-transform-feeds/"><u>[Updated] In 2024, How Will Instagram’s Algorithm Update Transform Feeds?</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-identifying-power-users-in-niche-specific-instagram/"><u>[Updated] In 2024, Identifying Power Users in Niche-Specific Instagram</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-instagram-enterprise-account-the-complete-guidebook-for-2024/"><u>[Updated] Instagram Enterprise Account The Complete Guidebook for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-self-verification-on-instagram-what-does-it-mean-for-us-in-2024/"><u>[Updated] Self-Verification on Instagram - What Does It Mean for Us, In 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-streamlining-adobe-presentation-videos-in-adobe-for-2024/"><u>[Updated] Streamlining Adobe Presentation Videos in Adobe for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-top-tier-window-snapper-for-win11-users/"><u>[Updated] Top-Tier Window Snapper for Win11 Users</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-from-selfie-to-sensation-vloggers-choice-of-top-9-camera-accessories/"><u>2024 Approved From Selfie to Sensation Vloggers' Choice of Top 9 Camera Accessories</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/1725285686226-dvd-decrypter/"><u>DVD-Decrypter開始失敗・入出力エラーに対する解決策</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-changeadd-location-filters-on-snapchat-for-your-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Add Location Filters on Snapchat For your Realme C33 2023 | Dr.fone</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/in-2024-mastering-zooms-video-enhancements-filter-techniques/"><u>In 2024, Mastering Zoom's Video Enhancements Filter Techniques</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/strategies-for-apps-that-wont-download-from-play-store-on-oppo-a58-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Strategies for Apps That Wont Download From Play Store On Oppo A58 4G | Dr.fone</u></a></li>
-<li><a href="https://driver-install.techidaily.com/update-guide-for-amds-rx-5700-drivers/"><u>Update Guide for AMD's RX 5700 Drivers</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-how-to-overcome-no-image-problem-in-youtube-shorts/"><u>[New] How To Overcome No Image Problem in YouTube Shorts</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-size-it-up-right-instagrams-best-videography-practices/"><u>[New] In 2024, Size It Up Right Instagram's Best Videography Practices</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-merge-music-and-graphics-in-ppt/"><u>[New] Merge Music and Graphics in PPT</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-the-ultimate-guide-to-instagrams-gold-standard-six-tactics-to-attract-more-followers/"><u>[New] The Ultimate Guide to Instagram's Gold Standard Six Tactics to Attract More Followers</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-top-social-media-hash-tracking-software-fb-tweet-and-ig-edition/"><u>[New] Top Social Media Hash Tracking Software FB, Tweet & IG Edition</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-11-must-know-hues-for-professional-grading/"><u>[Updated] 2024 Approved 11 Must-Know Hues for Professional Grading</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-boost-your-igtv-views-top-5-tactics-for-increased-engagement/"><u>[Updated] 2024 Approved Boost Your IGTV Views Top 5 Tactics for Increased Engagement</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-boosting-your-posts-secrets-for-viral-instagram-videos/"><u>[Updated] Boosting Your Posts Secrets for Viral Instagram Videos</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-easy-start-the-definitive-guide-to-free-channel-openers/"><u>[Updated] Easy Start The Definitive Guide to Free Channel Openers</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-instagram-archive-storing-your-iphone-images-and-videos/"><u>[Updated] In 2024, Instagram Archive Storing Your iPhone Images and Videos</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-ps3-gaming-reimagined-best-emulators-of-the-year/"><u>2024 Approved PS3 Gaming Reimagined Best Emulators of the Year</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-win10-gaming-sessions-best-recording-approaches/"><u>2024 Approved Win10 Gaming Sessions Best Recording Approaches</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-reset-your-samsung-galaxy-a24-lock-screen-password-by-drfone-android/"><u>How to Reset your Samsung Galaxy A24 Lock Screen Password</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/hydro-series-h100i-v2-a-step-by-step-guide-to-fixing-driver-issues-on-your-pc/"><u>Hydro Series H100i v2: A Step-by-Step Guide to Fixing Driver Issues on Your PC</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-great-2024-crisis-decoding-the-root-causes-behind-crowdstrike-windows-meltdown-zdnet-history-report/"><u>The Great 2024 Crisis: Decoding The Root Causes Behind CrowdStrike-Windows Meltdown | ZDNET History Report</u></a></li>
 </ul></div>
 
