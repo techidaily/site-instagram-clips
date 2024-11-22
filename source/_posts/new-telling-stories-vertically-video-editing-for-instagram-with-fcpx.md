@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Telling Stories Vertically  Video Editing for Instagram with FCPX\""
-date: 2024-10-25T18:09:26.069Z
-updated: 2024-10-27T21:20:28.609Z
+date: 2024-11-15T23:19:33.873Z
+updated: 2024-11-21T20:36:22.416Z
 tags:
   - ai video
   - ai instagram
@@ -35,6 +35,10 @@ You may also like: [How to Get 90-day Free Trial of FCPX](https://tools.techidai
 
 ![Instagram-video](https://images.wondershare.com/filmora/images/final-cut-pro/Instagram-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Introduction to Vertical Videos for Instagram
 
 Before entering the nitty-gritty on how to edit vertical videos with FCPX, you should first know certain specifications regarding vertical videos for Instagram. Yes, when it comes to Instagram IGTV videos or stories, vertical or portrait orientated videos are preferable. Thus, knowing the below technical specs can help you.
@@ -51,10 +55,7 @@ Before entering the nitty-gritty on how to edit vertical videos with FCPX, you s
 | **Audio codecs supported**       | 128 kbps, Vorbis                                         |
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to Edit and Export Vertical Videos for Instagram in Final Cut Pro X?
@@ -96,16 +97,11 @@ Too many steps? Then try a **beginner-friendly editing tool**, Filmora!
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Tips on Editing Vertical Videos for Instagram
@@ -124,13 +120,6 @@ Is the video already shot horizontally on your camera or smartphone? No worries,
 
 Vertical video is a great option to showcase wide and tall subjects where you can place close-ups and show off details to get up close and personal. It could be a product or fabric. You can showcase enticing minor elements that attract an audience in such landscape shots.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 Hence, I am sure you found new tactics to create vertical videos for Instagram. Therefore, put them into practice the next time you make your vertical video for a story or IGTV. Is your video shot or recorded horizontal by mistake? No more worry, as you can edit vertical video for Instagram in the Final Cut Pro. Finally, with a complete guide on how to edit vertical videos with FCPX, our blog for the day is over.
@@ -138,10 +127,7 @@ Hence, I am sure you found new tactics to create vertical videos for Instagram. 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -159,20 +145,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-revel-in-richness-of-ranks-the-top-25-instagram-titans-unveiled/"><u>[New] 2024 Approved Revel in Richness of Ranks The Top 25 Instagram Titans Unveiled</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-premiered-top-8-crowd-pleasing-ae-setups-for-2024/"><u>[New] Premiered Top 8 Crowd-Pleasing AE Setups for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-speedy-image-viewer-powered-by-windows-11-for-2024/"><u>[New] Speedy Image Viewer Powered by Windows 11 for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-proven-techniques-to-elevate-your-igtv-videos-on-mobile-and-professional-cameras/"><u>[Updated] 2024 Approved Proven Techniques to Elevate Your IGTV Videos on Mobile & Professional Cameras</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-reviving-your-visual-story-adding-instagrams-flavor-to-old-photosvideos/"><u>[Updated] 2024 Approved Reviving Your Visual Story Adding Instagram's Flavor to Old Photos/Videos</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-rise-to-the-top-on-instagram-essential-tips-and-influencer-examples/"><u>[Updated] 2024 Approved Rise to the Top on Instagram Essential Tips & Influencer Examples</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-secure-your-insta-reels-with-simple-download-strategies/"><u>[Updated] In 2024, Secure Your Insta Reels with Simple Download Strategies</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-quick-fixes-screen-capturing-on-instagrams-feed-for-2024/"><u>[Updated] Quick Fixes Screen Capturing on Instagram's Feed for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-google-images-and-you-fast-collages-created-in-seconds/"><u>2024 Approved Google Images & You Fast Collages Created in Seconds</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/best-live-cam-alternatives-discover-manycams-powerful-features-and-boost-your-online-presence/"><u>Best Live Cam Alternatives - Discover ManyCam's Powerful Features and Boost Your Online Presence</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/build-a-thriving-biz-channel-proven-strategies-and-examples-for-2024/"><u>Build a Thriving Biz Channel Proven Strategies and Examples for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/dragon-ball-fighterz-cant-connect-a-step-by-step-fix-for-initialization-errors/"><u>Dragon Ball FighterZ Can't Connect: A Step-by-Step Fix for Initialization Errors</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-innovative-vr-headsets-transforming-drones/"><u>In 2024, Innovative VR Headsets Transforming Drones</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ideo-marketing-success-factors-for-2024/"><u>SMB Video Marketing Success Factors for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/top-3-voice-capturing-ipad-apps-reviewed/"><u>TOP 3 Voice Capturing iPad Apps Reviewed</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-elevate-your-content-uploading-numerous-photos-and-videos-to-instagram/"><u>[New] 2024 Approved Elevate Your Content Uploading Numerous Photos and Videos to Instagram</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-elevate-your-content-with-these-25-powerful-instagram-tags/"><u>[New] 2024 Approved Elevate Your Content with These 25 Powerful Instagram Tags</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-free2x-webcam-recorder-software-review-in-depth/"><u>[New] Free2X Webcam Recorder Software Review in Depth</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-elevate-stories-vibrancy-via-thoughtful-interactive-qandas/"><u>[New] In 2024, Elevate Stories' Vibrancy via Thoughtful Interactive Q&As</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-elevate-your-brands-instagram-presence-with-these-hacks/"><u>[New] In 2024, Elevate Your Brand's Instagram Presence with These Hacks</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-downloadable-instagram-footage-tech-tips-for-computers-and-macs/"><u>[Updated] 2024 Approved Downloadable Instagram Footage Tech Tips for Computers & Macs</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-how-to-innovate-transforming-raw-footage-into-youtube-thumbnails-via-smartphones/"><u>2024 Approved How to Innovate Transforming Raw Footage Into YouTube Thumbnails via Smartphones</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/23-chatgpt-driven-solutions-for-crafting-business-emails/"><u>23 ChatGPT-Driven Solutions for Crafting Business Emails</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/6-proven-ways-to-unlock-tecno-spark-10-4g-phone-when-you-forget-the-password-by-drfone-android/"><u>6 Proven Ways to Unlock Tecno Spark 10 4G Phone When You Forget the Password</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/fix-cannot-paste-the-data-error-in-microsoft-excel-2007-stellar-by-stellar-guide/"><u>Fix Cannot Paste the Data Error in Microsoft Excel 2007 | Stellar</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/pro-video-creators-guide-to-ideal-laptops-for-2024/"><u>Pro Video Creators' Guide to Ideal Laptops for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-top-race-rc-rock-crawlers-mastering-all-terrain-adventures/"><u>Ultimate Guide to Top Race RC Rock Crawlers: Mastering All-Terrain Adventures</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/unraveling-5-ai-apps-designed-for-emotional-care/"><u>Unraveling 5 AI Apps Designed for Emotional Care</u></a></li>
 </ul></div>
 

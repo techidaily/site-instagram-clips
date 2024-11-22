@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Reviving Your Visual Story  Adding Instagram's Flavor to Old Photos/Videos\""
-date: 2024-11-16T05:05:10.100Z
-updated: 2024-11-21T05:10:19.555Z
+date: 2024-11-16T16:28:58.054Z
+updated: 2024-11-21T17:01:44.095Z
 tags:
   - ai video
   - ai instagram
@@ -52,19 +52,11 @@ To add Instagram filters, you have to open Instagram and log in to your existing
 
 ![enter Instgram camera](https://images.wondershare.com/filmora/article-images/tap-plus-icon-instagram.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2: Select an image from the gallery**
 
 After you open the stories option, the camera will open first. You can click a photo on the spot or select an existing image from the camera. Look at the bottom left side of the screen; you will see a square box. **Click on the square box** to select an image from your photo gallery.
 
 ![  Instgram camera gallery](https://images.wondershare.com/filmora/article-images/select-image-from-instagram-gallery.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 3: press the smiley icon**
 
@@ -85,12 +77,16 @@ After selecting the filter of your choice and **applying i**t, **click done on t
 ![filmora logo](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-horizontal.svg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## A cross-platform for making videos anywhere for all creators
 
 ![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Why your video editing isn't good enough? How about some creative inspo?
 
@@ -108,6 +104,10 @@ After selecting the filter of your choice and **applying i**t, **click done on t
  \* Secure Download
 
 ![filmora12](https://images.wondershare.com/filmora/12-filmora/img/filmora12-01.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to Add Instagram Filters to Existing Videos?
 
@@ -149,10 +149,6 @@ After you **click next**, you will see a lot of filter options. You can **swipe 
 
 When customizing the filter intensity, you can s**elect next** and **click on edit** to further enhance the image. You can increase brightness, sharpen the image, etc. When the image is edited as per your choice, you can tag people or simply post.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 4: How to Add Filter to Instagram Reel Photo and Video?
 
 A plain Instagram reel without any filters or effects can feel boring to watch. Hence, a lot of content creators use filters strategically to make their reels more appealing. Here is how to add filters to your reel photos and videos.
@@ -164,7 +160,7 @@ Open the story option and **swipe to enable the Reel option**. Once you have the
 ![Instgram Reels Gallery ](https://images.wondershare.com/filmora/article-images/instagram-reels-gallery.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 2: Click on shine emoji to add filters**
@@ -173,6 +169,10 @@ On top, you will see a **shine emoji** option through which you can **browse thr
 
 ![Instgram Reels  filters option ](https://images.wondershare.com/filmora/article-images/instagram-reels-filters-effects-option.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3: post**
 
 After you are done adding effects, you can **click on done** to post, and you can also **download the image**.
@@ -180,11 +180,7 @@ After you are done adding effects, you can **click on done** to post, and you ca
 ![download Instgram Reels   video with filters](https://images.wondershare.com/filmora/article-images/download-instagram-reels-filters-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **FAQs** About Instagram Filters
@@ -203,6 +199,10 @@ Often people do not know how to add Instagram filters to existing photos and vid
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -218,21 +218,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-how-to-make-highlights-on-instagram-3-ways/"><u>[New] In 2024, How to Make Highlights on Instagram [3 Ways]</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-social-splendor-leading-story-filter-hits/"><u>[New] In 2024, Social Splendor Leading Story Filter Hits</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-the-ultimate-path-to-a-thriving-instagram-community-for-2024/"><u>[New] The Ultimate Path to a Thriving Instagram Community for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-dominating-the-igtv-space-a-guide-to-massive-viewership-growth/"><u>[Updated] 2024 Approved Dominating the IGTV Space A Guide to Massive Viewership Growth</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-instagram-tracking-your-followers-departure/"><u>[Updated] 2024 Approved Instagram Tracking Your Followers' Departure</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-superior-streaming-recorders-for-youtube-vloggers/"><u>[Updated] In 2024, Superior Streaming Recorders for YouTube Vloggers</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-mastering-subtitle-integration-a-complete-guide-for-social-media-platforms/"><u>2024 Approved Mastering Subtitle Integration A Complete Guide for Social Media Platforms</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-the-secrets-behind-successful-hd-videos-on-social-networks/"><u>2024 Approved The Secrets Behind Successful HD Videos on Social Networks</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/essential-competencies-needed-for-success-in-abbyys-transportation-and-logistics-sector/"><u>Essential Competencies Needed for Success in ABBYY's Transportation and Logistics Sector</u></a></li>
-<li><a href="https://win-dash.techidaily.com/1722973511420-expert-advice-on-how-to-download-and-keep-your-mbox-2-drivers-updated/"><u>Expert Advice on How to Download and Keep Your MBox 2 Drivers Updated</u></a></li>
-<li><a href="https://win-marvelous.techidaily.com/how-to-create-bilingual-button-labels-in-flipbuilder-mixing-portuguese-and-english/"><u>How to Create Bilingual Button Labels in FlipBuilder: Mixing Portuguese and English</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-optimized-video-engagement-with-peak-post-times/"><u>In 2024, Optimized Video Engagement with Peak Post Times</u></a></li>
-<li><a href="https://video-capture.techidaily.com/save-your-gameplay-moments-with-xbox-screen-recordings-for-2024/"><u>Save Your Gameplay Moments with Xbox Screen Recordings for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-definitive-review-of-the-2021-apple-tv-4k-experience-stunning-hd-quality-streaming-enhanced-by-convenient-siri-controls/"><u>The Definitive Review of the 2021 Apple TV 4K: Experience Stunning HD Quality Streaming Enhanced by Convenient Siri Controls</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/the-ultimate-guide-to-hash-trackers-fb-twt-and-ig-networks-for-2024/"><u>The Ultimate Guide to Hash Trackers FB, Twt & IG Networks for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/ultimate-guide-instagrams-video-maximum-length-rule-for-2024/"><u>Ultimate Guide Instagram's Video Maximum Length Rule for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-optimize-your-posting-select-from-this-roundup-of-top-8-planners/"><u>[New] 2024 Approved Optimize Your Posting Select From This Roundup of Top 8 Planners</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-perfecting-instagram-posts-tips-for-vertical-editing-in-final-cut-pro-x/"><u>[New] In 2024, Perfecting Instagram Posts Tips for Vertical Editing in Final Cut Pro X</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-navigating-instagrams-restrictions-for-larger-posts-for-2024/"><u>[New] Navigating Instagram's Restrictions for Larger Posts for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-pinpointing-factors-that-influence-igtv-video-performance-for-2024/"><u>[New] Pinpointing Factors that Influence IGTV Video Performance for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-perfecting-instagram-posts-tips-for-vertical-editing-in-final-cut-pro-x/"><u>[Updated] 2024 Approved Perfecting Instagram Posts Tips for Vertical Editing in Final Cut Pro X</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-mastery-in-making-your-instagrams-seamless-for-2024/"><u>[Updated] Mastery in Making Your Instagrams Seamless for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/8-best-apps-for-screen-mirroring-oneplus-ace-3-pc-drfone-by-drfone-android/"><u>8 Best Apps for Screen Mirroring OnePlus Ace 3 PC | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/cant-take-full-page-screenshots-with-safari-discover-easy-fixes-today/"><u>Can't Take Full-Page Screenshots With Safari? Discover Easy Fixes Today</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-logitech-g29-racing-wheel-software-compatible-with-windows-10-11-and-7/"><u>Download Logitech G29 Racing Wheel Software Compatible with Windows 10, 11 & 7</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-enlargeshrink-the-taskbar-win11/"><u>How to Enlarge/Shrink the Taskbar Win11</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-special-features-virtual-location-on-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Motorola Edge 40? | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-becoming-a-snapping-maestro-mastering-the-zoom-feature-in-snapchat/"><u>In 2024, Becoming a Snapping Maestro Mastering the Zoom Feature in Snapchat</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/inside-the-world-of-toms-hardware-gadgets-and-geekery/"><u>Inside the World of Tom’s Hardware: Gadgets and Geekery</u></a></li>
+<li><a href="https://common-error.techidaily.com/mastering-error-resolution-a-comprehensive-guide-on-windows-network-error-0x800704cf/"><u>Mastering Error Resolution: A Comprehensive Guide on Windows Network Error 0X800704cf</u></a></li>
+<li><a href="https://win-able.techidaily.com/screen-stutter-no-more-overcome-the-screen-shaking-challenge-permanently/"><u>Screen Stutter No More! Overcome the Screen Shaking Challenge Permanently</u></a></li>
 </ul></div>
 

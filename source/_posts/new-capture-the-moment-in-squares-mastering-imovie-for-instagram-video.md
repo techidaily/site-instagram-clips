@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Capture the Moment in Squares  Mastering iMovie for Instagram Video\""
-date: 2024-11-18T10:39:06.010Z
-updated: 2024-11-21T10:47:01.582Z
+date: 2024-11-20T17:25:01.470Z
+updated: 2024-11-21T23:08:18.049Z
 tags:
   - ai video
   - ai instagram
@@ -66,7 +66,7 @@ A guide to adding titles and credits to the cart is also included in the templat
 Let's look at how to generate square movies for Instagram with iMovie now.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1\. How to Make a Square Video for Instagram in iMovie on iPhone?
@@ -96,7 +96,7 @@ To use the crop/zoom feature in iMovie on iPhone, follow these steps:
 **Step #10\.** To save your movie to your Camera Roll, tap the square with an arrow icon.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2\. How to Make a Square Video in iMovie on Mac?
@@ -124,7 +124,7 @@ Let's adjust the dimensions of your video to square using Keynote now that you'v
 **Step #9\.** Select a location to save your square video and then click **Export**.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Bonus Tip - How to Easily Make a Square Video for Social Media on Mac?
@@ -172,7 +172,7 @@ These steps have been written as an easy guide. Following them step by step is a
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -190,24 +190,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-10plus-top-free-youtube-image-extractors/"><u>[New] 2024 Approved 10+ Top FREE YouTube Image Extractors</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-blending-brands-joining-instagram-and-facebook-effortlessly/"><u>[New] Blending Brands Joining Instagram and Facebook Effortlessly</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-instagram-video-collage-app-for-androidandios/"><u>[New] In 2024, Instagram Video Collage App for Android&iOS</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-perfect-your-instagram-vocal-presence-quickly/"><u>[New] In 2024, Perfect Your Instagram Vocal Presence Quickly</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-universal-approach-how-to-record-any-youtube-stream-on-different-devices/"><u>[New] Universal Approach How To Record Any YouTube Stream on Different Devices</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-instagram-hidden-gems-top-tips-for-savvy-users/"><u>[Updated] 2024 Approved Instagram Hidden Gems Top Tips for Savvy Users</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-understanding-the-impact-of-igtv-videos-through-analysis/"><u>[Updated] 2024 Approved Understanding the Impact of IGTV Videos Through Analysis</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-boosting-popularity-on-instagram-mastery-of-the-top-25-tags/"><u>[Updated] Boosting Popularity on Instagram Mastery of the Top 25 Tags</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-efficient-launch-navigating-video-talks-in-instagram/"><u>[Updated] Efficient Launch Navigating Video Talks in Instagram</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-elevating-4k-video-output-on-your-devices/"><u>[Updated] Elevating 4K Video Output on Your Devices</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-cutting-down-video-lengths-the-ultimate-mac-guide-for-insta/"><u>[Updated] In 2024, Cutting Down Video Lengths The Ultimate Mac Guide for Insta</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-sonic-selections-fine-tuning-your-instagram-video-soundtrack-for-2024/"><u>[Updated] Sonic Selections Fine-Tuning Your Instagram Video Soundtrack for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-premium-video-gear-pick-your-favorite-15-cams/"><u>2024 Approved Premium Video Gear Pick Your Favorite #15 Cams</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-superior-psd-design-transformations/"><u>2024 Approved Superior PSD Design Transformations</u></a></li>
-<li><a href="https://extra-information.techidaily.com/boosting-playback-speed-guidelines-for-secure-sound-enhancement/"><u>Boosting Playback Speed Guidelines for Secure Sound Enhancement</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-oppo-k11x-bootloader-easily-by-drfone-android/"><u>How to Unlock Oppo K11x Bootloader Easily</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/instagram-stories-learn-to-modify-video-velocity-for-2024/"><u>Instagram Stories Learn to Modify Video Velocity for 2024</u></a></li>
-<li><a href="https://discover-exclusive.techidaily.com/retrieving-lost-notes-a-step-by-step-guide-for-reviving-deleted-content-in-onenote/"><u>Retrieving Lost Notes: A Step-by-Step Guide for Reviving Deleted Content in OneNote</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/why-the-wheel-turns-slow-for-chatgpt-4-compared-to-35/"><u>Why the Wheel Turns Slow for ChatGPT-4 Compared to 3.5?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-cutting-edge-converter-elevate-your-screen-viewing/"><u>[New] Cutting Edge Converter Elevate Your Screen Viewing</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-instagram-tips-how-to-perfectly-flip-videos-on-devices/"><u>[New] Instagram Tips How to Perfectly Flip Videos on Devices</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-instagram-video-wizardry-techniques-for-massive-reach/"><u>[New] Instagram Video Wizardry Techniques for Massive Reach</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-easy-laughter-the-art-of-creating-funny-memes/"><u>[Updated] 2024 Approved Easy Laughter The Art of Creating Funny Memes</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-reclaim-social-life-overcoming-a-hack-on-facebook/"><u>[Updated] 2024 Approved Reclaim Social Life Overcoming a Hack on Facebook</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-instagram-pro-tips-10-crucial-tools-to-increase-followers/"><u>[Updated] Instagram Pro Tips 10 Crucial Tools to Increase Followers</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-instagram-story-expertise-your-ultimate-resource/"><u>[Updated] Instagram Story Expertise Your Ultimate Resource</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-iphone-saving-insta-pics-and-videos/"><u>2024 Approved IPhone Saving Insta Pics and Videos</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/deciding-between-ai-helpers-the-battle-of-alexa-and-google-assistant/"><u>Deciding Between AI Helpers: The Battle of Alexa and Google Assistant</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-file-sync-solutions-top-ways-to-bring-data-home/"><u>In 2024, File Sync Solutions Top Ways To Bring Data Home</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-instagram-success-the-leading-25-tagging-tactics/"><u>In 2024, Instagram Success The Leading 25 Tagging Tactics</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/transformer-des-fichiers-flac-en-aiff-gratuitement-online-avec-movavi/"><u>Transformer Des Fichiers FLAC en AIFF Gratuitement - Online Avec Movavi</u></a></li>
+<li><a href="https://some-skills.techidaily.com/understanding-chipset-drivers-installation-guide-and-tips/"><u>Understanding Chipset Drivers: Installation Guide & Tips</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Troubleshooting Your Console's Audio Issues - The Ultimate Mic Fix Guide for 2nD4!
-date: 2024-11-15T19:37:08.447Z
-updated: 2024-11-21T01:58:09.072Z
+date: 2024-11-20T21:09:10.832Z
+updated: 2024-11-21T20:49:11.656Z
 tags:
   - win11
   - win10
@@ -18,10 +18,6 @@ thumbnail: https://thmb.techidaily.com/c9c3286561c0cb162a6f36b6b19f491a65ddd3daf
 You may run into the_Path of Exile (PoE)_ freezing issue for several reasons, such as incompatible hardware, faulty drivers, corrupt game files, software conflicts, low RAM, etc.
 
  The information here is a general guide that has proved useful to many players in fixing this issue. You may not have to try them all, just work your way down the list until you find the one that does the trick for you. (If none of the fixes here helped, at least you’ve ruled out all these simple fixes before contacting the game developer.)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Fixes to try
 
@@ -44,10 +40,6 @@ Follow the instructions below:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_10-58-19.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **2)** Check your current **CPU and memory usage** to see what processes are consuming your resources most.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_10-58-28.jpg)
@@ -58,10 +50,14 @@ Follow the instructions below:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_10-58-35.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Relaunch your game to see if it runs properly now. If the issue continues to occur, read on and try the next fix.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Fix 2: Update your graphics driver
@@ -79,7 +75,7 @@ Follow the instructions below:
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_11-02-53.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **3)** Click the **Update button** next to the graphics driver to automatically download the correct version of that driver, then you can manually install it (you can do this with the FREE version).
@@ -87,10 +83,6 @@ Follow the instructions below:
  Or click **Update All** to automatically download and install the correct version of all the drivers that are missing or out of date on your system. (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  which comes with full support and a 30-day money back guarantee. You’ll be prompted to upgrade when you click Update All.)
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_11-02-59.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **The Pro version of Driver Easy** comes with full technical support.  
  If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
@@ -137,6 +129,14 @@ If your issue continues to occur, move on and try the next fix.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_11-15-18.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Fix 5: Increase virtual memory
 
  Virtual memory combines your RAM with temporary space on your hard disk. If you’re running out of RAM and the default size of your virtual memory isn’t large enough for your needs, you’ll need to increase it manually.
@@ -145,16 +145,12 @@ If your issue continues to occur, move on and try the next fix.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_11-29-35.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **2)** Click **Settings** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_11-31-30.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **3)**  Click the **Advanced**  tab, and then click **Change** .
@@ -165,9 +161,17 @@ If your issue continues to occur, move on and try the next fix.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_11-31-44.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **6)** Select your **C drive** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_11-31-52.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **7)** Click the option button next to **Custom size** , and then type **4096** in the text box next to **Initial size (MB)**  and **Maximum size (MB)** .
 
@@ -176,7 +180,7 @@ If your issue continues to occur, move on and try the next fix.
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_11-33-50.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **8)** Click **Set** , and then click **OK** .
@@ -186,6 +190,10 @@ If your issue continues to occur, move on and try the next fix.
 **9)** Restart your computer and your game.
 
 If your issue persists, then ahead with the fix below.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 6: Check for Windows updates
 
@@ -200,10 +208,6 @@ If your issue persists, then ahead with the fix below.
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_11-48-06.jpg)
 
  Restart your computer and your game. If your issue still exists, try the fix, below.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 7: Reinstall Steam
 
@@ -222,10 +226,6 @@ If your issue persists, then ahead with the fix below.
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_11-51-38.jpg)
 
  **4)[Download](https://store.steampowered.com/about/)**  and install Steam. Then, reinstall your game on Steam.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 8: Clean the interior of your PC
 
@@ -254,20 +254,24 @@ Relaunch the game to see if this helped.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-stream.techidaily.com/new-how-to-overcome-no-image-problem-in-youtube-shorts/"><u>[New] How To Overcome No Image Problem in YouTube Shorts</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-size-it-up-right-instagrams-best-videography-practices/"><u>[New] In 2024, Size It Up Right Instagram's Best Videography Practices</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-merge-music-and-graphics-in-ppt/"><u>[New] Merge Music and Graphics in PPT</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-the-ultimate-guide-to-instagrams-gold-standard-six-tactics-to-attract-more-followers/"><u>[New] The Ultimate Guide to Instagram's Gold Standard Six Tactics to Attract More Followers</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-top-social-media-hash-tracking-software-fb-tweet-and-ig-edition/"><u>[New] Top Social Media Hash Tracking Software FB, Tweet & IG Edition</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-11-must-know-hues-for-professional-grading/"><u>[Updated] 2024 Approved 11 Must-Know Hues for Professional Grading</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-boost-your-igtv-views-top-5-tactics-for-increased-engagement/"><u>[Updated] 2024 Approved Boost Your IGTV Views Top 5 Tactics for Increased Engagement</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-boosting-your-posts-secrets-for-viral-instagram-videos/"><u>[Updated] Boosting Your Posts Secrets for Viral Instagram Videos</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-easy-start-the-definitive-guide-to-free-channel-openers/"><u>[Updated] Easy Start The Definitive Guide to Free Channel Openers</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-instagram-archive-storing-your-iphone-images-and-videos/"><u>[Updated] In 2024, Instagram Archive Storing Your iPhone Images and Videos</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-ps3-gaming-reimagined-best-emulators-of-the-year/"><u>2024 Approved PS3 Gaming Reimagined Best Emulators of the Year</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-win10-gaming-sessions-best-recording-approaches/"><u>2024 Approved Win10 Gaming Sessions Best Recording Approaches</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-reset-your-samsung-galaxy-a24-lock-screen-password-by-drfone-android/"><u>How to Reset your Samsung Galaxy A24 Lock Screen Password</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/hydro-series-h100i-v2-a-step-by-step-guide-to-fixing-driver-issues-on-your-pc/"><u>Hydro Series H100i v2: A Step-by-Step Guide to Fixing Driver Issues on Your PC</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/the-great-2024-crisis-decoding-the-root-causes-behind-crowdstrike-windows-meltdown-zdnet-history-report/"><u>The Great 2024 Crisis: Decoding The Root Causes Behind CrowdStrike-Windows Meltdown | ZDNET History Report</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2023-full-movement-analysis/"><u>[New] 2023 Full Movement Analysis</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-instagram-reels-rhythm-mixing-in-musical-elements/"><u>[New] 2024 Approved Instagram Reels Rhythm Mixing in Musical Elements</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-instagram-stories-secrets-for-success/"><u>[New] 2024 Approved Instagram Stories Secrets for Success</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-stream-instagram-and-youtube-a-step-by-step-guide/"><u>[New] In 2024, Stream Instagram & YouTube A Step-by-Step Guide</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-instas-secrets-unveiled-the-art-of-selfie-confirmation-for-2024/"><u>[New] Insta's Secrets Unveiled The Art of Selfie Confirmation for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-elevating-user-experience-with-personalized-youtube-card-implementation/"><u>[Updated] 2024 Approved Elevating User Experience with Personalized YouTube Card Implementation</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-instagram-follower-deletion-identification/"><u>[Updated] 2024 Approved Instagram Follower Deletion Identification</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-instagram-insights-identifying-your-posts-audience/"><u>[Updated] 2024 Approved Instagram Insights Identifying Your Post's Audience</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-instagram-story-expertise-your-ultimate-resource/"><u>[Updated] 2024 Approved Instagram Story Expertise Your Ultimate Resource</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-quick-intro-to-instagram-video-chat/"><u>[Updated] 2024 Approved Quick Intro to Instagram Video Chat</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-ideal-marketplace-for-customized-box-masterpieces/"><u>[Updated] Ideal Marketplace For Customized Box Masterpieces</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-instagram-to-music-directing-videos-to-mp3-outputs/"><u>[Updated] In 2024, Instagram to Music Directing Videos to MP3 Outputs</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-instagrams-hottest-meme-accounts-laughter-and-sorrow-sideshow-for-2024/"><u>[Updated] Instagram's Hottest Meme Accounts Laughter & Sorrow Sideshow for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-personalize-win11-panorama-selecting-stunning-walls/"><u>2024 Approved Personalize Win11 Panorama Selecting Stunning Walls</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-unlocking-video-excellence-on-tiktok-through-effective-templates-use/"><u>2024 Approved Unlocking Video Excellence on TikTok Through Effective Templates Use</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-migrate-android-data-from-realme-note-50-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Migrate Android Data From Realme Note 50 to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/jazzy-deadites-designer/"><u>Jazzy Deadites Designer</u></a></li>
+<li><a href="https://article-helps.techidaily.com/premium-fonts-with-dynamic-movement/"><u>Premium Fonts with Dynamic Movement</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-unlocking-cinematic-storytelling-how-to-apply-ken-burns-effect-in-final-cut-pro-for-2024/"><u>Updated Unlocking Cinematic Storytelling How to Apply Ken Burns Effect in Final Cut Pro for 2024</u></a></li>
 </ul></div>
 

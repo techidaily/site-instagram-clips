@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Instagram-Ready  Guide to Cropping & Exporting Videos\""
-date: 2024-10-21T23:30:39.209Z
-updated: 2024-10-28T04:23:17.592Z
+date: 2024-11-18T17:32:14.843Z
+updated: 2024-11-21T19:13:10.377Z
 tags:
   - ai video
   - ai instagram
@@ -37,6 +37,10 @@ In order to create videos that will get thousands of likes on Instagram, you nee
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **How to crop videos for instagram in Filmora**
 
 Unless you shoot your video directly from the Instagram app, the aspect ratio of your videos will not match the square aspect ratio used on Instagram. The only solution to this issue is to crop the video and change its aspect ratio so it fits one of the commonly used aspect ratios on Instagram.
@@ -47,11 +51,23 @@ In order to start cropping your videos, you first must install the Filmora video
 
 ![](https://images.wondershare.com/filmora/article-images/filmora-import.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 2: Drag and Drop the video file onto the Timeline**
 
 ![](https://images.wondershare.com/filmora/article-images/video-editor-main-interface-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Now that the video clip you want to edit is in the editor's media library, drag it and drop it to the timeline.
 
@@ -68,6 +84,10 @@ Once the new window appears, you should click on the Format icon positioned in t
 Click on the Settings button and then set the Quality of the video to Best and select the HD Optimized option in the Encoder menu. Choose the Resolution and Frame Rate that match the ones in your video and change the Bitrate in the Audio settings to 128 Kbps and hit OK.
 
 ![](https://images.wondershare.com/filmora/article-images/16-9-aspect-ratio-export.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **2\. Portrait (4:3)**
 
@@ -100,32 +120,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-10-strategies-to-make-money-on-youtube-shorts-easily/"><u>[Updated] In 2024, 10 Strategies to Make Money on YouTube Shorts Easily</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-the-ultimate-tutorial-creating-instagram-ready-videos-with-final-cut-pro-x/"><u>[Updated] The Ultimate Tutorial Creating Instagram-Ready Videos with Final Cut Pro X</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-toxic-trend-unnecessary-followers-tarnish-reputation/"><u>[Updated] Toxic Trend Unnecessary Followers Tarnish Reputation</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-turning-down-igtv-on-insta/"><u>2024 Approved Turning Down IGTV on Insta</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/accelerated-aesthetics-rapid-revamping-of-images-on-windows-photo-editor-for-2024/"><u>Accelerated Aesthetics Rapid Revamping of Images on Windows Photo Editor for 2024</u></a></li>
-<li><a href="https://fox-that.techidaily.com/1721456779893-fixing-iphone-not-detected-overcoming-issues-with-itunesfinder-recognition/"><u>Fixing 'iPhone Not Detected': Overcoming Issues with iTunes/Finder Recognition</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-top-specialists-exceptional-instragram-highlight-artisans/"><u>In 2024, Top Specialists Exceptional Instragram Highlight Artisans</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-transform-your-igtv-backgrounds-with-style/"><u>In 2024, Transform Your IGTV Backgrounds with Style</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/instagrams-power-in-motion-crafting-a-comprehensive-video-plan/"><u>Instagram's Power in Motion Crafting a Comprehensive Video Plan</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-audio-post-production-in-fcp-a-beginners-guide-to-pro-results/"><u>New Audio Post-Production in FCP A Beginners Guide to Pro Results</u></a></li>
-<li><a href="https://program-issues.techidaily.com/solving-the-problem-cant-launch-battlefield-4-on-windows-heres-how/"><u>Solving the Problem - Can’t Launch Battlefield 4 on Windows? Here’s How</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/top-10-invisible-peers-for-hidden-stories-for-2024/"><u>Top 10 Invisible Peers for Hidden Stories for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/transforming-ideas-into-stories-with-gpt-assisted-writing/"><u>Transforming Ideas Into Stories with GPT-Assisted Writing</u></a></li>
-<li><a href="https://win-able.techidaily.com/troubleshooting-tips-restoring-msi-mystic-light-capabilities-in-windows-environment/"><u>Troubleshooting Tips: Restoring MSI Mystic Light Capabilities in Windows Environment</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-step-by-step-guide-to-master-gratuitous-timer-software/"><u>[New] In 2024, Step-by-Step Guide to Master Gratuitous Timer Software</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-innovating-for-success-crafting-an-effective-instagram-video-marketing-blueprint/"><u>[New] Innovating for Success Crafting an Effective Instagram Video Marketing Blueprint</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-instagram-angles-the-complete-manual-for-effective-video-turns/"><u>[New] Instagram Angles The Complete Manual for Effective Video Turns</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-insights-into-instagram-follower-exits/"><u>[Updated] Insights Into Instagram Follower Exits</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-insta-cover-chronicles-top-tier-tech-edition/"><u>[Updated] Insta Cover Chronicles Top-Tier Tech Edition</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-instagram-aesthetics-unleashed-leading-enhancers/"><u>[Updated] Instagram Aesthetics Unleashed Leading Enhancers</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-optimizing-call-and-chat-preservation-in-the-digital-age-fb-edition/"><u>[Updated] Optimizing Call & Chat Preservation in the Digital Age FB Edition</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/a-full-review-for-itools-virtual-location-and-top-5-alternatives-for-apple-iphone-6s-plusipad-drfone-by-drfone-virtual-ios/"><u>A Full Review for iTools Virtual Location and Top 5 Alternatives For Apple iPhone 6s Plus/iPad | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/full-guide-to-bypass-poco-m6-5g-frp-by-drfone-android/"><u>Full Guide to Bypass Poco M6 5G FRP</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-create-a-facebook-group/"><u>How to Create a Facebook Group</u></a></li>
+<li><a href="https://program-issues.techidaily.com/how-to-repair-google-meets-camera-issues-solutions-included/"><u>How to Repair Google Meet's Camera Issues - Solutions Included</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-insta-snap-authenticity-guide-unveiling-selfies-truths/"><u>In 2024, Insta Snap Authenticity Guide Unveiling Selfies' Truths</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-the-year-of-infographics-top-social-trends-explored/"><u>In 2024, The Year of Infographics Top Social Trends Explored</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

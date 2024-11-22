@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Cutting Ties with Instagram  Navigating a Permanent Exit Strategy\""
-date: 2024-11-16T09:59:28.076Z
-updated: 2024-11-20T23:53:36.429Z
+date: 2024-11-16T18:31:57.591Z
+updated: 2024-11-21T16:27:07.774Z
 tags:
   - ai video
   - ai instagram
@@ -41,21 +41,17 @@ To delete an account:
 
 ![log-in-instagram](https://images.wondershare.com/filmora/article-images/1-log-in-instagram.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2**: After logging in, [click here](https://www.instagram.com/accounts/remove/request/permanent/) and you will be diverted to the accounts deleting page of Instagram
 
 **Step 3**: Choose the reason why you wish to delete your Instagram account from the drop-down tab and enter your password for security verification. Then click on Delete (Your account name) tab.
 
 ![delete-instagram-account-page](https://images.wondershare.com/filmora/article-images/2-delete-instagram-account-page.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Instagram will display a message saying that your account will be erased within a month and until then it will be hidden from the rest of the Instagram users. You will also be notified via your email id if it was added to your account.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to Deactivate an Instagram Account Temporarily
 
@@ -79,15 +75,15 @@ To deactivate an Instagram account:
 
 ![delete-instagram-account-temporarily](https://images.wondershare.com/filmora/article-images/5-delete-instagram-account-temporarily.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 5**: A small caution message will be displayed. Tap on Yes and your account will be temporarily removed.
 
 ![confirm-deleting-instagram-account](https://images.wondershare.com/filmora/article-images/6-confirm-deleting-instagram-account.jpg)
 
 You will receive a notification via mail saying that your Instagram account has been deactivated temporarily.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: How to Reactivate an Instagram Account
 
@@ -109,10 +105,6 @@ One of the best ways to make wonderful and interesting Instagram videos is by us
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 To create a video using Filmora that stand out among the audience:
 
 **Step 1**: Open the video you wish to edit and upload to Instagram in Filmora and then drag and drop this video to the Filmora timeline.
@@ -120,16 +112,24 @@ To create a video using Filmora that stand out among the audience:
 ![import instagram video](https://images.wondershare.com/filmora/article-images/import-instagram-video-to-filmora1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 2**: Change the resolution of the video by tapping on the File – Project Setting. A small window will appear from which you can change the resolution (for example 1080×1080). Tap on OK after selecting your desired resolution
 
 ![adjust instagram video ratio](https://images.wondershare.com/filmora/article-images/fit-instagram-aspect-ratio2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3**: The video can be made attractive by changing the black bars on the top and the bottom of the video. This can be done by selecting a background you like and placing it just below the video on the timeline.
 
 ![add background color to instagram video](https://images.wondershare.com/filmora/article-images/add-background-to-instagram-video3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 4**: Adding attractive text to the video which is something most audiences notice at the first glance. To add a text go to the Titles tab at the top, select one of the text templates you like, and drag it to the timeline. You can change the text, font, size, color, orientation, animation, etc. of the text.
 
@@ -139,13 +139,13 @@ To create a video using Filmora that stand out among the audience:
 
 ![export instagram video](https://images.wondershare.com/filmora/article-images/click-export-video-output.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 This video can then be uploaded to Instagram for the viewers to enjoy and for you to gain followers.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -162,18 +162,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-instagrams-temporal-twist-learn-how-to-turn-back-time/"><u>[New] 2024 Approved Instagram's Temporal Twist Learn How to Turn Back Time</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-mastering-the-craft-of-igtv-video-production-with-phones-and-dslrs/"><u>[New] 2024 Approved Mastering the Craft of IGTV Video Production with Phones and DSLRs</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-perfect-your-profile-easy-guide-for-instagram-videos-from-desktop/"><u>[New] 2024 Approved Perfect Your Profile Easy Guide for Instagram Videos From Desktop</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-personalize-speakability-changing-your-tone-on-instagram-posts/"><u>[New] 2024 Approved Personalize Speakability Changing Your Tone on Instagram Posts</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-pioneering-the-path-to-instagram-reel-mastery/"><u>[New] 2024 Approved Pioneering the Path to Instagram Reel Mastery</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-top-10-unique-gaming-screen-capture-applications-for-2024/"><u>[New] Top 10 Unique Gaming Screen Capture Applications for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-audiextractoreview-free-audio-tools-new-horizon/"><u>[Updated] In 2024, AudiExtractoReview Free Audio Tool's New Horizon</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-discover-top-10-cost-free-image-format-change-software/"><u>[Updated] In 2024, Discover Top 10 Cost-Free Image Format Change Software</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-construct-memetic-mirth/"><u>2024 Approved Construct Memetic Mirth</u></a></li>
-<li><a href="https://discover-data.techidaily.com/acer-windows-11/"><u>Acer 機器在 Windows 11 上進行成功的恢復操作指南</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/decoding-the-differences-between-ipad-pro-and-macbook-pro/"><u>Decoding the Differences Between iPad Pro and MacBook Pro</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/effortless-guide-converting-audio-files-from-m4a-to-wav-with-audacity/"><u>Effortless Guide: Converting Audio Files From M4A to WAV with Audacity</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/how-to-stop-xcom-2-from-crashing-on-your-windows-computer-effective-fixes/"><u>How to Stop XCOM 2 From Crashing on Your Windows Computer: Effective Fixes!</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-discover-these-6-must-have-instagram-reel-tools-for-2024/"><u>[New] Discover These 6 Must-Have Instagram Reel Tools for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-dissecting-instagrams-per-post-video-quota-for-2024/"><u>[New] Dissecting Instagram's Per-Post Video Quota for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-dive-into-creativity-mastering-artistic-elements-in-instagram-edits-for-2024/"><u>[New] Dive Into Creativity Mastering Artistic Elements in Instagram Edits for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-direct-engagement-syncing-instagram-with-facebook/"><u>[New] In 2024, Direct Engagement Syncing Instagram with Facebook</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-elevate-your-editing-game-incorrances-and-tips-for-using-luts-in-adobe-after-effects/"><u>[Updated] Elevate Your Editing Game Incorrances and Tips for Using LUTs in Adobe After Effects</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-connect-and-engage-strategies-for-sharing-during-fb-lives/"><u>[Updated] In 2024, Connect & Engage Strategies for Sharing During FB Lives</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-step-by-step-method-to-personalize-iphone-ringtones/"><u>[Updated] Step-By-Step Method to Personalize iPhone Ringtones</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/four-essential-tips-for-acquiring-youtube-srt/"><u>Four Essential Tips for Acquiring YouTube SRT</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-the-screencast-primer-fundamental-knowledge-for-video-enthusiasts/"><u>In 2024, The Screencast Primer Fundamental Knowledge for Video Enthusiasts</u></a></li>
+<li><a href="https://techidaily.com/this-is-how-you-can-recover-deleted-pictures-from-itel-a70-by-fonelab-android-recover-pictures/"><u>This is how you can recover deleted pictures from Itel A70.</u></a></li>
+<li><a href="https://driver-download.techidaily.com/troubleshooting-realtek-hd-graphics-drivers-solutions-and-tips/"><u>Troubleshooting Realtek HD Graphics Drivers: Solutions & Tips</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/troubleshooting-steps-to-restore-wi-fi-connection-on-your-surface-pro/"><u>Troubleshooting Steps to Restore Wi-Fi Connection on Your Surface Pro</u></a></li>
 </ul></div>
 

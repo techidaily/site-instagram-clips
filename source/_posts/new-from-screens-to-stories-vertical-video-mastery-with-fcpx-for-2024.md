@@ -1,7 +1,7 @@
 ---
 title: "\"[New] From Screens to Stories  Vertical Video Mastery with FCPX for 2024\""
-date: 2024-11-16T22:59:28.227Z
-updated: 2024-11-21T01:08:42.872Z
+date: 2024-11-14T18:28:55.603Z
+updated: 2024-11-21T18:41:02.499Z
 tags:
   - ai video
   - ai instagram
@@ -36,7 +36,7 @@ You may also like: [How to Get 90-day Free Trial of FCPX](https://tools.techidai
 ![Instagram-video](https://images.wondershare.com/filmora/images/final-cut-pro/Instagram-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: Introduction to Vertical Videos for Instagram
@@ -55,7 +55,7 @@ Before entering the nitty-gritty on how to edit vertical videos with FCPX, you s
 | **Audio codecs supported**       | 128 kbps, Vorbis                                         |
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to Edit and Export Vertical Videos for Instagram in Final Cut Pro X?
@@ -97,11 +97,11 @@ Too many steps? Then try a **beginner-friendly editing tool**, Filmora!
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Tips on Editing Vertical Videos for Instagram
@@ -127,7 +127,7 @@ Hence, I am sure you found new tactics to create vertical videos for Instagram. 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -145,18 +145,20 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-a-viral-strategy-for-impressive-instagram-stories/"><u>[New] A Viral Strategy for Impressive Instagram Stories</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-navigating-youtube-success-through-strategic-studio-use/"><u>[New] Navigating YouTube Success Through Strategic Studio Use</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-transform-your-ppts-into-stunning-video-content-for-2024/"><u>[New] Transform Your PPTs Into Stunning Video Content for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-mac-tricks-for-dynamic-instagram-video-size-adjustment-for-2024/"><u>[Updated] Mac Tricks for Dynamic Instagram Video Size Adjustment for 2024</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/updated-reputed-tiktok-follower-purchasers-for-2024/"><u>[Updated] Reputed TikTok Follower Purchasers for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-viral-video-ventures-crafting-addictive-loops-on-ig-for-2024/"><u>[Updated] Viral Video Ventures Crafting Addictive Loops on IG for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/full-slomo-recording-app-review-insightful-2024/"><u>Full SloMo Recording App Review - Insightful 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/in-2024-5-must-know-strategies-for-effective-team-video-calls/"><u>In 2024, 5 Must-Know Strategies for Effective Team Video Calls</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-vivo-s17-location-by-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Vivo S17 Location by Number | Dr.fone</u></a></li>
-<li><a href="https://fox-access.techidaily.com/in-2024-phantom-gag-craftsman/"><u>In 2024, Phantom Gag Craftsman</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-experience-fcp-for-free-90-day-trial-inside-for-2024/"><u>New Experience FCP for Free 90-Day Trial Inside for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/the-shadowed-observers-playbook-engaging-with-instagram-stories-anonymously-free/"><u>The Shadowed Observer's Playbook Engaging with Instagram Stories Anonymously [Free]</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/transforming-photos-and-videos-from-instagram-to-iphones-for-2024/"><u>Transforming Photos and Videos From Instagram to iPhones for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-beats-and-bites-mastering-music-in-instagram-stories/"><u>[New] Beats & Bites Mastering Music in Instagram Stories</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-freelancers-guide-to-affordable-animation-methods/"><u>[New] The Freelancer's Guide to Affordable Animation Methods</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-perfecting-presentation-adding-textures-to-your-project/"><u>[Updated] Perfecting Presentation Adding Textures to Your Project</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-10-indispensable-instagram-video-editing-apps-for-marketers/"><u>2024 Approved 10 Indispensable Instagram Video Editing Apps for Marketers</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-a-step-by-step-on-downloading-instagrams-viral-content/"><u>2024 Approved A Step-by-Step on Downloading Instagram's Viral Content</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-analyzing-instagram-de-followings/"><u>2024 Approved Analyzing Instagram De-Followings</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-boost-ig-content-three-steps-for-compelling-video-descriptions/"><u>2024 Approved Boost IG Content - Three Steps for Compelling Video Descriptions</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-best-route-generator-apps-you-should-try-on-xiaomi-13t-drfone-by-drfone-virtual-android/"><u>5 Best Route Generator Apps You Should Try On Xiaomi 13T | Dr.fone</u></a></li>
+<li><a href="https://win-popular.techidaily.com/comment-copier-une-cle-usb-a-plusieurs-systemes-de-fichiers-pour-les-utiliser-conjointement/"><u>Comment Copier Une Clé USB À Plusieurs Systèmes De Fichiers Pour Les Utiliser Conjointement ?</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-amplify-audience-response-with-unique-instagram-quiz-features/"><u>In 2024, Amplify Audience Response with Unique Instagram Quiz Features</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-elevating-your-artistry-in-lyric-videos-through-lyric-video-maker-mastery/"><u>In 2024, Elevating Your Artistry in Lyric Videos Through Lyric Video Maker Mastery</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/mastering-the-loop-a-comprehensive-guide-for-instagram-videographers/"><u>Mastering the Loop A Comprehensive Guide for Instagram Videographers</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/navigating-new-features-your-essential-ipados-version-companer/"><u>Navigating New Features: Your Essential iPadOS Version Companer</u></a></li>
+<li><a href="https://driver-install.techidaily.com/revamping-hp-omen-15s-latest-hardware-interface/"><u>Revamping HP Omen 15'S Latest Hardware Interface</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/twisting-tales-a-guide-to-angled-photography-that-captivates-audiences-on-digital-platforms/"><u>Twisting Tales A Guide to Angled Photography that Captivates Audiences on Digital Platforms</u></a></li>
 </ul></div>
 

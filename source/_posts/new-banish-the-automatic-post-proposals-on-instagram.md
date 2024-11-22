@@ -1,7 +1,7 @@
 ---
 title: "[New] Banish the Automatic Post Proposals on Instagram"
-date: 2024-11-18T16:03:28.052Z
-updated: 2024-11-21T10:33:53.378Z
+date: 2024-11-18T19:13:55.144Z
+updated: 2024-11-21T16:49:23.637Z
 tags:
   - ai video
   - ai instagram
@@ -40,7 +40,7 @@ The reason? These people aren't interested in seeing random people's posts on th
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: What is Instagram Suggested?
@@ -65,6 +65,10 @@ Here's what you need to do:
 
 ![ suggestions for you on Ins](https://images.wondershare.com/filmora/article-images/instagram-suggestions-for-you.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2:** Go to the home page, where you can see posts of the people you follow. Now, scroll down towards the end and stop when you see the "you're all caught up" message.
 
 **Step 3:** Right below that, you will see Suggested Posts, and the whole section will be filled with posts of people you don't know.
@@ -79,15 +83,7 @@ Here's what you need to do:
 
 ![choose your feedback option](https://images.wondershare.com/filmora/article-images/instagram-suggestion-posts-feedback.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Now, you can apply the same steps for the rest of the posts as well. But do keep in mind that suggested posts will still appear. And you will have to apply this setting for each one so that you are shown fewer posts of unknown people.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: How to Delete Suggested Users from Instagram?
 
@@ -105,12 +101,16 @@ If you don't want to see suggested users on your Instagram feed, there is a way 
 
 **Step 4:** To delete multiple suggested users, just click on the see all option, and the list of suggested users will appear; now click on the X for each user you want to delete. However, you need to delete everyone one by one individually.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### For web browsers
 
 The problem with web browsers is that you won't be able to remove the suggested users like you can through your Instagram app on your Android or iOS devices. So, the only way out for you will be to open your Instagram mobile app and then do it from there by following the steps that we have mentioned for Instagram app users.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: How to Avoid Showing up in Other Users' Suggestions for Your List
@@ -126,7 +126,7 @@ Just like Instagram show you suggested users and posts, your account gets recomm
 ![ uncheck the similar account suggestions box](https://images.wondershare.com/filmora/article-images/uncheck-similar-account-suggestions.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 5: How Does Instagram Suggestions Work?
@@ -162,17 +162,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-android-and-ios-leaders-in-asmr-content/"><u>[New] In 2024, Android & iOS Leaders in ASMR Content</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-unleash-youtube-potential-with-smart-tags-and-titles-for-2024/"><u>[Updated] Unleash YouTube Potential with Smart Tags and Titles for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/fortnite-successfully-started-now/"><u>Fortnite: Successfully Started Now!</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-pro-tips-to-enhance-your-use-of-instagrams-query-symbol/"><u>In 2024, Pro Tips to Enhance Your Use of Instagram's Query Symbol</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-the-ultimate-guide-to-effective-instagram-tagging-with-these-top-25-hashes/"><u>In 2024, The Ultimate Guide to Effective Instagram Tagging with These Top 25 Hashes</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-telegram-spy-tools-on-honor-magic-5-lite-for-parents-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Telegram Spy Tools On Honor Magic 5 Lite for Parents | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-turning-back-the-clock-mastering-instagram-video-reverse/"><u>In 2024, Turning Back the Clock Mastering Instagram Video Reverse</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-viewers-perspectives-on-instagram-stories-not-known/"><u>In 2024, Viewers' Perspectives on Instagram Stories Not Known</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/infusing-instagram-reels-with-tunes-and-narration/"><u>Infusing Instagram Reels with Tunes & Narration</u></a></li>
-<li><a href="https://discover-fantastic.techidaily.com/the-essentials-of-using-onekey-recovery-software-for-efficient-system-backups/"><u>The Essentials of Using OneKey Recovery Software for Efficient System Backups</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-incredible-power-of-xbox-series-x-a-comprehhavoir-review-for-ultimate-gamers/"><u>The Incredible Power of Xbox Series X: A Comprehhavoir Review for Ultimate Gamers</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/what-does-the-leadership-shake-up-at-openai-mean-for-chatgpt/"><u>What Does the Leadership Shake-Up at OpenAI Mean for ChatGPT?</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-copyright-compliance-and-photovideo-sharing/"><u>[New] 2024 Approved Copyright Compliance & Photo/Video Sharing</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-defining-key-indicators-for-high-impact-igtv-videos/"><u>[New] 2024 Approved Defining Key Indicators for High-Impact IGTV Videos</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-crafting-shareable-instagram-stories-that-spread-like-wildfire-for-2024/"><u>[New] Crafting Shareable Instagram Stories That Spread Like Wildfire for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-debating-on-the-significance-of-truthfulness-in-selfies-for-2024/"><u>[New] Debating on the Significance of Truthfulness in Selfies for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-elite-guide-selecting-high-quality-ringtone-downloads-for-2024/"><u>[New] Elite Guide Selecting High-Quality Ringtone Downloads for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-constructing-unique-instagram-story-banners/"><u>[New] In 2024, Constructing Unique Instagram Story Banners</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/everaging-seo-for-youtube-popularity-a-budget-guide/"><u>[New] Leveraging SEO for YouTube Popularity A Budget Guide</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-pinnacle-of-presence-a-strategic-approach-for-live-video-graphics/"><u>[New] Pinnacle of Presence A Strategic Approach for Live Video Graphics</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-desktop-and-mobile-solutions-how-to-rotate-videos-for-instagram-for-2024/"><u>[New][Desktop & Mobile Solutions] How to Rotate Videos for Instagram for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-choosing-the-right-recorder-top-4-full-screen-picks-for-pcmac/"><u>[Updated] 2024 Approved Choosing the Right Recorder Top 4 Full-Screen Picks for PC/Mac</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-decoding-instagram-selfies-the-validation-handbook/"><u>[Updated] 2024 Approved Decoding Instagram Selfies The Validation Handbook</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-essential-guide-to-mastering-asmr-experience/"><u>[Updated] Essential Guide to Mastering ASMR Experience</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-make-a-cool-intro-for-youtube-plusfree-templates-for-2024/"><u>[Updated] How to Make a Cool Intro for YouTube? [+Free Templates] for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/direct-digital-delivery-streamlined-steps-for-files/"><u>Direct Digital Delivery Streamlined Steps for Files</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/fehler-bei-der-smartphone-kameraverbindungsproblemlosung-tipps-and-tricks/"><u>Fehler Bei Der Smartphone-Kameraverbindungsproblemlösung: Tipps & Tricks</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-nubia-z50s-pro-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Nubia Z50S Pro to BlackBerry | Dr.fone</u></a></li>
 </ul></div>
 

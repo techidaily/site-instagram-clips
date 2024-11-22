@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Captioning for Social Video Content  From Snapchat to IGTV\""
-date: 2024-10-23T02:33:48.188Z
-updated: 2024-10-28T08:34:09.071Z
+date: 2024-11-19T18:50:51.333Z
+updated: 2024-11-21T17:27:10.189Z
 tags:
   - ai video
   - ai instagram
@@ -33,6 +33,10 @@ IGTV videos are vertically oriented, so you can’t just create an SRT file that
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 We are going to show you how to add subtitles to videos in Filmora because you don’t have to be an experienced filmmaker in order to use this video editing software. After installing Filmora on your Mac or PC computer, double-click on its desktop icon to launch it. The welcome window will appear on the screen asking you if you want to continue working on a **recent project** or if you want to create a **new project**.
 
 ![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/new-project-9.jpg)
@@ -40,6 +44,10 @@ We are going to show you how to add subtitles to videos in Filmora because you d
 Choose the **New Project** option and then once the project opens, head over to **File menu** and select **Project Settings** from the list. The **Project Settings window** will pop up on the screen and you should change the resolution to **1080x1920 (9:16)** and increase the **Frame Rate to 30fps**.
 
 ![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/filmora9-4k-project-settings.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Click on the **OK button** to confirm the changes, and then go to the **Media panel** to import the video you would like to edit. The fastest way to add media files to your project is to just drag them from the folder in which they are stored and drop them to the Media panel. You can also click on the **Import** drop-down menu and select the **Import Media Files** option from the list.
 
@@ -55,6 +63,10 @@ Once you have all the text ready, you should go to the **Titles panel** and clic
 
 ![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/add-titles-text.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can choose from a variety of preset text styles, and you can select the font, color or the size of the text. Click on the **Advanced button** if you would like to customize the text and create as many text layers as you need to cover all the dialogues or the narration in the video.
 
 ![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/advanced-text-editing-9-win.jpg)
@@ -64,10 +76,7 @@ Adding subtitles to a video can be a painstakingly long process if you’re work
 Once you’re done adding the subtitles you should click on the **Photo Camera icon** to take a snapshot of the video, you can use as a **cover photo for your IGTV video**. Export the video and proceed to upload it to IGTV from your web browser or from your phone.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Add Text to IGTV Videos with the Quik App For iOS and Android Devices
@@ -75,10 +84,7 @@ Once you’re done adding the subtitles you should click on the **Photo Camera i
 In case you like editing IGTV videos from your phone, you can try adding subtitles to your IGTV videos with the Quik app. After you’ve completed all other video editing tasks, you should tap on the **Text icon** and type in the text you’d like to add to the video. Hit the **OK button** after you’ve added the text and that’s it you’ve successfully created the subtitles for your IGTV video. How long the process of creating hardcoded subtitles is going to last depends on the duration of the video and the amount of narration or dialogue in the video.
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Tips for Adding Subtitles to IGTV Videos
@@ -90,13 +96,6 @@ While adding text to your IGTV you must **pay close attention that the text is c
 Even though adding subtitles to videos can require a lot of precision and attention to detail, it can help you produce content that attracts a lot of attention on IGTV. However, most videos shared on IGTV don’t surpass a two-minute mark, so even if there is a lot of dialogue, you can add hardcoded subtitles to a video in a relatively short period of time. What is your favorite method of adding subtitles to the videos you upload to your IGTV channel? Leave a comment below and share your experiences with us.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -113,24 +112,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-decoding-the-mystery-insider-knowledge-on-story-watchers/"><u>[New] Decoding the Mystery Insider Knowledge on Story Watchers</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-dive-into-instagram-live-without-hesitation/"><u>[New] Dive Into Instagram Live Without Hesitation</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-diving-into-instagrams-visual-story-segments/"><u>[New] Diving Into Instagram's Visual Story Segments</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-best-8-evidenced-tools-for-video-propagation/"><u>[Updated] 2024 Approved Best 8 Evidenced Tools for Video Propagation</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-critical-analysis-the-true-value-of-instas-selfie-confirmation/"><u>[Updated] Critical Analysis The True Value of Insta's Selfie Confirmation</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-a-step-by-step-guide-to-instagrams-premier-status-6-practical-steps-for-enthusiasts/"><u>[Updated] In 2024, A Step-by-Step Guide to Instagram's Premier Status 6 Practical Steps For Enthusiasts</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-immersive-chronicles-virtual-realitys-history/"><u>[Updated] In 2024, Immersive Chronicles Virtual Reality's History</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-cutting-edge-tips-refine-your-brands-instagram-visibility/"><u>2024 Approved Cutting-Edge Tips Refine Your Brand's Instagram Visibility</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-decode-instagram-visibility-whos-glancing-at-yours/"><u>2024 Approved Decode Instagram Visibility Who's Glancing at Yours?</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-discover-best-border-apps-to-elevate-instagram-visuals/"><u>2024 Approved Discover Best Border Apps to Elevate Instagram Visuals</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-elevating-instagram-posts-with-perfectly-sized-videos/"><u>2024 Approved Elevating Instagram Posts with Perfectly Sized Videos</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/6-proven-ways-to-unlock-motorola-edge-40-neo-phone-when-you-forget-the-password-by-drfone-android/"><u>6 Proven Ways to Unlock Motorola Edge 40 Neo Phone When You Forget the Password</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/boost-your-workflow-with-macbook-airs-splitting-screen-techniques/"><u>Boost Your Workflow with MacBook Air's Splitting Screen Techniques</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-change-country-on-app-store-for-iphone-11-pro-max-with-7-methods-by-drfone-ios/"><u>How To Change Country on App Store for iPhone 11 Pro Max With 7 Methods</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-cut-to-impact-video-editing-secrets-for-instagram-professionals/"><u>In 2024, Cut to Impact Video Editing Secrets for Instagram Professionals</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-top-gamers-guide-to-live-platforms-1-9/"><u>In 2024, Top Gamer's Guide to Live Platforms #1-#9</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/iphone-jokes-and-gag-collection/"><u>IPhone Jokes & Gag Collection</u></a></li>
-<li><a href="https://fake-location.techidaily.com/life360-circle-everything-you-need-to-know-on-vivo-x-flip-drfone-by-drfone-virtual-android/"><u>Life360 Circle Everything You Need to Know On Vivo X Flip | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/masterful-clock-screen-protectors-for-windows-users/"><u>Masterful Clock Screen Protectors for Windows Users</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-the-essential-guide-to-tracking-igtv-viewership-metrics/"><u>[New] 2024 Approved The Essential Guide to Tracking IGTV Viewership Metrics</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-the-straightforward-guide-for-instagram-chat-beginners/"><u>[New] 2024 Approved The Straightforward Guide for Instagram Chat Beginners</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-the-essentials-of-creating-and-curating-instagram-highlights/"><u>[New] In 2024, The Essentials of Creating and Curating Instagram Highlights</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-insta-experts-reveal-unknown-functions-and-features/"><u>[New] Insta-Experts Reveal Unknown Functions and Features</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-is-itop-a-screencast-contender-worth-endorsing-for-2024/"><u>[New] Is ITop a Screencast Contender Worth Endorsing for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-the-lowdown-on-instagrams-video-time-frame-for-2024/"><u>[New] The Lowdown on Instagram's Video Time Frame for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-free-video-embedding-for-dynamic-online-articles/"><u>[Updated] 2024 Approved Free Video Embedding for Dynamic Online Articles</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-the-insiders-tactics-for-creating-gripping-puzzle-posts-on-instagram/"><u>[Updated] 2024 Approved The Insider's Tactics for Creating Gripping Puzzle Posts on Instagram</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-the-pros-playbook-revolutionizing-your-instagram-feed/"><u>[Updated] 2024 Approved The Pro's Playbook Revolutionizing Your Instagram Feed</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-the-ultimate-list-of-premium-androidpc-video-editors/"><u>[Updated] 2024 Approved The Ultimate List of Premium Android/PC Video Editors</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-instagram-story-peeking-a-compre-written-in-english-but-can-be-understood-by-non-native-speakers-as-well-due-to-its-simplicity-and-universal/"><u>[Updated] In 2024, Instagram Story Peeking - A Compre Written in English but Can Be Understood by Non-Native Speakers as Well Due to Its Simplicity and Universal Appeal</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-the-art-of-inspiration-crafting-captivating-ig-posts-for-2024/"><u>[Updated] The Art of Inspiration Crafting Captivating IG Posts for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-optimizing-your-browsing-mastering-firefoxs-pip/"><u>2024 Approved Optimizing Your Browsing Mastering Firefox's PIP</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-socialsnatcher-hd-extractor/"><u>2024 Approved SocialSnatcher HD Extractor</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/explore-androids-best-podcast-apps-top-6-revealed/"><u>Explore Android's Best Podcast Apps - Top 6 Revealed</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-lock-apps-on-vivo-t2-pro-5g-to-protect-your-individual-information-by-drfone-android/"><u>How to Lock Apps on Vivo T2 Pro 5G to Protect Your Individual Information</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-go-beyond-basics-with-these-advanced-whatsapp-features/"><u>In 2024, Go Beyond Basics with These Advanced WhatsApp Features</u></a></li>
+<li><a href="https://location-social.techidaily.com/proven-ways-in-how-to-hide-location-on-life360-for-vivo-x-flip-drfone-by-drfone-virtual-android/"><u>Proven Ways in How To Hide Location on Life360 For Vivo X Flip | Dr.fone</u></a></li>
+<li><a href="https://media-tips.techidaily.com/the-overlooked-potential-how-google-failed-its-chromecast/"><u>The Overlooked Potential: How Google Failed Its Chromecast</u></a></li>
 </ul></div>
 
