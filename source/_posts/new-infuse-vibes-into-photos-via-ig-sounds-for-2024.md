@@ -1,7 +1,7 @@
 ---
 title: "[New] Infuse Vibes Into Photos via IG Sounds for 2024"
-date: 2024-11-18T22:34:31.722Z
-updated: 2024-11-21T19:13:22.396Z
+date: 2024-11-22T17:18:19.969Z
+updated: 2024-11-30T06:15:13.944Z
 tags:
   - ai video
   - ai instagram
@@ -36,10 +36,6 @@ You may have stunning pictures to post on stories, but your audience may not get
 
 ---
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How to Add Music to Instagram Stories with Music Stickers?
 
 Multiple formats have been released since the launch of Instagram music stories but adding a music sticker is one of the simplest. In this section, we will explore how to do that and how you can make your stories a lot more entertaining for the viewers by adding music with the sticker.
@@ -53,10 +49,6 @@ On the top right corner of your feed, click **on the + sign** to add images or v
 After you have added a filter or edited your story, **click on the sticker icon**. You will get a few sticker options, use the search bar to locate the music sticker and then click on it.
 
 ![Instagram Music  Sticker](https://images.wondershare.com/filmora/article-images/instagram-music-sticker.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 3: Add music**
 
@@ -78,6 +70,10 @@ You can tap on the music sticker to change the icon. You can also switch to the 
 
 You can also press the color wheel at the top corner of the screen to adjust the color of music stickers and the lyrics as well.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to Add Lyrics to Stories through Instagram Music?
 
 Some songs have options to play music with lyrics to the story. Here is how you can add lyrics.
@@ -97,12 +93,16 @@ Before you post a story or send it to your close friends, you can enlarge or min
 ![Add Lyrics to Instagram Music](https://images.wondershare.com/filmora/article-images/add-lyrics-to-instagram-music.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to Add Music to Instagram without Music Stickers?
 
 Instagram music works in most cases, but it may be useless if you do not find music of your choice. Sometimes, you want to add a specific song to go with the video's vibe or a photo. In that case, you can upload music using other methods as well. Here, we will share four ways to put music to Instagram stories without stickers.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Method 1: Add music** **to Instagram through Spotify Music**
 
@@ -119,10 +119,6 @@ Spotify has millions of songs to listen to and add to your library. You can post
 When you click on the three dots, you will be presented with a few options; click **on share**. After clicking on share, you will see a few apps options; click **on Instagram stories**.
 
 ![Share Spotify Music to Instagram Story](https://images.wondershare.com/filmora/article-images/share-spotify-music-to-instagram-stories.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 3: Post**
 
@@ -142,13 +138,13 @@ When you **select the ellipsis sign,** you will see a few options and an Instagr
 
 ![Share SoundCloud Music to Instagram Story](https://images.wondershare.com/filmora/article-images/share-soundcloud-music-instagram.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3: Post**
 
 The song will be shared to the stories, **make changes you want, and post**.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 3: Share Music to Instagram through Apple Music
 
@@ -169,10 +165,6 @@ When you click on three vertical dots, you will have a few options. **Click on s
 Note: You might have to click on "More" on some smartphones.
 
 ![Share Apple Music to Instagram Story](https://images.wondershare.com/filmora/article-images/share-apple-music-instagram.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 4: Post on stories**
 
@@ -196,11 +188,19 @@ Once selected, you can edit and customize that video or photo as per your choice
 
 ![Add Music to Filmora](https://images.wondershare.com/filmora/article-images/add-music-to-video-filmorago.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4: Share the** **Video** **with Music to Instagram**
 
 Finally, you can share your edited Instagram Story Video to your Instagram account right from the app.
 
 ![Share video with Music to Ins](https://images.wondershare.com/filmora/article-images/share-video-with-music-to-instagram.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Frequently Asked Questions About Instagram Music
 
@@ -233,18 +233,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/1716183625700-new-in-2024-how-to-add-instagram-filter-to-existing-photos-and-videos/"><u>[New] In 2024, How to Add Instagram Filter to Existing Photos and Videos?</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-three-ways-to-make-your-instagram-videos-pop-with-captions/"><u>2024 Approved Three Ways to Make Your Instagram Videos Pop with Captions</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-trends-that-triumph-making-your-instagram-content-viral/"><u>2024 Approved Trends That Triumph Making Your Instagram Content Viral</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-turn-the-tape-counterclockwise-instagrams-reverse-play-technique/"><u>2024 Approved Turn the Tape Counterclockwise Instagram's Reverse Play Technique</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-understanding-ip-rules-for-instasongs/"><u>2024 Approved Understanding IP Rules for InstaSongs</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-unseen-ways-to-leverage-instagrams-query-symbol/"><u>2024 Approved Unseen Ways to Leverage Instagram's Query Symbol</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/can-i-bypass-a-forgotten-phone-password-of-samsung-galaxy-a15-4g-by-drfone-android/"><u>Can I Bypass a Forgotten Phone Password Of Samsung Galaxy A15 4G?</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-top-edge-video-editing-programs-for-instagram-on-android/"><u>In 2024, Top Edge Video Editing Programs for Instagram on Android</u></a></li>
-<li><a href="https://video-capture.techidaily.com/ps4-to-video-essential-guide-for-using-obs-studio-for-2024/"><u>PS4 to Video Essential Guide for Using OBS Studio for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/speech-to-text-magic-for-ms-word-users-for-2024/"><u>Speech-to-Text Magic for MS Word Users for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/top-10-solutions-for-troubleshooting-wireless-adapteraccess-point-issues/"><u>Top 10 Solutions for Troubleshooting Wireless Adapter/Access Point Issues</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/unlocking-the-details-of-atandts-cellular-roaming-agreements/"><u>Unlocking the Details of AT&T's Cellular Roaming Agreements</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/updated-in-2024-the-symphony-of-visualization-presenting-audible-patterns-with-waveforms-and-enlivening-them-through-animation-using-blackmagic-design-fusio/"><u>Updated In 2024, The Symphony of Visualization Presenting Audible Patterns with Waveforms & Enlivening Them Through Animation Using Blackmagic Design Fusion Studio</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-navigating-the-invisible-aspects-of-social-media-success/"><u>[New] Navigating the Invisible Aspects of Social Media Success</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-the-ultimate-list-top-ps1-emulators-for-pc-gamers-for-2024/"><u>[New] The Ultimate List Top PS1 Emulators for PC Gamers for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-be-the-artist-drawing-animated-characters-on-phones/"><u>[Updated] Be the Artist Drawing Animated Characters on Phones</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-learn-to-keep-unwanted-suggestions-away-from-ig/"><u>[Updated] Learn to Keep Unwanted Suggestions Away From IG</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-master-earning-plan-top-5-highest-paying-ig-posts/"><u>[Updated] Master Earning Plan Top 5 Highest Paying IG Posts</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-maximize-your-gains-highest-earning-instagram-tactics-for-2024/"><u>[Updated] Maximize Your Gains Highest Earning Instagram Tactics for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-optimize-your-instagram-media-flow-desktopmobile/"><u>[Updated] Optimize Your Instagram Media Flow (Desktop/Mobile)</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-introductory-tutorial-utilizing-video-chat-features-on-insta/"><u>2024 Approved Introductory Tutorial Utilizing Video Chat Features on Insta</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-is-instagrams-self-validation-a-game-changer/"><u>2024 Approved Is Instagram’s Self-Validation a Game Changer?</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-perfect-your-profile-easy-guide-for-instagram-videos-from-desktop/"><u>2024 Approved Perfect Your Profile Easy Guide for Instagram Videos From Desktop</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-honor-90-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On Honor 90? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/exploring-shared-videos-and-images-via-messenger-for-2024/"><u>Exploring Shared Videos & Images via Messenger for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/fix-your-civ-vi-game-crashes-with-these-proven-troubleshooting-steps/"><u>Fix Your Civ VI Game Crashes with These Proven Troubleshooting Steps</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-navigating-the-lands-market-monitoring-your-igtv-impact/"><u>In 2024, Navigating the Lands Market Monitoring Your IGTV Impact</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-expert-approach-to-negative-picture-tones/"><u>In 2024, The Expert Approach to Negative Picture Tones</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/ownership-guidelines-for-instagram-music-for-2024/"><u>Ownership Guidelines for Instagram Music for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/perfect-tiktok-start-mac-based-production-strategies-for-2024/"><u>Perfect TikTok Start Mac-Based Production Strategies for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/prepping-for-the-latest-macos-big-sur-update-for-2024/"><u>Prepping for the Latest MacOS Big Sur Update for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unlocking-new-linguistic-skills-through-gpt-plus/"><u>Unlocking New Linguistic Skills Through GPT Plus</u></a></li>
 </ul></div>
 

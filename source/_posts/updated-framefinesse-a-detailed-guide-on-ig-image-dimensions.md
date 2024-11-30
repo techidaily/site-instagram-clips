@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] FrameFinesse  A Detailed Guide on IG Image Dimensions\""
-date: 2024-11-20T19:45:32.903Z
-updated: 2024-11-21T17:45:59.069Z
+date: 2024-11-29T04:52:31.262Z
+updated: 2024-11-30T02:43:19.749Z
 tags:
   - ai video
   - ai instagram
@@ -30,7 +30,7 @@ Taking photos with iPhones and Android Smartphones and posting them to Instagram
 Troubles begin when you want to upload photos and videos that weren't captured with a Smartphone to Instagram. In most cases, the photos and videos produced by DSLR cameras and other semi-professional and professional equipment are much larger than the sizes supported by Instagram. That is the reason why we created this guide that will help you post visual content that is perfectly adjusted to Instagram in 2021.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Types of Files Accepted by Instagram
@@ -50,7 +50,7 @@ Duration of Videos on Instagram
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Best Image Sizes for Instagram Posts
@@ -62,7 +62,7 @@ A couple of years ago, Instagram has finally allowed its users to upload images 
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
@@ -90,7 +90,7 @@ The profile pictures on Instagram are tiny, and the optimum size for them is 160
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -108,19 +108,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-visual-storytelling-excellence-10-tactics-for-captivating-instagram-ads/"><u>[New] 2024 Approved Visual Storytelling Excellence 10 Tactics for Captivating Instagram Ads</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-zoom-in-to-speed-boosting-video-playback-mobileonline/"><u>[New] 2024 Approved Zoom in to Speed Boosting Video Playback (Mobile/Online)</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/riving-engagement-and-growth-the-role-of-brand-in-youtube-success-for-2024/"><u>[New] Driving Engagement and Growth The Role of Brand in YouTube Success for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-enriching-mp4-soundtracks-with-srt-a-compreomedium-guide-for-2024/"><u>[New] Enriching MP4 Soundtracks with SRT – A Compreomedium Guide for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-unveiling-fake-followers-on-instagram-effortlessly-for-2024/"><u>[New] Unveiling Fake Followers on Instagram, Effortlessly for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-worlds-top-12-screensaver-apps-no-end-in-view-for-2024/"><u>[New] World's Top 12 Screensaver Apps (No End in View) for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-unleash-your-artistic-side-using-bokeh-to-dazzle-insta-followers/"><u>[Updated] 2024 Approved Unleash Your Artistic Side Using Bokeh to Dazzle Insta Followers</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-effortless-srt-to-txt-conversion-in-under-minutes/"><u>[Updated] In 2024, Effortless SRT to TXT Conversion in Under Minutes</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-unlock-your-potential-one-thousand-new-likesmonth-for-2024/"><u>[Updated] Unlock Your Potential One Thousand New Likes/Month for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/from-gist-to-gui-running-chatgpt-in-windows/"><u>From Gist to GUI: Running ChatGPT in Windows</u></a></li>
-<li><a href="https://fox-place.techidaily.com/guide-converting-your-xuite-video-files-into-mp4-or-avi-format-on-macos-and-windows/"><u>Guide: Converting Your Xuite Video Files Into MP4 or AVI Format on macOS & Windows</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-lava-yuva-3-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Lava Yuva 3 to Samsung Phone | Dr.fone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/reach-new-heights-in-video-content-with-dji-drones/"><u>Reach New Heights in Video Content with DJI Drones</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/streamlining-data-management-a-comprehensive-guide-to-using-chatgpt-with-google-sheets-and-docs/"><u>Streamlining Data Management: A Comprehensive Guide to Using ChatGPT with Google Sheets & Docs</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-best-windows-video-calls-the-top-8-list/"><u>[New] In 2024, Best Windows Video Calls The Top 8 List</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-becoming-a-master-of-instagram-auditory-aesthetics/"><u>[Updated] Becoming a Master of Instagram Auditory Aesthetics</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-the-great-livestream-debate-facebook-vs-youtube-live-and-twitter-periscope/"><u>[Updated] In 2024, The Great Livestream Debate FACEbook Vs. YOUTube Live & Twitter Periscope</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-social-media-showdown-continues-the-ongoing-debate-on-igtv-and-youtube/"><u>[Updated] Social Media Showdown Continues The Ongoing Debate on IGTV and YouTube</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-unforgettable-journeys-our-favorites-in-adventure-gameplay/"><u>[Updated] Unforgettable Journeys Our Favorites in Adventure Gameplay</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-all-you-need-to-know-about-instagram-video-limits/"><u>2024 Approved All You Need to Know About Instagram Video Limits</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/beyond-the-surface-10-under-the-radar-facts-about-reels-for-2024/"><u>Beyond the Surface 10 Under-the-Radar Facts About Reels for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/boost-engagement-with-smart-video-cropping-and-exporting-for-2024/"><u>Boost Engagement with Smart Video Cropping & Exporting for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/boost-your-storytelling-on-instagram-with-loops-for-2024/"><u>Boost Your Storytelling on Instagram With Loops for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/boosting-instagram-video-speed-onlinemobile-for-2024/"><u>Boosting Instagram Video Speed Online/Mobile for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/efficient-methods-to-block-facebook-adverts-for-2024/"><u>Efficient Methods to Block Facebook Adverts for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-aural-ascendancy-mastering-sound-integration-on-reels/"><u>In 2024, Aural Ascendancy Mastering Sound Integration on Reels</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-car-locator-apps-for-vivo-v29-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Car Locator Apps for Vivo V29 Pro | Dr.fone</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/lightning-cure-fast-remedy-for-amd-and-tarkov-bug/"><u>Lightning Cure: Fast Remedy for AMD & Tarkov Bug</u></a></li>
+<li><a href="https://windows11.techidaily.com/solutions-for-fixing-windows-updates-error-xcode-0x80246007/"><u>Solutions for Fixing Windows Updates Error – XCode 0X80246007</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ling-the-best-cinematic-love-top-8-premium-wedding-videos-online/"><u>Unveiling the Best Cinematic Love Top 8 Premium Wedding Videos Online</u></a></li>
 </ul></div>
 

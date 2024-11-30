@@ -1,7 +1,7 @@
 ---
 title: "[New] Get Close or Farther with Ease on Instagram Stories"
-date: 2024-11-18T18:06:01.835Z
-updated: 2024-11-21T22:03:50.783Z
+date: 2024-11-27T22:59:30.485Z
+updated: 2024-11-29T19:01:11.424Z
 tags:
   - ai video
   - ai instagram
@@ -43,7 +43,7 @@ You can zoom in/out while clicking a picture for Instagram Stories, by pinching 
 ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-normal-mode.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Image resource: later.com
@@ -54,6 +54,10 @@ Image resource: later.com
 
 ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-rewind-mode.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Image resource: techjunkie.com
 
 We know a video in 'Rewind' mode is pretty cute and funny, as the chain of events occurs in the reverse order. So, to zoom in/out while shooting one such video in 'Rewind' mode, you need to press the record button and then swipe up/down your finger, just like in the 'Normal' mode. Here also, if you remove your finger, the recording will stop. Master how to zoom in Instagram Stories, while recording in 'Rewind' mode.
@@ -61,10 +65,6 @@ We know a video in 'Rewind' mode is pretty cute and funny, as the chain of event
 #### 3\. Boomerang
 
 ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-superzoom-mode.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Image resource: metro.com
 
@@ -81,7 +81,7 @@ There are two-options while you want to zoom in/out using the 'Hands-Free' mode.
 Be it a 'Boomerang', 'Rewind', 'Hands-Free', or 'Normal' mode video, learning how to zoom in Instagram Stories is sure to make your stories cool and funky.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Edit Instagram Videos with Wondershare Filmora
@@ -91,7 +91,7 @@ Editing Instagram videos is not difficult at all as long as you installed a powe
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Final Verdict
@@ -112,7 +112,7 @@ You May also like
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -130,20 +130,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-information.techidaily.com/new-crafting-captivating-images-using-leading-lines-iphone/"><u>[New] Crafting Captivating Images Using Leading Lines (iPhone)</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-expertly-enhance-videos-with-top-10plus-mobile-and-desktop-editors/"><u>[New] In 2024, Expertly Enhance Videos with Top 10+ Mobile & Desktop Editors</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-from-concept-to-shares-how-to-create-hit-videos-for-fbinstagram/"><u>[New] In 2024, From Concept to Shares How to Create Hit Videos for FB/Instagram</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-from-flashy-feeds-to-fm-sounds-the-instagram-to-mp3-methodology/"><u>[New] In 2024, From Flashy Feeds to FM Sounds The Instagram-to-Mp3 Methodology</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-from-front-to-back-a-step-by-step-guide-for-instagram-video-angles/"><u>[New] In 2024, From Front to Back A Step-by-Step Guide for Instagram Video Angles</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-finding-those-who-fled-my-insta-friends/"><u>[Updated] 2024 Approved Finding Those Who Fled My Insta Friends</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-going-back-in-space-and-time-rewind-your-instagram-video/"><u>[Updated] 2024 Approved Going Back in Space and Time Rewind Your Instagram Video</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-from-tiktok-to-instagram-stardom-replicating-popular-reel-techniques/"><u>[Updated] In 2024, From TikTok to Instagram Stardom Replicating Popular Reel Techniques</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/brother-mfc-j480dw-driver-installation-for-windows-operating-systems-a-step-by-step-guide/"><u>Brother MFC J480DW Driver Installation for Windows Operating Systems: A Step-by-Step Guide</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-5-ways-to-track-oppo-reno-8t-5g-without-app-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Ways to Track Oppo Reno 8T 5G without App | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-unlock-icloud-lock-on-your-iphone-6s-plus-and-ipad-by-drfone-ios/"><u>In 2024, How to Unlock iCloud lock on your iPhone 6s Plus and iPad?</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/in-2024-ideal-top-7-video-software-for-apple-devices/"><u>In 2024, Ideal Top 7 Video Software for Apple Devices</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/in-2024-zero-clutter-max-impact-professional-tips-for-striking-virtual-presence/"><u>In 2024, Zero Clutter, Max Impact Professional Tips for Striking Virtual Presence</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/step-by-step-placing-titles-on-video-clips-with-windows-photos/"><u>Step-by-Step Placing Titles on Video Clips with Windows Photos</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/top-off-your-printing-experience-latest-aio-updates-in-windows-7/"><u>Top Off Your Printing Experience: Latest AIO Updates in WIndows 7</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-11-tips-for-facebook-video-marketing-to-drive-more-traffic-for-2024/"><u>[New] 11 Tips for Facebook Video Marketing to Drive More Traffic for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-achieve-perfection-on-instagram-with-right-video-dimensions-for-2024/"><u>[New] Achieve Perfection on Instagram with Right Video Dimensions for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-avoid-unnecessary-interactions-block-strategies-for-2024/"><u>[New] Avoid Unnecessary Interactions Block Strategies for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-behind-the-scenes-unpacking-instagram-stories-for-2024/"><u>[New] Behind the Scenes Unpacking Instagram Stories for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-amplify-your-audience-engagement-with-strategic-instagram-videos/"><u>[New] In 2024, Amplify Your Audience Engagement with Strategic Instagram Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/elevate-viewing-experience-activating-av1-codec-on-youtube-for-2024/"><u>Elevate Viewing Experience Activating AV1 Codec on YouTube for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/from-live-streaming-to-lively-gifs-harnessing-vimeo-content-for-2024/"><u>From Live Streaming to Lively Gifs Harnessing Vimeo Content for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-honor-100-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Honor 100 to Laptop Without USB | Dr.fone</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-video-privacy-made-easy-top-blur-apps-for-face-and-background/"><u>New In 2024, Video Privacy Made Easy Top Blur Apps for Face and Background</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/top-asmr-gear-expert-picked-microphone-selections-for-2024/"><u>Top ASMR Gear Expert-Picked Microphone Selections for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unraveling-the-quintupled-impact-ai-in-criminal-computing/"><u>Unraveling the Quintupled Impact: AI in Criminal Computing</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/wave-off-your-insta-footprint-complete-guide-to-permanent-delete-for-2024/"><u>Wave Off Your Insta Footprint Complete Guide to Permanent Delete for 2024</u></a></li>
 </ul></div>
 

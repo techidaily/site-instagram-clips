@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] PictureProfessional  Expert Guide to Adjusting IG Content Sizes\""
-date: 2024-11-16T19:37:21.652Z
-updated: 2024-11-21T19:42:25.010Z
+date: 2024-11-28T23:14:48.794Z
+updated: 2024-11-30T00:24:52.494Z
 tags:
   - ai video
   - ai instagram
@@ -30,7 +30,7 @@ Taking photos with iPhones and Android Smartphones and posting them to Instagram
 Troubles begin when you want to upload photos and videos that weren't captured with a Smartphone to Instagram. In most cases, the photos and videos produced by DSLR cameras and other semi-professional and professional equipment are much larger than the sizes supported by Instagram. That is the reason why we created this guide that will help you post visual content that is perfectly adjusted to Instagram in 2021.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Types of Files Accepted by Instagram
@@ -50,7 +50,7 @@ Duration of Videos on Instagram
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Best Image Sizes for Instagram Posts
@@ -62,7 +62,7 @@ A couple of years ago, Instagram has finally allowed its users to upload images 
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
@@ -90,7 +90,7 @@ The profile pictures on Instagram are tiny, and the optimum size for them is 160
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -108,24 +108,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-10-best-instagram-video-editor-for-android-pc-online/"><u>[New] 10 Best Instagram Video Editor for Android, PC, Online</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-audio-alchemy-transforming-instagram-videos-with-sound/"><u>[New] Audio Alchemy Transforming Instagram Videos with Sound</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-beyond-basics-tips-for-effective-qanda-sticker-usage-on-instagram/"><u>[New] Beyond Basics Tips for Effective Q&A Sticker Usage on Instagram</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-boost-your-posts-top-3-instagram-highlight-methods/"><u>[New] Boost Your Posts Top 3 Instagram Highlight Methods</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-top-10-emerging-youtube-channels-to-spark-motivation/"><u>[New] In 2024, Top 10 Emerging YouTube Channels to Spark Motivation</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-master-the-art-of-iphone-image-rotation-effortless-methods-for-2024/"><u>[New] Master the Art of iPhone Image Rotation - Effortless Methods for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-the-process-of-android-video-u-turns/"><u>[Updated] 2024 Approved The Process of Android Video U-Turns</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-drone-racing-all-you-need-to-know-and-5-best-fpv-racing-drones/"><u>[Updated] Drone Racing All You Need to Know and 5 Best FPV Racing Drones</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-unparalleled-selection-best-of-the-10-vimeo-download-sites-for-2024/"><u>[Updated] Unparalleled Selection Best of the 10 Vimeo Download Sites for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-a-beginners-guide-to-starting-a-professional-account-on-ig/"><u>2024 Approved A Beginner's Guide to Starting a Professional Account on IG</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-crafting-high-quality-igtv-footage-on-smartphonesdslrs/"><u>2024 Approved Crafting High-Quality IGTV Footage on Smartphones/DSLRs</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-diy-instagram-videos-simple-steps-to-success/"><u>2024 Approved DIY Instagram Videos Simple Steps to Success</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/beyond-whats-visible-insights-into-instagram-story-consumers-for-2024/"><u>Beyond What's Visible Insights Into Instagram Story Consumers for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/craft-engaging-visual-narratives-with-soundtrack-integration-for-2024/"><u>Craft Engaging Visual Narratives with Soundtrack Integration for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-a-beginners-path-to-reddit-stardom-6-essential-strategies/"><u>In 2024, A Beginner’s Path to Reddit Stardom 6 Essential Strategies</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/lessons-learned-from-microsoft-interruptions-a-call-to-reduce-state-reliance-on-leading-tech-giants/"><u>Lessons Learned From Microsoft Interruptions - A Call to Reduce State Reliance on Leading Tech Giants</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/studiofx-2400w-large-softbox-lighting-kit-review/"><u>StudioFX 2400W Large Softbox Lighting Kit Review</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Apple iPhone 14 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-unleash-your-creativity-after-effects-vs-premiere-pro-for-video-editors-and-motion-designers/"><u>Updated Unleash Your Creativity After Effects vs Premiere Pro for Video Editors and Motion Designers</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-ultimate-guide-to-filming-live-scenes/"><u>[New] 2024 Approved Ultimate Guide to Filming Live Scenes</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-superior-lineup-elite-webcam-mounts-for-2024/"><u>[New] Superior Lineup Elite Webcam Mounts for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-complete-exploration-of-morphvox-technology-for-voice-transformation/"><u>[Updated] In 2024, Complete Exploration of MorphVOX Technology for Voice Transformation</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-nurturing-partnerships-with-top-brands-the-famebit-blueprint/"><u>[Updated] Nurturing Partnerships with Top Brands The FameBit Blueprint</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/10-ways-to-optimize-instagram-highlights-for-your-business-for-2024/"><u>10 Ways to Optimize Instagram Highlights for Your Business for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/4-seamless-steps-to-posting-and-uploading-gifs-on-instagram-for-2024/"><u>4 Seamless Steps to Posting & Uploading GIFs on Instagram for 2024</u></a></li>
+<li><a href="https://win-popular.techidaily.com/budget-friendly-surface-pro-buying-guide-will-you-have-second-thoughts/"><u>Budget-Friendly Surface Pro Buying Guide: Will You Have Second Thoughts?</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/how-to-stop-avatar-the-last-airbender-pandora-from-haltin-and-giving-you-a-headache-pc/"><u>How to Stop Avatar: The Last Airbender - Pandora From Haltin’ and Giving You a Headache (PC)</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-nokia-c32-device-by-drfone-android/"><u>In 2024, Mastering Android Device Manager The Ultimate Guide to Unlocking Your Nokia C32 Device</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/mastering-windows-fix-loaded-lol-screens/"><u>Mastering Windows: Fix Loaded LOL Screens</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/prime-8-instagram-managers-for-mobile-devices/"><u>Prime 8 Instagram Managers for Mobile Devices</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/sculpting-stories-how-to-enrich-your-instagram-videos-through-editing/"><u>Sculpting Stories How to Enrich Your Instagram Videos Through Editing</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/skyrocketing-status-15-clever-methods-for-rapid-social-media-stardom-on-instagram/"><u>Skyrocketing Status 15 Clever Methods for Rapid Social Media Stardom on Instagram</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/snap-inspiration-selecting-stunning-ig-visuals/"><u>Snap Inspiration! Selecting Stunning IG Visuals</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/start-broadcasting-now-instagram-live-guide/"><u>Start Broadcasting Now Instagram Live Guide</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/streamline-your-video-upload-process-instagram-ready-sizing/"><u>Streamline Your Video Upload Process Instagram-Ready Sizing</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/the-complete-igtv-user-manual/"><u>The Complete IGTV User Manual</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/top-10-lightroom-alternatives-free-and-paid-filmora-for-2024/"><u>Top 10 Lightroom Alternatives [Free & Paid] | Filmora for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/virtual-help-desk-expert-assistance-for-winx-dvd-ripping-and-video-conversion-applications/"><u>Virtual Help Desk: Expert Assistance for WinX DVD Ripping & Video Conversion Applications</u></a></li>
 </ul></div>
 

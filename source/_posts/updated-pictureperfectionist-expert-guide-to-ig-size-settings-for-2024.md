@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] PicturePerfectionist  Expert Guide to IG Size Settings for 2024\""
-date: 2024-11-15T19:12:27.056Z
-updated: 2024-11-21T20:21:28.450Z
+date: 2024-11-24T05:06:00.819Z
+updated: 2024-11-30T00:55:08.725Z
 tags:
   - ai video
   - ai instagram
@@ -30,7 +30,7 @@ Taking photos with iPhones and Android Smartphones and posting them to Instagram
 Troubles begin when you want to upload photos and videos that weren't captured with a Smartphone to Instagram. In most cases, the photos and videos produced by DSLR cameras and other semi-professional and professional equipment are much larger than the sizes supported by Instagram. That is the reason why we created this guide that will help you post visual content that is perfectly adjusted to Instagram in 2021.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Types of Files Accepted by Instagram
@@ -50,7 +50,7 @@ Duration of Videos on Instagram
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Best Image Sizes for Instagram Posts
@@ -62,7 +62,7 @@ A couple of years ago, Instagram has finally allowed its users to upload images 
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
@@ -90,7 +90,7 @@ The profile pictures on Instagram are tiny, and the optimum size for them is 160
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -108,15 +108,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-instagram-video-promotion-mastery-craft-your-winning-market-plan/"><u>[New] Instagram Video Promotion Mastery Craft Your Winning Market Plan</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-instagram-video-reduction-tips-for-mac-users/"><u>[New] Instagram Video Reduction Tips for Mac Users</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-instagram-visual-mastery-crop-and-edit-videos-like-pros/"><u>[New] Instagram Visual Mastery Crop and Edit Videos Like Pros</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-tips-to-make-your-instagram-video-goes-viral/"><u>[Updated] Tips to Make Your Instagram Video Goes Viral</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-youtube-like-audio-making-via-twitter-for-2024/"><u>[Updated] YouTube-Like Audio Making via Twitter for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/how-to-change-your-voice-on-instagram-for-2024/"><u>How to Change Your Voice on Instagram for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/how-to-configure-view-options-in-macos-finder-for-better-file-management/"><u>How to Configure View Options in macOS Finder for Better File Management</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-screensavvy-comprehensive-free-recording-software-for-everyone/"><u>In 2024, ScreenSavvy Comprehensive, Free Recording Software for Everyone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/top-8-no-cost-optical-drive-programs-compatible-with-windows-10-8-7-and-macos/"><u>Top 8 No-Cost Optical Drive Programs Compatible with Windows 10, 8, 7 & macOS</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/windows-10-audio-tips-essential-recording-methods-for-2024/"><u>Windows 10 Audio Tips Essential Recording Methods for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-nailing-the-perfect-gameplay-with-fbx/"><u>[New] In 2024, Nailing the Perfect Gameplay with FBX</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-maximize-creativity-with-these-10-androidpc-video-tools/"><u>[New] Maximize Creativity with These 10 Android/PC Video Tools</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-reel-relationships-establishing-a-strong-social-media-presence-with-memes/"><u>[New] Reel Relationships Establishing a Strong Social Media Presence with Memes</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-thors-mighty-saga-ragnarok-dawns/"><u>[New] Thor's Mighty Saga Ragnarok Dawns</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-comprehensive-but-concise-guide-to-keyers-techniques/"><u>[Updated] In 2024, Comprehensive but Concise Guide to Keyers' Techniques</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-reviving-memories-with-instagram-reposts/"><u>[Updated] Reviving Memories with Instagram Reposts</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-perfect-your-instagram-vocal-presence-quickly/"><u>2024 Approved Perfect Your Instagram Vocal Presence Quickly</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/error-eradicated-your-ultimate-guide-to-fixing-twitch-mishap-error-4000/"><u>Error Eradicated: Your Ultimate Guide to Fixing Twitch Mishap - Error #4000</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-quick-tips-turning-off-igtv/"><u>In 2024, Quick Tips Turning Off IGTV</u></a></li>
+<li><a href="https://extra-information.techidaily.com/integrating-secondary-shots-a-filmmakers-blueprint/"><u>Integrating Secondary Shots A Filmmaker's Blueprint</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/planting-prowess-in-valheim-uncovering-premium-saplings-for-2024/"><u>Planting Prowess in Valheim Uncovering Premium Saplings for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-oppo-a79-5g-and-browser-drfone-by-drfone-virtual-android/"><u>Prevent Cross-Site Tracking on Oppo A79 5G and Browser | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/quick-guide-off-instagrams-igtv-for-2024/"><u>Quick Guide Off Instagram's IGTV for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/seamless-and-secure-downloading-instagram-videos-from-your-computermacos-for-2024/"><u>Seamless & Secure Downloading Instagram Videos From Your Computer/MacOS for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/smirk-sculptor-image-maker-for-2024/"><u>Smirk Sculptor Image Maker for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/two-ways-to-track-my-boyfriends-infinix-hot-40-pro-without-him-knowing-drfone-by-drfone-virtual-android/"><u>Two Ways to Track My Boyfriends Infinix Hot 40 Pro without Him Knowing | Dr.fone</u></a></li>
 </ul></div>
 
