@@ -1,7 +1,7 @@
 ---
 title: "Fixing Persistent Freezing and Crashing in 'Indivisible': A Comprehensive Guide"
-date: 2024-11-22T17:23:19.987Z
-updated: 2024-11-30T01:26:37.214Z
+date: 2024-12-05T17:35:58.643Z
+updated: 2024-12-08T08:10:20.447Z
 tags:
   - win11
   - win10
@@ -100,17 +100,13 @@ thumbnail: https://thmb.techidaily.com/5d7dcfd1995cfb2b2cd35f38aacc2ff6a59f7f19a
 ![Driver Easy Scan Now](https://images.drivereasy.com/wp-content/uploads/2021/03/Driver-Easy-Scan-Now.jpg)
 3. Click**Update** next to your graphics card to automatically download the correct version of its driver, then you can install it manually. Or click **Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system.  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Update graphics drivers with Driver Easy](https://images.drivereasy.com/wp-content/uploads/2020/09/de-update-all-rtx-3080.jpg)  
  (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click **Update All.**  You get **full support** and a **30-day money back** guarantee).
 
 **The Pro version of Driver Easy** comes with _full technical support_ . If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Fix 4: Verify your game files
@@ -124,7 +120,7 @@ thumbnail: https://thmb.techidaily.com/5d7dcfd1995cfb2b2cd35f38aacc2ff6a59f7f19a
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-129.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  2) Select**Verify files** .
@@ -138,16 +134,12 @@ thumbnail: https://thmb.techidaily.com/5d7dcfd1995cfb2b2cd35f38aacc2ff6a59f7f19a
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-122.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  2) Click**the LOCAL FILES tab** , then click **VERIFY INTEGRITY OF GAME CACHE…** . After that, click **CLOSE** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-120.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### Epic Game Launcher
 
@@ -157,15 +149,15 @@ thumbnail: https://thmb.techidaily.com/5d7dcfd1995cfb2b2cd35f38aacc2ff6a59f7f19a
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-119.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  3) Click**Verify** to start verifying the game files.  
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-123.png)
 
  Launch the game after verifying the game file to see if this fix works. If not, try the next fix, below.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 5: Run Windows Compatibility Troubleshooter
 
@@ -181,9 +173,17 @@ thumbnail: https://thmb.techidaily.com/5d7dcfd1995cfb2b2cd35f38aacc2ff6a59f7f19a
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-124.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  2) Go to**the Compatibility tab** and click**Change high DPI settings** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-126.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  3)**Check the box** next to**Override high DPI scaling behavior** and select**Scaling performed by: Application** . Then click**OK** to save the changes.
 
@@ -194,16 +194,12 @@ thumbnail: https://thmb.techidaily.com/5d7dcfd1995cfb2b2cd35f38aacc2ff6a59f7f19a
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-128.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Make sure you have disabled Steam Overlay and Ubisoft Overlay.
 
  Run The Division 2 to see if the this fix works. If not, try the next fix to modify your page file.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 6: Modify the paging file size
 
@@ -233,10 +229,6 @@ Make sure you have disabled Steam Overlay and Ubisoft Overlay.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-153.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  **Do not disable the paging file or modify it to 0 MB or a static value** even if your PC has sufficient RAM, since if you doing that, it usually causes crashes in the game.
 
  Launch The Division 2 to see if this issue gets fixed or not. If not, try the next fix, below.
@@ -248,6 +240,10 @@ Make sure you have disabled Steam Overlay and Ubisoft Overlay.
  1) Click**the cog icon** to open the game settings. Then go to**Graphics** –**Shadow Quality** and set it to**Low** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-154-1024x744.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  2) Set**Spot Shadows** to**Low** .
 
@@ -273,17 +269,21 @@ Make sure you have disabled Steam Overlay and Ubisoft Overlay.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-160-1024x762.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  8) Set**Ambient Occlusion** to**Medium** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-161-1024x777.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  9) Set the value of**Object Detail** to**50** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-162-1024x759.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  10) Set**Terrain Quality** to**Medium** . Then save all the changes.
 
@@ -312,17 +312,17 @@ Make sure you have disabled Steam Overlay and Ubisoft Overlay.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-capturing-conversations-on-messenger-a-comprehensive-how-to/"><u>[New] Capturing Conversations on Messenger A Comprehensive How-To</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-from-separation-to-symbiosis-logic-pro-x-audio-blending/"><u>[New] From Separation To Symbiosis Logic Pro X Audio Blending</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-the-dynamic-duo-youtube-and-instagram-story-collaboration/"><u>[Updated] The Dynamic Duo YouTube & Instagram Story Collaboration</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-the-echo-of-you-customizing-your-speak-on-reels-and-stories/"><u>[Updated] The Echo of You Customizing Your Speak on Reels & Stories</u></a></li>
-<li><a href="https://article-files.techidaily.com/apex-fusion-hubs-all-in-one-4k-multi-touch-desktops-for-2024/"><u>Apex Fusion Hubs All-in-One 4K Multi-Touch Desktops for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/are-rideshares-like-uber-more-affordable-than-traditional-taxis/"><u>Are Rideshares Like Uber More Affordable than Traditional Taxis?</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-the-future-of-followers-posting-in-the-wake-of-changes/"><u>In 2024, The Future of Followers Posting in the Wake of Changes</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-the-ultimate-guide-to-voice-editing-for-instagrams-media/"><u>In 2024, The Ultimate Guide to Voice Editing for Instagram's Media</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/infinix-note-30-5g-stuck-on-screen-finding-solutions-for-stuck-on-boot-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Infinix Note 30 5G Stuck on Screen – Finding Solutions For Stuck on Boot | Dr.fone</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/navigating-the-anthropic-claude-3-ecosystem/"><u>Navigating the Anthropic Claude 3 Ecosystem</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/the-art-of-enticing-instagram-followers-a-puzzle-post-primer-for-2024/"><u>The Art of Enticing Instagram Followers A Puzzle Post Primer for 2024</u></a></li>
-<li><a href="https://media-tips.techidaily.com/top-rated-wireless-wifi-sound-receivers-for-flawless-music-streaming-on-pc-and-mac/"><u>Top-Rated Wireless WiFi Sound Receivers for Flawless Music Streaming on PC and Mac</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-following-paths-those-whove-left-instagram/"><u>[New] Following Paths Those Who've Left Instagram</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-elevate-your-visual-communication-adding-instagram-video-descriptions/"><u>[New] In 2024, Elevate Your Visual Communication Adding Instagram Video Descriptions</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-exploring-self-through-instagram-a-diverse-set-of-100-captions/"><u>[Updated] Exploring Self Through #Instagram - A Diverse Set of 100 Captions</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-going-against-the-grain-instagram-video-reversal/"><u>2024 Approved Going Against the Grain Instagram Video Reversal</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-social-media-savvy-quick-fire-tips-for-aspiring-online-marketers/"><u>2024 Approved Social Media Savvy Quick-Fire Tips for Aspiring Online Marketers</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/complete-guide-installing-hps-windows-compatible-universal-print-drivers/"><u>Complete Guide: Installing HP's Windows-Compatible Universal Print Drivers</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-change-gps-location-on-tecno-spark-20-easily-and-safely-drfone-by-drfone-virtual-android/"><u>How to Change GPS Location on Tecno Spark 20 Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-how-superficial-shares-spell-social-deterioration/"><u>In 2024, How Superficial Shares Spell Social Deterioration</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-a-motorola-moto-g-5g-2023-easily-by-drfone-android/"><u>In 2024, How To Unlock a Motorola Moto G 5G (2023) Easily?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-oppo-reno-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Oppo Reno 11 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-xiaomi-14-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Xiaomi 14 | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unveiling-gadgets-and-innovations-with-toms-electronic-advice/"><u>Unveiling Gadgets & Innovations with Tom’s Electronic Advice</u></a></li>
 </ul></div>
 

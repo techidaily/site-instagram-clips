@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] FrameFinesse  A Detailed Guide on IG Image Dimensions\""
-date: 2024-11-29T04:52:31.262Z
-updated: 2024-11-30T02:43:19.749Z
+date: 2024-12-02T16:40:32.162Z
+updated: 2024-12-08T13:00:25.010Z
 tags:
   - ai video
   - ai instagram
@@ -30,7 +30,7 @@ Taking photos with iPhones and Android Smartphones and posting them to Instagram
 Troubles begin when you want to upload photos and videos that weren't captured with a Smartphone to Instagram. In most cases, the photos and videos produced by DSLR cameras and other semi-professional and professional equipment are much larger than the sizes supported by Instagram. That is the reason why we created this guide that will help you post visual content that is perfectly adjusted to Instagram in 2021.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Types of Files Accepted by Instagram
@@ -50,7 +50,7 @@ Duration of Videos on Instagram
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Best Image Sizes for Instagram Posts
@@ -62,7 +62,7 @@ A couple of years ago, Instagram has finally allowed its users to upload images 
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
@@ -90,7 +90,7 @@ The profile pictures on Instagram are tiny, and the optimum size for them is 160
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -108,21 +108,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-best-windows-video-calls-the-top-8-list/"><u>[New] In 2024, Best Windows Video Calls The Top 8 List</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-becoming-a-master-of-instagram-auditory-aesthetics/"><u>[Updated] Becoming a Master of Instagram Auditory Aesthetics</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-the-great-livestream-debate-facebook-vs-youtube-live-and-twitter-periscope/"><u>[Updated] In 2024, The Great Livestream Debate FACEbook Vs. YOUTube Live & Twitter Periscope</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-social-media-showdown-continues-the-ongoing-debate-on-igtv-and-youtube/"><u>[Updated] Social Media Showdown Continues The Ongoing Debate on IGTV and YouTube</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-unforgettable-journeys-our-favorites-in-adventure-gameplay/"><u>[Updated] Unforgettable Journeys Our Favorites in Adventure Gameplay</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-all-you-need-to-know-about-instagram-video-limits/"><u>2024 Approved All You Need to Know About Instagram Video Limits</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/beyond-the-surface-10-under-the-radar-facts-about-reels-for-2024/"><u>Beyond the Surface 10 Under-the-Radar Facts About Reels for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/boost-engagement-with-smart-video-cropping-and-exporting-for-2024/"><u>Boost Engagement with Smart Video Cropping & Exporting for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/boost-your-storytelling-on-instagram-with-loops-for-2024/"><u>Boost Your Storytelling on Instagram With Loops for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/boosting-instagram-video-speed-onlinemobile-for-2024/"><u>Boosting Instagram Video Speed Online/Mobile for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/efficient-methods-to-block-facebook-adverts-for-2024/"><u>Efficient Methods to Block Facebook Adverts for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-aural-ascendancy-mastering-sound-integration-on-reels/"><u>In 2024, Aural Ascendancy Mastering Sound Integration on Reels</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-car-locator-apps-for-vivo-v29-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Car Locator Apps for Vivo V29 Pro | Dr.fone</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/lightning-cure-fast-remedy-for-amd-and-tarkov-bug/"><u>Lightning Cure: Fast Remedy for AMD & Tarkov Bug</u></a></li>
-<li><a href="https://windows11.techidaily.com/solutions-for-fixing-windows-updates-error-xcode-0x80246007/"><u>Solutions for Fixing Windows Updates Error – XCode 0X80246007</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ling-the-best-cinematic-love-top-8-premium-wedding-videos-online/"><u>Unveiling the Best Cinematic Love Top 8 Premium Wedding Videos Online</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-ownership-guidelines-for-instagram-music/"><u>[New] 2024 Approved Ownership Guidelines for Instagram Music</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-privacy-first-the-leading-storywatchers/"><u>[New] 2024 Approved Privacy-First The Leading Storywatchers</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-rise-through-the-instagram-rankings-fast/"><u>[New] 2024 Approved Rise Through the Instagram Rankings Fast</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-social-media-momentum-linking-igtv-and-fb/"><u>[New] 2024 Approved Social Media Momentum Linking IGTV and FB</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-navigating-instagram-blocking-basics/"><u>[New] In 2024, Navigating Instagram Blocking Basics</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-scaling-up-on-igtv-through-powerful-hash-tagging/"><u>[New] In 2024, Scaling Up on IGTV Through Powerful Hash Tagging</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-no-more-ghosting-on-social-reinstate-disappearing-facebook-videos-with-12-tips/"><u>[New] No More Ghosting on Social Reinstate Disappearing Facebook Videos With 12 Tips</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-digital-chronicling-of-live-audio-content-on-the-net/"><u>[Updated] In 2024, Digital Chronicling of Live Audio Content on the Net</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-engage-viewers-beyond-individual-watches/"><u>[Updated] In 2024, Engage Viewers Beyond Individual Watches</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-popularitys-palette-ig-story-filter-guide/"><u>[Updated] In 2024, Popularity's Palette IG Story Filter Guide</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-how-to-record-television-shows-on-pc-free-software-insights/"><u>In 2024, How to Record Television Shows on PC Free Software Insights</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-a-lost-oppo-reno-10-proplus-5g-for-free-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track a Lost Oppo Reno 10 Pro+ 5G for Free? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-a-lost-realme-narzo-60-pro-5g-for-free-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track a Lost Realme Narzo 60 Pro 5G for Free? | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-pro-gear-for-documenting-excursions/"><u>In 2024, Pro Gear for Documenting Excursions</u></a></li>
+<li><a href="https://win-answers.techidaily.com/oculus-link-screen-issues-6-fast-fixes-to-bring-back-your-vr-experience/"><u>Oculus Link Screen Issues? 6 Fast Fixes to Bring Back Your VR Experience</u></a></li>
 </ul></div>
 
