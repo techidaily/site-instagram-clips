@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, How to Crop and Export Videos to Instagram"
-date: 2024-10-23T06:15:18.833Z
-updated: 2024-10-27T21:00:03.885Z
+date: 2024-12-12T16:26:40.676Z
+updated: 2024-12-14T16:24:21.959Z
 tags:
   - ai video
   - ai instagram
@@ -47,11 +47,19 @@ In order to start cropping your videos, you first must install the Filmora video
 
 ![](https://images.wondershare.com/filmora/article-images/filmora-import.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 **Step 2: Drag and Drop the video file onto the Timeline**
 
 ![](https://images.wondershare.com/filmora/article-images/video-editor-main-interface-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Now that the video clip you want to edit is in the editor's media library, drag it and drop it to the timeline.
 
@@ -69,11 +77,19 @@ Click on the Settings button and then set the Quality of the video to Best and s
 
 ![](https://images.wondershare.com/filmora/article-images/16-9-aspect-ratio-export.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **2\. Portrait (4:3)**
 
 In order to create a video that has a portrait aspect ratio, you need to crop it. You can do this by clicking on the **Crop and Pan tool**, located in the timeline tools. Use an [online aspect ratio calculator](https://calculateaspectratio.com/) to find the exact resolution that matches the portrait aspect ratio. Once you made the calculations return to Filmora and click on the Manually option in the Crop and Pan screen. Insert the numbers manually to resize the video.
 
 ![crop and zoom filmora](https://images.wondershare.com/filmora/article-images/crop-and-zoom-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Adjust the crop tool's position and click OK. The export process for landscape and portrait videos is nearly identical and the only thing you need to change is the resolution. Click on the Resolution drop-down menu and select the custom option and then enter the height and weight values you inserted in the cropping tool. Your portrait video is ready to be exported.
 
@@ -84,6 +100,10 @@ The process of creating a square video is the same as the process of creating a 
 The steps for exporting square videos are the same as the steps you need to take to export a portrait video. Make sure to change the resolution of the video to 1080X1080 before hitting the Export button and enjoy sharing your videos on Instagram.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -100,27 +120,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-essential-hash-monitors-for-facebook-twitter-instagram/"><u>[New] 2024 Approved Essential Hash Monitors for Facebook, Twitter, Instagram</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-elevate-your-instagram-imagery-with-striking-borders-for-2024/"><u>[New] Elevate Your Instagram Imagery with Striking Borders for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-elevate-your-reels-add-sound-for-impactful-storytelling-for-2024/"><u>[New] Elevate Your Reels Add Sound for Impactful Storytelling for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-enhance-your-story-game-applying-fun-sticker-themes/"><u>[New] In 2024, Enhance Your Story Game Applying Fun Sticker Themes</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-cutting-edge-vr-handwear-a-comprehensive-guide/"><u>[Updated] 2024 Approved Cutting-Edge VR Handwear A Comprehensive Guide</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-elevate-your-reels-add-sound-for-impactful-storytelling/"><u>[Updated] In 2024, Elevate Your Reels Add Sound for Impactful Storytelling</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-essential-guide-to-producing-quality-igtv-on-smartphonesdslrs/"><u>[Updated] In 2024, Essential Guide to Producing Quality IGTV on Smartphones/DSLRs</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-in-depth-analysis-of-googles-voice-to-text-capabilities/"><u>2024 Approved In-Depth Analysis of Google's Voice-to-Text Capabilities</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-windows-pc-bring-out-the-best-in-your-videos/"><u>2024 Approved Windows PC Bring Out the Best in Your Videos</u></a></li>
-<li><a href="https://driver-error.techidaily.com/cease-and-desist-stop-auto-uninstalling-nvidia-drivers/"><u>Cease and Desist: Stop Auto-Uninstalling Nvidia Drivers</u></a></li>
-<li><a href="https://fox-sure.techidaily.com/discover-the-top-3-free-substitutes-for-itunes-on-ios-devices/"><u>Discover the Top 3 Free Substitutes for iTunes on iOS Devices</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/easy-ways-to-navigate-and-utilize-google-gemini-effectively/"><u>Easy Ways to Navigate and Utilize Google Gemini Effectively</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-contacts-from-moto-g34-5g-by-fonelab-android-recover-contacts/"><u>How to Rescue Lost Contacts from Moto G34 5G?</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-what-does-jailbreaking-apple-iphone-se-i-do-get-answers-here-by-drfone-ios/"><u>In 2024, What Does Jailbreaking Apple iPhone SE i Do? Get Answers here</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/new-in-2024-streamlining-the-capture-of-podcast-archives-for-computer-devices/"><u>New In 2024, Streamlining the Capture of Podcast Archives for Computer Devices</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-free-top-6-best-apps-to-remove-objects-from-photo-on-iphone/"><u>[New] FREE Top 6 Best Apps to Remove Objects From Photo on iPhone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-elevate-your-social-media-presence-insta-videography/"><u>[Updated] Elevate Your Social Media Presence Insta-Videography</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-elite-architects-best-of-breed-instragram-hlv-artisans/"><u>[Updated] Elite Architects Best-of-Breed Instragram HLV Artisans</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-enhancing-social-reach-joining-instagram-and-facebook/"><u>[Updated] Enhancing Social Reach Joining Instagram & Facebook</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-essential-guide-to-enhancing-video-content-on-instagram/"><u>2024 Approved Essential Guide to Enhancing Video Content on Instagram</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-frame-it-right-selecting-the-perfect-borders-for-social-media-photos/"><u>2024 Approved Frame It Right Selecting the Perfect Borders for Social Media Photos</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-methods-to-mirror-nokia-xr21-to-roku-drfone-by-drfone-android/"><u>3 Methods to Mirror Nokia XR21 to Roku | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/become-a-windows-pro-learn-to-trim-videos-like-an-editor-for-2024/"><u>Become a Windows Pro Learn to Trim Videos Like an Editor for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/dell-unveils-innovative-concept-luna-disassembling-like-lego-bricks-a-glimpse-into-tomorrows-computing/"><u>Dell Unveils Innovative Concept Luna: Disassembling Like LEGO Bricks - A Glimpse Into Tomorrow’s Computing</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-faster-viewing-experience-for-instagram-feed/"><u>In 2024, Faster Viewing Experience for Instagram Feed</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-unlock-software-for-xiaomi-redmi-note-12t-pro-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>In 2024, The Best Android Unlock Software For Xiaomi Redmi Note 12T Pro Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/maximizing-impact-with-instagrams-new-algorithm-insights-for-2024/"><u>Maximizing Impact with Instagram's New Algorithm Insights for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/online-video-conversion-converti-mp4-in-formato-asf-free-di-movavi/"><u>Online Video Conversion: Converti MP4 in Formato ASF Free Di Movavi</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

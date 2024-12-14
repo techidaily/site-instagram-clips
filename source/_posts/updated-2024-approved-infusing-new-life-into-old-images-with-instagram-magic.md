@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Infusing New Life Into Old Images with Instagram Magic\""
-date: 2024-12-05T23:32:01.432Z
-updated: 2024-12-07T22:54:19.873Z
+date: 2024-12-11T16:10:51.338Z
+updated: 2024-12-14T16:14:09.619Z
 tags:
   - ai video
   - ai instagram
@@ -65,7 +65,7 @@ After you have selected the image from the gallery, you can apply a filter to it
 ![  Instgram smile icon for filters](https://images.wondershare.com/filmora/article-images/instagram-smile-icon.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 4: Select filters**
@@ -74,10 +74,6 @@ After clicking on the smiley icon, you will be seeing a lot of saved and existin
 
 ![ select  Instgram filters](https://images.wondershare.com/filmora/article-images/select-instagram-filters.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4: Click done and post**
 
 After selecting the filter of your choice and **applying i**t, **click done on the top right corner** and post the story.
@@ -85,16 +81,12 @@ After selecting the filter of your choice and **applying i**t, **click done on t
 ![filmora logo](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-horizontal.svg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## A cross-platform for making videos anywhere for all creators
 
 ![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Why your video editing isn't good enough? How about some creative inspo?
 
@@ -112,6 +104,14 @@ After selecting the filter of your choice and **applying i**t, **click done on t
  \* Secure Download
 
 ![filmora12](https://images.wondershare.com/filmora/12-filmora/img/filmora12-01.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to Add Instagram Filters to Existing Videos?
 
@@ -136,7 +136,7 @@ On the bottom, you will find a search icon which is also called the filter carou
 After you apply the filter, you can **click on done** on the top right to post. Also, there is an option to **download the video** if you like. You can save videos with filters in your gallery to use on other social media platforms.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to Add Filters o Instagram Photos When Uploading?
@@ -156,10 +156,6 @@ After you **click next**, you will see a lot of filter options. You can **swipe 
 **Step 3: Edit the image and post**
 
 When customizing the filter intensity, you can s**elect next** and **click on edit** to further enhance the image. You can increase brightness, sharpen the image, etc. When the image is edited as per your choice, you can tag people or simply post.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 4: How to Add Filter to Instagram Reel Photo and Video?
 
@@ -193,6 +189,10 @@ Yes, it is easy to add an Instagram filter to existing photos from your gallery.
 
 Just swipe left to the stories window and swipe up to select an image from the camera roll. Then click on the smiling emoji on the tab and apply the filter of your choice. You can then share it on Insta or save it to your camera roll.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Often people do not know how to add Instagram filters to existing photos and videos. It is easy to learn, especially through the steps we have mentioned above. Filters are the ultimate hack to add cohesiveness and attraction to your feed or stories.
@@ -200,7 +200,7 @@ Often people do not know how to add Instagram filters to existing photos and vid
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -218,20 +218,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-premier-10-royale-arena-games/"><u>[New] 2024 Approved Premier 10 Royale Arena Games</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-maccam-essentials-tips-and-tricks-recording/"><u>[Updated] 2024 Approved MacCam Essentials Tips and Tricks Recording</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-synthesizing-a-look-at-magix-creative-suite/"><u>[Updated] Synthesizing a Look at MAGIX Creative Suite</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-elite-highlight-extravaganza-iosandroid-instagram-coverage-tools/"><u>2024 Approved Elite Highlight Extravaganza IOS/Android Instagram Coverage Tools</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-enhancing-instagram-visibility-with-powerful-promotions/"><u>2024 Approved Enhancing Instagram Visibility with Powerful Promotions</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-essential-techniques-for-recording-instagram-stories/"><u>2024 Approved Essential Techniques for Recording Instagram Stories</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-expert-guide-to-selective-focus-imaging/"><u>2024 Approved Expert Guide to Selective Focus Imaging</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/explore-the-latest-in-tech-with-toms-gadget-reviews/"><u>Explore the Latest in Tech with Tom’s Gadget Reviews</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-advanced-presentation-techniques-youtube-in-slides/"><u>In 2024, Advanced Presentation Techniques YouTube in Slides</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-enhance-content-top-10-mobile-and-desktop-friendly-editors/"><u>In 2024, Enhance Content Top 10 Mobile & Desktop-Friendly Editors</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-enhancing-content-reach-igtv-and-facebook-synergy/"><u>In 2024, Enhancing Content Reach IGTV & Facebook Synergy</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-essential-guide-to-enhancing-video-content-on-instagram/"><u>In 2024, Essential Guide to Enhancing Video Content on Instagram</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-leveraging-azures-voice-recognition-for-advanced-solutions/"><u>In 2024, Leveraging Azure's Voice Recognition for Advanced Solutions</u></a></li>
-<li><a href="https://apple-account.techidaily.com/troubleshooting-error-connecting-to-the-apple-id-server-on-apple-iphone-se-2020-by-drfone-ios/"><u>Troubleshooting Error Connecting to the Apple ID Server On Apple iPhone SE (2020)</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/why-chatgpt-might-fail-to-accurately-summarize-your-documents-key-considerations/"><u>Why ChatGPT Might Fail to Accurately Summarize Your Documents – Key Considerations</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-elevate-your-social-score-best-tools-for-post-and-engagement/"><u>[New] 2024 Approved Elevate Your Social Score Best Tools for Post and Engagement</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-elevating-instagram-posts-with-perfectly-sized-videos/"><u>[New] 2024 Approved Elevating Instagram Posts with Perfectly Sized Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-address-tweets-stuck-while-watching-online/"><u>[New] Address Tweets Stuck While Watching Online</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-elevate-your-instagram-game-with-pro-edit-techniques-for-2024/"><u>[New] Elevate Your Instagram Game with Pro Edit Techniques for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-engaging-stories-through-customized-instagram-quests/"><u>[New] In 2024, Engaging Stories Through Customized Instagram Quests</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-bypass-android-lock-screen-using-emergency-call-on-realme-gt-3-by-drfone-android/"><u>How to Bypass Android Lock Screen Using Emergency Call On Realme GT 3?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-corrupt-mp4-and-avi-files-of-magic-5-with-video-repair-utility-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair corrupt MP4 and AVI files of Magic 5 with Video Repair Utility on Windows?</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-3-effective-methods-to-fake-gps-location-on-android-for-your-xiaomi-redmi-12-5g-drfone-by-drfone-virtual/"><u>In 2024, 3 Effective Methods to Fake GPS location on Android For your Xiaomi Redmi 12 5G | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-gps-location-on-xiaomi-redmi-note-13-pro-5g-easily-and-safely-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change GPS Location on Xiaomi Redmi Note 13 Pro 5G Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/the-ultimate-guide-to-itel-s23plus-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>The Ultimate Guide to Itel S23+ Pattern Lock Screen Everything You Need to Know</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-ultimate-onestream-playbook-for-live-streamers/"><u>The Ultimate OneStream Playbook for Live Streamers</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/unveiled-top-5-visual-treats-on-social-medias-giant-for-2024/"><u>Unveiled Top 5 Visual Treats on Social Media's Giant for 2024</u></a></li>
 </ul></div>
 

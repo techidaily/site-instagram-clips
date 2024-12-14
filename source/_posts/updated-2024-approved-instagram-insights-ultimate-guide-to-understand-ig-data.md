@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Instagram Insights  Ultimate Guide to Understand IG Data\""
-date: 2024-12-03T21:17:36.429Z
-updated: 2024-12-08T12:46:43.304Z
+date: 2024-12-08T16:02:56.741Z
+updated: 2024-12-14T16:13:39.528Z
 tags:
   - ai video
   - ai instagram
@@ -54,7 +54,11 @@ Impressions, profile visits, and reach can be visible with insights and can be t
 ![access insights from business](https://images.wondershare.com/filmora/article-images/access-instagram-insights-business.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Access insights from post
@@ -62,10 +66,6 @@ Impressions, profile visits, and reach can be visible with insights and can be t
 On your business profile, click a post to view insights. A right tilted arrow on the bottom-right denotes a promoted post.
 
 On a promoted post click ‘Original’ to view its Instagram Insights, and tap ‘Promotion’ for viewing insights.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Access insights from story
 
@@ -77,10 +77,6 @@ Automatic chronological sorting of Stories helps to understand the pattern of co
 ## Part 2: View Posts Data
 
 You can check several posts together or dive deeper into the metrics for post specific information. Here we have explained both of them.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### View metrics for Individual posts
 
@@ -102,10 +98,6 @@ The ‘Discovery’ section’s first statistics denotes percentage of non-follo
 
 ![view ig data from posts](https://images.wondershare.com/filmora/article-images/view-ig-data-from-posts.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Filtering post data based on metric, timeframe, and content type
 
 Three most recent posts are visible on the Instagram Insight’s ‘Posts’ section. This section by default displays the cumulative number of impressions for all the posts from the previous year.
@@ -113,6 +105,10 @@ Three most recent posts are visible on the Instagram Insight’s ‘Posts’ sec
 You can segregate the Instagram Insight data by clicking the blue links from the top. Hit any filter among Content type/measurement (saved, impressions, likes, comments, engagement, and reach)/time. These filters help you pick relevant information to determine campaigns, goals, and top performing content.
 
 You can measure goals for a certain period through impressions and reach, engagement, ratio of engagement to reach, best and worst performing content types. Campaign goals are measured by timeframe.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: What does stories data mean
 
@@ -134,10 +130,6 @@ Only ‘Stories’ after subscribing to a business account will be offered insig
 
 ## Part 4: Notes you should know
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### The difference between impressions and reach
 
 Impressions are a number of times a post has been viewed, whereas reach explains the unique views on your post. One account’s multiple views are taken as a single reach but multiple impressions.
@@ -146,7 +138,15 @@ Impressions are a number of times a post has been viewed, whereas reach explains
 
 A post can be a single video/photo or an album on Instagram. The Instagram Insights takes the entire album post as a single entity and impressions and reach is determined based on that.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 5: Alternatives to Instagram insights
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1. [Keyhole](https://keyhole.co/instagram-analytics)
 
@@ -155,7 +155,7 @@ Apart from Instagram Insights, you can look for a tool like Keyhole. Its Instagr
 ![keyhole](https://images.wondershare.com/filmora/article-images/keyhole.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2. [Squarelovin](https://squarelovin.com/business/home/instagram-insights/)
@@ -164,15 +164,15 @@ Squarelovin is an in-depth Instagram analytics tool that shows the metrics for r
 
 ![squarelovin](https://images.wondershare.com/filmora/article-images/squarelovin.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 When you have a clear idea about Instagram Insights, achieving the best out of your marketing campaign is a smooth sail. Put your heart into it and see your brand soar higher with Instagram Insights. If you want to edit Instagram video, Filmora is a powerful editor with Instagram editing tools. Try it out!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -191,18 +191,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-how-to-distinguish-real-from-sham-on-your-instagram-circle-quickly/"><u>[New] How to Distinguish Real From Sham on Your Instagram Circle Quickly</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-how-to-promote-instagram-post-successfully/"><u>[New] How to Promote Instagram Post Successfully</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-innovative-metaverse-humor-generating-unique-memes/"><u>[New] Innovative Metaverse Humor Generating Unique Memes</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-insights-on-maintaining-engagement-after-algorithm-shifts/"><u>[New] Insights on Maintaining Engagement After Algorithm Shifts</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-standout-storytelling-in-multifaceted-cinemascape/"><u>[New] Standout Storytelling in Multifaceted Cinemascape</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-how-to-upload-longer-videos-to-instagram-on-mac/"><u>[Updated] How to Upload Longer Videos to Instagram on Mac</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-recover-lost-photos-on-snapchat/"><u>[Updated] In 2024, Recover Lost Photos on Snapchat</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-mastering-smooth-playback-on-instagram-videos-for-2024/"><u>[Updated] Mastering Smooth Playback on Instagram Videos for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-stepwise-approach-implementing-luts-in-adobes-premiere-suite/"><u>[Updated] Stepwise Approach Implementing LUTs in Adobe's Premiere Suite</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-how-to-upload-a-video-to-instagram-from-a-desktop/"><u>2024 Approved How to Upload a Video to Instagram From a Desktop</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/how-to-promote-instagram-post-successfully-for-2024/"><u>How to Promote Instagram Post Successfully for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-metaverse-chuckles-building-your-own-humorous-artifacts/"><u>In 2024, Metaverse Chuckles Building Your Own Humorous Artifacts</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/mastering-the-reboot-process-solutions-to-common-windows-11-startup-problems/"><u>Mastering the Reboot Process: Solutions to Common Windows 11 Startup Problems</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-instagram-optimization-top-techniques-for-businesses-and-brands/"><u>[New] 2024 Approved Instagram Optimization Top Techniques for Businesses and Brands</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-imageryinfluence-mastering-size-settings-on-instagram-for-2024/"><u>[New] ImageryInfluence Mastering Size Settings on Instagram for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-insta-flip-fundamentals-rotating-videos-for-maximum-engagement-and-reach/"><u>[New] In 2024, Insta-Flip Fundamentals Rotating Videos for Maximum Engagement and Reach</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-innovative-igtv-thumbnail-upgrades-guide-for-2024/"><u>[New] Innovative IGTV Thumbnail Upgrades Guide for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-insta-video-backup-two-methods-for-seamless-access-for-2024/"><u>[New] Insta Video Backup Two Methods for Seamless Access for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-a-step-by-step-guide-to-crafting-immersive-fb-video-experienenas/"><u>[Updated] 2024 Approved A Step-by-Step Guide to Crafting Immersive FB Video Experienenas</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-igtv-mastery-best-video-editors-for-social-media/"><u>[Updated] In 2024, IGTV Mastery Best Video Editors for Social Media</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-incorporating-captions-into-instagrams-video-platform-for-2024/"><u>[Updated] Incorporating Captions Into Instagram's Video Platform for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-infusing-your-reels-with-soundscape-elements-for-2024/"><u>[Updated] Infusing Your Reels with Soundscape Elements for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/essential-ae-text-templates-maximum-efficiency/"><u>Essential AE Text Templates (Maximum Efficiency)</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/how-to-clear-black-boards-in-your-youtube-videos/"><u>How to Clear Black Boards in Your YouTube Videos?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-honor-90-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Honor 90 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-oppo-find-x6-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Oppo Find X6? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/pro-youtuber-essentials-studio-choice-over-beta-alternative-for-2024/"><u>Pro YouTuber Essentials Studio Choice Over Beta Alternative for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/resolving-the-windows-safe-mode-limitation-on-office-suite/"><u>Resolving the Windows-Safe Mode Limitation on Office Suite</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vielfaltig-sein-grusse-in-deutscher-sprache-abgesehen-von-hallo/"><u>Vielfältig Sein: Grüße in Deutscher Sprache Abgesehen Von 'Hallo'</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] PicturePerfectionist  Expert Guide to IG Size Settings for 2024\""
-date: 2024-12-01T21:20:30.360Z
-updated: 2024-12-07T21:34:25.759Z
+date: 2024-12-07T16:02:39.332Z
+updated: 2024-12-14T16:06:31.289Z
 tags:
   - ai video
   - ai instagram
@@ -30,7 +30,7 @@ Taking photos with iPhones and Android Smartphones and posting them to Instagram
 Troubles begin when you want to upload photos and videos that weren't captured with a Smartphone to Instagram. In most cases, the photos and videos produced by DSLR cameras and other semi-professional and professional equipment are much larger than the sizes supported by Instagram. That is the reason why we created this guide that will help you post visual content that is perfectly adjusted to Instagram in 2021.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Types of Files Accepted by Instagram
@@ -50,7 +50,7 @@ Duration of Videos on Instagram
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Best Image Sizes for Instagram Posts
@@ -62,7 +62,7 @@ A couple of years ago, Instagram has finally allowed its users to upload images 
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
@@ -90,7 +90,7 @@ The profile pictures on Instagram are tiny, and the optimum size for them is 160
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -108,18 +108,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-audiovisual-fusion-incorporating-songs-in-ig-media/"><u>[New] Audiovisual Fusion Incorporating Songs in IG Media</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-breaking-the-ice-with-instagrams-interactive-audience-queries/"><u>[New] Breaking the Ice with Instagram's Interactive Audience Queries</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-rapid-retrieval-for-missed-snaps/"><u>[Updated] 2024 Approved Rapid Retrieval for Missed Snaps</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-innovate-with-imagery-installing-the-windows-11-movie-maker-app/"><u>[Updated] Innovate with Imagery Installing the Windows 11 Movie Maker App</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-boost-your-social-media-presence-through-instagram-video-edits/"><u>2024 Approved Boost Your Social Media Presence Through Instagram Video Edits</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-captioning-for-success-instagram-videos-edition/"><u>2024 Approved Captioning for Success Instagram Videos Edition</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-cut-to-the-chase-boosting-your-instagram-with-content/"><u>2024 Approved Cut to the Chase - Boosting Your Instagram with Content</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-hidefake-snapchat-location-on-your-tecno-pop-7-pro-drfone-by-drfone-virtual-android/"><u>How to Hide/Fake Snapchat Location on Your Tecno Pop 7 Pro | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-6-plus-to-other-iphone-12-pro-max-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 6 Plus To Other iPhone 12 Pro Max devices? | Dr.fone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-10-power-players-youtubes-ladies-in-gaming/"><u>In 2024, 10 Power Players YouTube's Ladies in Gaming</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-beginners-guide-to-premium-gopro-accessories/"><u>In 2024, Beginner’s Guide to Premium GoPro Accessories</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-top-5-from-google-pixel-7a-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 5 from Google Pixel 7a to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
-<li><a href="https://fox-access.techidaily.com/select-your-footage-editor-hero-or-cube-edition/"><u>Select Your Footage Editor Hero or Cube Edition?</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-capture-the-moment-in-squares-mastering-imovie-for-instagram-video-for-2024/"><u>[New] Capture the Moment in Squares Mastering iMovie for Instagram Video for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-key-fb-video-plays-for-optimal-engagement/"><u>[New] Key FB Video Plays for Optimal Engagement</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-comparing-igs-new-features-reels-vs-stories/"><u>[Updated] 2024 Approved Comparing IG's New Features Reels Vs Stories</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-crafting-memes-perfecting-social-media-videos-on-fb-and-insta/"><u>[Updated] 2024 Approved Crafting Memes Perfecting Social Media Videos on FB & Insta</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-designing-news-outro-sequences/"><u>[Updated] 2024 Approved Designing News Outro Sequences</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-boost-your-instagram-videos-watchability-and-speed-for-2024/"><u>[Updated] Boost Your Instagram Videos' Watchability and Speed for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-boost-your-media-library-top-20-freeware-tools-turning-instagram-videos-into-mp4/"><u>[Updated] In 2024, Boost Your Media Library Top 20 Freeware Tools Turning Instagram Videos Into MP4</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-the-financial-lifeline-of-podcasting/"><u>[Updated] In 2024, The Financial Lifeline of Podcasting</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-streamlined-steps-for-documenting-google-voice-talks/"><u>[Updated] Streamlined Steps for Documenting Google Voice Talks</u></a></li>
+<li><a href="https://howto.techidaily.com/calls-on-honor-100-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Honor 100 Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-facebook-dating-for-your-honor-play-7t-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location On Facebook Dating for your Honor Play 7T | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-the-9-best-smartphone-camera-accessories-for-vloggers/"><u>In 2024, The 9 Best Smartphone Camera Accessories for Vloggers</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-step-by-step-voice-recording-techniques-for-iphone-users/"><u>Updated Step-by-Step Voice Recording Techniques for iPhone Users</u></a></li>
 </ul></div>
 

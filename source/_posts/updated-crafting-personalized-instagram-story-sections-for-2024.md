@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Crafting Personalized Instagram Story Sections for 2024"
-date: 2024-11-16T20:02:05.443Z
-updated: 2024-11-21T18:48:41.085Z
+date: 2024-12-13T16:17:57.473Z
+updated: 2024-12-14T16:22:30.923Z
 tags:
   - ai video
   - ai instagram
@@ -38,7 +38,7 @@ Generally, the Instagram highlight covers dimensions are the same as Insta stori
 ![Filmora Instagram highlight ](https://images.wondershare.com/filmora/article-images/filmora-instagram-highlight.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 When designing custom highlight covers on Canva, you will notice that the icon will be in the middle of a story-size rectangle. The overall aspect ratio to make highlight covers in Canva is 9:16\. However, ensure that that the illustration is centered when you add it as your Instagram highlight icon.
@@ -60,7 +60,7 @@ Once you are on the website, create your free account if you do not have one, an
 ![Canva create a highlight cover design](https://images.wondershare.com/filmora/article-images/canva-create-a-design-ins-story-highlight-cover.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 On the Canva homepage, click on **Create a design** tab at the right-hand upper corner. Now from the drop-down menu, you can type Instagram Story Highlight Cover in the search bar to locate it quickly, or you can scroll down to find it. The dimensions are automatically set as 1080 X 1920 pixels for Instagram story highlight in Canva, and if you don’t want to use this default size, you can click the Custom Size menu to identify the size, let’s say, 2000 \* 2000 pixels.
@@ -94,7 +94,7 @@ You can make as many highlights covers as you want. Just click on the +Add page 
 Once you are done making the Instagram highlight covers and are satisfied with the work, click on the Download button. Choose the file type like PNG or JPG, save your download settings, and hit the Download tab. Your highlight covers download as a zip file. Unzip them and transfer them to your phone via your preferred method.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to Upload a Highlight Cover on Instagram
@@ -103,10 +103,6 @@ Before you upload the highlight covers on Instagram, ensure you turn on the Arch
 
 ![ upload  highlight cover to instagram ](https://images.wondershare.com/filmora/article-images/upload-highlight-cover-to-instagram.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 As we said before, you should transfer the created highlight cover photos from desktop to you phone, and then click on your Instagram profile and add a new highlight, follow the instructions on the screen to edit cover and then add the highlight cover photo you just created, give it a name, and click on Done. Your new Insta Story Highlight appears at the bottom of your Instagram bio.
 
 ## Part 4: How to Change Existing Highlight Cover on Instagram?
@@ -114,6 +110,10 @@ As we said before, you should transfer the created highlight cover photos from d
 If you have existing highlight covers, you can easily edit and change them. Go to your Instagram profile, go to the Highlights section and press and hold the highlight cover that you want to change, tap **More** and then tap on **Edit Highlight**, and then on **Edit Cover**. Find the photo you want to use as a new cover for the highlight, and click on it and tap on Done.
 
 Besides changing highlight cover, here you can edit the highlight and add old stories or delete the images you do not want.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Bonus: Tips for making better Instagram Highlight cover
 
@@ -140,7 +140,7 @@ Creating Instagram Highlight Covers is a quick and easy way to maintain your bra
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -158,24 +158,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-revival-artisan-selection/"><u>[New] In 2024, Revival Artisan Selection</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-troubleshooting-excessive-obs-bitrate/"><u>[New] In 2024, Troubleshooting Excessive OBS Bitrate</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-seamless-social-media-execution-with-the-top-8-iphone-and-android-apps/"><u>[New] Seamless Social Media Execution with The Top 8 iPhone & Android Apps</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-silence-unwanted-post-suggestions-on-insta/"><u>[New] Silence Unwanted Post Suggestions on Insta</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-a-close-look-at-triller-its-distinctive-features-and-positioning/"><u>[Updated] A Close Look at Triller Its Distinctive Features and Positioning</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-securely-shutting-down-your-instagram-presence-forever/"><u>[Updated] Securely Shutting Down Your Instagram Presence Forever</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-tune-your-status-on-whatsapp-for-2024/"><u>[Updated] Tune Your Status on WhatsApp for 2024</u></a></li>
-<li><a href="https://techidaily.com/best-fixes-for-xiaomi-civi-3-disney-100th-anniversary-edition-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Best Fixes For Xiaomi Civi 3 Disney 100th Anniversary Edition Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/delving-into-auto-gpt-versus-chatgpt-whats-the-difference-you-need-to-know/"><u>Delving Into Auto-GPT Versus ChatGPT - What's the Difference You Need to Know</u></a></li>
-<li><a href="https://video-capture.techidaily.com/effortless-steps-for-converting-iso-files-into-wmv-format/"><u>Effortless Steps for Converting ISO Files Into WMV Format</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-2-ways-to-monitor-vivo-y100-5g-activity-drfone-by-drfone-virtual-android/"><u>In 2024, 2 Ways to Monitor Vivo Y100 5G Activity | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-7-ways-to-unlock-a-locked-vivo-v27-pro-phone-by-drfone-android/"><u>In 2024, 7 Ways to Unlock a Locked Vivo V27 Pro Phone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-sharing-wisdom-the-art-of-insta-duplication/"><u>In 2024, Sharing Wisdom The Art of Insta Duplication</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-skyrocket-with-subscribers-5-proven-methods-for-igtv-success/"><u>In 2024, Skyrocket with Subscribers 5 Proven Methods for IGTV Success</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-snap-the-truth-your-manual-to-authenticity-on-instagram/"><u>In 2024, Snap the Truth Your Manual to Authenticity on Instagram</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/kingstons-fury-beast-ddr5-ram-5000mhz-cas-latency-40-in-depth-2x32gb-memory-module-evaluation/"><u>Kingston's Fury Beast DDR5 RAM (5,000MHz CAS Latency 40) - In-Depth 2X32GB Memory Module Evaluation</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/reel-mastery-made-simple-with-these-free-apps-to-manage-instagram-videos-for-2024/"><u>Reel Mastery Made Simple with These Free Apps to Manage Instagram Videos for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/saying-goodbye-to-instagram-forever-a-detailed-walkthrough-for-2024/"><u>Saying Goodbye to Instagram Forever A Detailed Walkthrough for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/speedy-social-stardom-likes-plus-videos-on-instagram-guide-for-2024/"><u>Speedy Social Stardom Likes + Videos on Instagram Guide for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-step-by-step-techniques-downloading-and-crafting-instagram-stories/"><u>[New] 2024 Approved Step-by-Step Techniques Downloading & Crafting Instagram Stories</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-strategic-visual-marketing-top-10-ideas-to-amplify-your-instagram-presence/"><u>[New] 2024 Approved Strategic Visual Marketing Top 10 Ideas to Amplify Your Instagram Presence</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-streamline-media-management-with-top-10plus-free-instagram-to-mp4-converters/"><u>[New] In 2024, Streamline Media Management with Top 10+ Free Instagram-to-MP4 Converters</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-strategic-steps-for-sky-high-insta-video-view-counts-for-2024/"><u>[New] Strategic Steps for Sky-High Insta Video View Counts for 2024</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-elevate-tiktok-visuals-switch-backgrounds-with-confidence-and-precision/"><u>[Updated] Elevate TikTok Visuals Switch Backgrounds with Confidence and Precision</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-spotting-instagram-followers-lost/"><u>[Updated] In 2024, Spotting Instagram Followers Lost</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-step-by-step-method-for-posting-youtube-videos-in-instagram-stories/"><u>[Updated] In 2024, Step-by-Step Method for Posting YouTube Videos in Instagram Stories</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-shooting-spectacular-igtv-videos-with-your-phone-or-dslr-for-2024/"><u>[Updated] Shooting Spectacular IGTV Videos with Your Phone or DSLR for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-tricks-for-speedy-vimeo-streams/"><u>[Updated] Tricks for Speedy Vimeo Streams</u></a></li>
+<li><a href="https://discover-best.techidaily.com/2024mp4top8/"><u>「2024年の人気無料編集プログラム：オススメMP4専用フリーツールTOP8」</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-harmonious-hub-choosing-the-best-free-apps-for-your-youtube-music-streams/"><u>2024 Approved Harmonious Hub Choosing the Best Free Apps for Your YouTube Music Streams</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-in-depth-analysis-understanding-google-podcasts-app/"><u>2024 Approved In-Depth Analysis Understanding Google Podcasts App</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-revamped-look-at-sonys-s6500-bdp/"><u>2024 Approved Revamped Look at Sony's S6500 BDP</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138575924-9781469709000-how-to-lay-on-the-altar-without-wiggling/"><u>How to Lay on the Altar Without Wiggling | Free Book</u></a></li>
+<li><a href="https://some-skills.techidaily.com/tailored-strategies-for-free-clock-usage-optimization-for-2024/"><u>Tailored Strategies for FREE Clock Usage Optimization for 2024</u></a></li>
 </ul></div>
 

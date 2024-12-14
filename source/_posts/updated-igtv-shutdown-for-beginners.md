@@ -1,7 +1,7 @@
 ---
 title: "[Updated] IGTV Shutdown for Beginners"
-date: 2024-12-05T03:38:12.572Z
-updated: 2024-12-08T13:27:21.903Z
+date: 2024-12-10T16:03:04.532Z
+updated: 2024-12-14T16:14:06.411Z
 tags:
   - ai video
   - ai instagram
@@ -28,7 +28,7 @@ thumbnail: https://thmb.techidaily.com/84a7e5fe8a2d746104e06bccf0ffdc78d9a7d9997
  There is nothing more frustrating than receiving notifications about posts on social media you have zero interest in. Fortunately for all of us, turning off notifications is a quick and simple process that can be completed in just a few clicks or taps. IGTV, Instagram’s latest mobile video platform is no exception, and if you decide to use it, you will occasionally stumble upon the content you don’t necessarily like and you will receive notifications about posts that really have nothing to do with your interests. In case you are looking for a way to get rid of IGTV suggestions, you’ve come to the right place because in this article we are going to show you how to hide videos you don’t want to see and how to switch off notifications.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Turn Off IGTV Notifications on Instagram
@@ -38,7 +38,7 @@ thumbnail: https://thmb.techidaily.com/84a7e5fe8a2d746104e06bccf0ffdc78d9a7d9997
  Select the **Push Notifications option**, and then scroll all the way down to the **IGTV Video Updates section** of the Push Notifications menu. Tap on the **Off** option, and you’re done, you’ll no longer receive notifications from IGTV. If at any point you change your mind and you decide that you want to receive notifications from IGTV you can return to the Push Notifications menu and select the **From People I Follow** or **From Everyone** option in the IGTV Video Update section of the Push Notifications menu.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Hide IGTV Videos?
@@ -56,7 +56,7 @@ thumbnail: https://thmb.techidaily.com/84a7e5fe8a2d746104e06bccf0ffdc78d9a7d9997
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -74,22 +74,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-the-instagram-edge-strategic-use-of-descriptive-texts-in-videos/"><u>[New] 2024 Approved The Instagram Edge Strategic Use of Descriptive Texts in Videos</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-title-and-description-tweaks-for-maximum-engagement-on-igtv/"><u>[New] 2024 Approved Title and Description Tweaks for Maximum Engagement on IGTV</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-turning-back-the-clock-mastering-instagram-video-reverse/"><u>[New] 2024 Approved Turning Back the Clock Mastering Instagram Video Reverse</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-in-depth-look-mycam-cams-performance/"><u>[New] In 2024, In-Depth Look MyCam Cam's Performance</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-the-invisible-hand-decoding-instagrams-update-effects/"><u>[New] In 2024, The Invisible Hand Decoding Instagram’s Update Effects</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-the-key-to-cinematic-excellence-mastering-the-art-of-shooting-stunning-slow-motion-media-on-instagram/"><u>[Updated] 2024 Approved The Key to Cinematic Excellence Mastering the Art of Shooting Stunning Slow-Motion Media on Instagram</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-unbeatable-tag-analyzers-for-facebook-twitter-and-instagram-sites/"><u>[Updated] 2024 Approved Unbeatable Tag Analyzers for Facebook, Twitter & Instagram Sites</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-the-pathway-to-a-powerful-instagram-influence/"><u>[Updated] In 2024, The Pathway to a Powerful Instagram Influence</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-tactics-to-triumph-secrets-of-successful-social-media-videos/"><u>[Updated] Tactics to Triumph Secrets of Successful Social Media Videos</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-the-comprehensive-guide-to-attractive-and-engaging-instagram-puzzle-feeds-for-2024/"><u>[Updated] The Comprehensive Guide to Attractive and Engaging Instagram Puzzle Feeds for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-the-ultimate-camera-duel-sj6-against-xiaomis-yi-visionary/"><u>[Updated] The Ultimate Camera Duel SJ6 Against Xiaomi's Yi Visionary</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-timeless-treasures-accessing-fbs-historic-stories/"><u>[Updated] Timeless Treasures Accessing FB's Historic Stories</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/facebook-to-mp4-mastery-learn-how-to-convert-video-online-without-costs/"><u>Facebook to MP4 Mastery Learn How To Convert Video Online Without Costs</u></a></li>
-<li><a href="https://techidaily.com/how-to-hard-reset-samsung-galaxy-a05s-without-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Hard Reset Samsung Galaxy A05s Without Password | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-tecno-pova-6-pro-5g-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Tecno Pova 6 Pro 5G to Other Android Devices Devices? | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-accelerate-your-editing-with-these-10-pro-plugins/"><u>In 2024, Accelerate Your Editing with These 10 Pro Plugins</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-oneplus-11r-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on OnePlus 11R? | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-unlocking-creativity-a-guide-to-instagram-story-archiving/"><u>[New] Unlocking Creativity A Guide to Instagram Story Archiving</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-procedure-for-removing-stashed-videos-from-watch-later/"><u>[Updated] 2024 Approved Procedure for Removing Stashed Videos From Watch Later</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-top-10-online-video-editing-software-for-improved-content/"><u>[Updated] 2024 Approved Top 10 Online Video Editing Software for Improved Content</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-exploring-the-best-free-youtube-video-editors-for-ios/"><u>[Updated] Exploring the Best Free YouTube Video Editors for iOS</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-farming-to-the-next-level-stardews-leading-mods-listed/"><u>[Updated] Farming to the Next Level Stardew's Leading Mods Listed</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-crafting-visibility-on-youtube-the-ultimate-guide-to-featured-channel-placement/"><u>[Updated] In 2024, Crafting Visibility on YouTube The Ultimate Guide to Featured Channel Placement</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-unleash-creativity-on-instagrams-reels-frontier/"><u>[Updated] Unleash Creativity on Instagram's Reels Frontier</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-unlocking-visual-impact-insta-video-tips/"><u>[Updated] Unlocking Visual Impact Insta Video Tips</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-masters-of-illusion-top-vr-producers/"><u>2024 Approved Masters of Illusion Top VR Producers</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-unleash-laughter-and-tears-the-best-instagram-meme-picks/"><u>2024 Approved Unleash Laughter and Tears The Best Instagram Meme Picks</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-unveiling-instagrams-background-replace-technique/"><u>2024 Approved Unveiling Instagram’s Background Replace Technique</u></a></li>
+<li><a href="https://win11.techidaily.com/how-to-find-your-windows-11-or-10-product-key/"><u>How to Find Your Windows 11 or 10 Product Key</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-av1-decoded-for-starters/"><u>In 2024, AV1 Decoded for Starters</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-unlocking-instagram-potential-a-comprehensible-guide/"><u>In 2024, Unlocking Instagram Potential A Comprehensible Guide</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-video-twisting-techniques-boost-your-instagram-media-presentation/"><u>In 2024, Video Twisting Techniques Boost Your Instagram Media Presentation</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/numeric-excellence-excel-surpasses-gpt-in-complex-calculations/"><u>Numeric Excellence: Excel Surpasses GPT in Complex Calculations</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/revive-your-team-talks-a-guide-to-fixing-voice-chat-issues-in-destiny-2/"><u>Revive Your Team Talks: A Guide to Fixing Voice Chat Issues in Destiny 2</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/unleash-your-creativity-the-best-10-igtv-techniques-to-skyrocket-your-brand-for-2024/"><u>Unleash Your Creativity The Best 10 IGTV Techniques to Skyrocket Your Brand for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/unlock-the-potential-of-your-camera-creating-stunning-slow-motion-videos-for-instagram-for-2024/"><u>Unlock the Potential of Your Camera Creating Stunning Slow-Motion Videos for Instagram for 2024</u></a></li>
 </ul></div>
 

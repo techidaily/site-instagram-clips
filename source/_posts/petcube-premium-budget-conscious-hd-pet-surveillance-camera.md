@@ -1,7 +1,7 @@
 ---
 title: "Petcube Premium: Budget-Conscious HD Pet Surveillance Camera"
-date: 2024-12-03T16:47:22.851Z
-updated: 2024-12-08T14:50:27.917Z
+date: 2024-12-11T16:16:02.165Z
+updated: 2024-12-14T16:03:22.492Z
 categories:
   - BestProducts
 description: "This Article Describes Petcube Premium: Budget-Conscious HD Pet Surveillance Camera"
@@ -12,10 +12,6 @@ thumbnail: https://thmb.techidaily.com/b6dbcc18e11dc426bd1e06a708ba47abaebc27e7b
 ## Survive the Night with Friends in 'Dying Light': A Thrilling First-Person Parkour and Cooperative Gameplay Experience
 
 4.2
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Dying Light
 
@@ -41,17 +37,9 @@ Lifewire / Kelsey Simon
 
 4.2
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Dying Light
 
 ![Dying Light](https://www.lifewire.com/thmb/YWkGikwP23JK119N4M7J22dAPJY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Dying-Light-Zombie-Game-PS4-1-f2e898d54052439c9e158d01dc3d691a.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -76,17 +64,21 @@ Lifewire / Kelsey Simon
 
 ![Dying Light](https://www.lifewire.com/thmb/_0yEidfS3S4dy57s584t378TZYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-5-4ec68914607c4b56acff25a78887af7f.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup Process: Straight into the action**
 
  The first time you launch the game you'll be treated to an artistic video over the background of a news report. It explains the situation in Harran, the city where the game takes place. The game proper starts with a cut scene that shows you on a plane, about to parachute out. There’s no character creation here, although once you get a little further into the game, you’ll be able to pick your clothes.
 
 ![Dying Light](https://www.lifewire.com/thmb/P3rXmBBI1GdQfgi0vVT9xKcFw90=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-2-db5990d1f64341eaae79e22a71bb8f95.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -102,7 +94,15 @@ Harran is a whole different city at night.
 
 ![Dying Light](https://www.lifewire.com/thmb/8G35q3VsoSEuht_3bqsGm0Pwz-0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-7-d9d2bbe8881e476f8dfb3c13059634ed.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Gameplay: Parkour and zombies galore**
 
@@ -129,10 +129,14 @@ Harran is a whole different city at night.
 ![Dying Light](https://www.lifewire.com/thmb/sy9NHLj8JNe2eaeS9HJJdejt6QE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-6-56ef808272b544e6a1038f4a5d0280f1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Worth the cost, especially with a friend**
 
@@ -149,10 +153,6 @@ Harran is a whole different city at night.
 **An original in the zombie survival genre.**
 
  Dying Light is a game that took an overdone trope and used it to create a fresh game. Its fun parkour and co-op gameplay make for a great gaming experience, particularly when shared with friends. The variety of zombie enemies combined with the excellent melee combat keep the experience fresh even in the late game―and if things feel too simple, doing a mission at night is a wholly different experience from daylight outings. Dying Light is a great game in the zombie survival genre that we would recommend to most players.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -175,24 +175,16 @@ Harran is a whole different city at night.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-enhancing-selfie-impact-on-instagram-the-zoom-guide/"><u>[New] Enhancing Selfie Impact on Instagram The Zoom Guide</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-data-size-and-time-coefficient-in-video-files-20mb/"><u>[New] In 2024, Data Size and Time Coefficient in Video Files (20MB)</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-seamless-audio-transition-crossfade-explained/"><u>[New] Seamless Audio Transition - Crossfade Explained</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-the-untold-story-10-pro-vlc-tricks-for-better-playback/"><u>[New] The Untold Story 10 Pro-VLC Tricks for Better Playback</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-unmatched-setups-worlds-leading-4k-dslr-stands/"><u>[Updated] In 2024, Unmatched Setups World's Leading 4K DSLR Stands</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-youtube-beginners-guide-to-earning-success/"><u>[Updated] In 2024, YouTube Beginners' Guide to Earning Success</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-frame-it-right-mastering-instagram-video-edges/"><u>2024 Approved Frame It Right Mastering Instagram Video Edges</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-from-basics-to-advanced-crafting-powerful-instagram-hashtags/"><u>2024 Approved From Basics to Advanced Crafting Powerful Instagram Hashtags</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-the-beginners-guide-to-luts-and-downloading-tools/"><u>2024 Approved The Beginner's Guide to LUTs and Downloading Tools</u></a></li>
-<li><a href="https://android-location.techidaily.com/3-effective-methods-to-fake-gps-location-on-android-for-your-honor-play-40c-drfone-by-drfone-virtual/"><u>3 Effective Methods to Fake GPS location on Android For your Honor Play 40C | Dr.fone</u></a></li>
-<li><a href="https://windows11.techidaily.com/fixing-chromes-mistaken-malware-detection-errors-in-windows/"><u>Fixing Chrome’s Mistaken Malware Detection Errors in Windows</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/from-front-to-back-a-step-by-step-guide-to-creating-engaging-angles-in-photography-for-instagram-triumphs-for-2024/"><u>From Front to Back A Step-by-Step Guide to Creating Engaging Angles in Photography for Instagram Triumphs for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/glow-up-guide-for-the-social-savvy-top-three-highlighters-on-instagram-for-2024/"><u>Glow-Up Guide for the Social Savvy Top Three Highlighters on Instagram for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-expert-tips-for-capturing-and-saving-igtv-on-handhrani/"><u>In 2024, Expert Tips for Capturing and Saving IGTV on Handhrani</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-get-that-perfect-fit-resize-videos-to-instagram-standards-using-mac/"><u>In 2024, Get That Perfect Fit Resize Videos to Instagram Standards Using Mac</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-harnessing-the-power-of-hashtags-to-amplify-your-igtv-content/"><u>In 2024, Harnessing the Power of Hashtags to Amplify Your IGTV Content</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-how-to-safeguard-your-feed-remove-followers/"><u>In 2024, How to Safeguard Your Feed Remove Followers</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/professional-editing-strategies-for-youtube-videos-after-upload-for-2024/"><u>Professional Editing Strategies for YouTube Videos After Upload for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/tips-of-transferring-messages-from-realme-narzo-60x-5g-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Tips of Transferring Messages from Realme Narzo 60x 5G to iPhone 14/15 | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-luminous-likes-three-proven-ways-for-insta-highlights/"><u>[New] 2024 Approved Luminous Likes Three Proven Ways for Insta Highlights</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-instagrams-video-chatting-techniques-a-complete-resource/"><u>[New] In 2024, Instagram’s Video Chatting Techniques A Complete Resource</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-instagrams-hidden-gems-how-to-upload-large-amounts-of-content-for-2024/"><u>[New] Instagram's Hidden Gems How to Upload Large Amounts of Content for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-leveraging-instagram-for-monetary-success/"><u>[Updated] 2024 Approved Leveraging Instagram for Monetary Success</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-is-insta-snap-verification-worth-it-for-2024/"><u>[Updated] Is Insta-Snap Verification Worth It for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-screen-capture-face-off-battle-of-the-best-obs-or-bandicam-for-2024/"><u>[Updated] Screen Capture Face-Off Battle of the Best, OBS or Bandicam for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/are-reviews-on-goods-and-services-for-cash/"><u>Are Reviews on Goods & Services for Cash?</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/disabling-apple-iphone-7-plus-parental-restrictions-withwithout-password-drfone-by-drfone-ios/"><u>Disabling Apple iPhone 7 Plus Parental Restrictions With/Without Password | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/expert-insights-for-effective-clips-blending/"><u>Expert Insights for Effective Clips Blending</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-effortless-youtube-playback-downloading-content-to-idevices/"><u>In 2024, Effortless Youtube Playback Downloading Content to iDevices</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/update-or-download-free-killer-wi-fi-drivers-on-windows-11-8-and-7-get-enhanced-connectivity-today/"><u>Update or Download Free Killer Wi-Fi Drivers on Windows 11, 8 & 7: Get Enhanced Connectivity Today!</u></a></li>
 </ul></div>
 

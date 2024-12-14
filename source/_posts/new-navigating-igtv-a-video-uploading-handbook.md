@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Navigating IGTV  A Video Uploading Handbook\""
-date: 2024-10-25T19:03:50.116Z
-updated: 2024-10-27T21:28:29.977Z
+date: 2024-12-10T16:20:49.395Z
+updated: 2024-12-14T16:20:09.109Z
 tags:
   - ai video
   - ai instagram
@@ -27,6 +27,10 @@ thumbnail: https://thmb.techidaily.com/c2342fb5e25c5a967555cf815791bd2b9698b049e
 
 A little over six months ago, Instagram launched the IGTV service that allows creators to post videos that last up to one hour. On the same day IGTV app that makes sharing videos on your IGTV channel easier was also launched, so you don’t even have to use the Instagram app to post new content to your channel. In case you’re not familiar with the IGTV app and you don’t know how to upload videos to your channel you’ve come to the right place, because in this article we are going to take you through all the steps you’ll need to take in order to upload a video to IGTV.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Make Your IGTV Marketing Videos Shine
 
 Recently, video marketing has become an unstoppable trend. Celebrities and businesses earn great fortune through high-quality marketing videos. To join the **[profitable video marketing era](https://tools.techidaily.com/wondershare/filmora/download/)**, you can create your own IGTV marketing videos now!
@@ -34,10 +38,7 @@ Recently, video marketing has become an unstoppable trend. Celebrities and busin
 [![create marketing videos](https://images.wondershare.com/filmora/article-images/2021/create-marketing-videos.png)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Upload Videos to IGTV?
@@ -67,16 +68,7 @@ Even though IGTV videos can last up to **sixty minutes**, this option is **reser
 Currently, the size of a video can’t exceed **560 MB** for videos between **15 seconds and ten minutes,** while the maximum file size for a sixty-minute videos is limited to **3.6 GB**. IGTV videos have to be vertical, and the content you upload must have a minimum **4:5 aspect ratio, while the maximum aspect ratio is 9:16\.**
 
 <!-- affiliate ads begin -->
-<span id="1983474">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Tips for Uploading and Posting Videos to IGTV
@@ -86,10 +78,7 @@ Despite the fact that you can now upload videos that last for an entire hour, it
 Aside from YouTube, a majority of videos on social media platforms are watched without sound. That’s why adding subtitles to your video may be a good idea, but just remember that you have to hardcode the subtitles into the video since SRT files don’t work well with vertical videos.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Analyzing and Promoting an IGTV Channel
@@ -103,10 +92,7 @@ In the first six months after its initial launch IGTV seems like it has made Ins
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -124,19 +110,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-glee-and-gags-the-classic-vhs-of-a-goofy-adventure/"><u>[Updated] In 2024, 'Glee and Gags' - The Classic VHS of A Goofy Adventure</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-platform-picks-for-prominent-content-creators/"><u>[Updated] Platform Picks for Prominent Content Creators</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-boost-your-creative-edge-on-instagram-with-more-free-filters/"><u>2024 Approved Boost Your Creative Edge on Instagram with More Free Filters</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/achieving-ideal-mac-resized-instagram-video-content-for-2024/"><u>Achieving Ideal Mac-Resized Instagram Video Content for 2024</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/affordable-innovation-or-confusing-choice-the-microsoft-surface-go-examined/"><u>Affordable Innovation or Confusing Choice? The Microsoft Surface Go Examined</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/audio-from-visuals-making-mp3s-from-instagram-content-for-2024/"><u>Audio From Visuals Making Mp3s From Instagram Content for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/diagnosing-and-fixing-bose-audio-devices-when-they-cease-functioning/"><u>Diagnosing and Fixing Bose Audio Devices When They Cease Functioning</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/guide-correcting-unregistered-dll-problems-in-windows-11-for-smooth-operation/"><u>Guide: Correcting Unregistered DLL Problems in Windows 11 for Smooth Operation</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/how-to-fix-the-infamous-ghostrunner-fatal-bug-within-windows-10/"><u>How to Fix the Infamous GhostRunner Fatal Bug Within Windows 10?</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-avoid-unnecessary-interactions-block-strategies/"><u>In 2024, Avoid Unnecessary Interactions Block Strategies</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-awesome-igtv-channels-that-deliver-quality-content/"><u>In 2024, Awesome IGTV Channels That Deliver Quality Content</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-principles-of-clear-and-persuasive-messaging-for-social-media-ads/"><u>In 2024, Principles of Clear & Persuasive Messaging for Social Media Ads</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-create-stunning-video-invites-top-apps-for-ios-and-android/"><u>New 2024 Approved Create Stunning Video Invites Top Apps for iOS and Android</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/twitter-takeover-1-10-must-watch-threads-for-2024/"><u>Twitter Takeover #1-#10 Must-Watch Threads for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-instagram-etiquette-ceasing-connections/"><u>[New] 2024 Approved Instagram Etiquette Ceasing Connections</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-how-to-speed-up-video-on-instagram-for-2024/"><u>[New] How to Speed Up Video on Instagram for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-ig-vids-mastery-for-effective-marketing-step-by-step-guide-to-success-for-2024/"><u>[New] IG Vids Mastery for Effective Marketing Step-by-Step Guide to Success for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-how-to-triple-down-on-instagrams-growth-metrics/"><u>[New] In 2024, How to Triple Down on Instagram's Growth Metrics</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-instagram-connectivity-adding-url-content/"><u>[New] In 2024, Instagram Connectivity Adding URL Content</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-insta-story-mastery-adjusting-focus-like-a-pro-for-2024/"><u>[New] Insta Story Mastery Adjusting Focus Like a Pro for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-excellent-apps-to-keep-your-data-on-the-go-androids-cloud-keeper-list/"><u>[Updated] 2024 Approved Excellent Apps to Keep Your Data on the Go - Android's Cloud Keeper List</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-how-to-seamlessly-add-vimeo-videos-to-insta-feed-for-2024/"><u>[Updated] How to Seamlessly Add Vimeo Videos to Insta Feed for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-how-to-reverse-image-search-instagram/"><u>[Updated] In 2024, How To Reverse Image Search Instagram</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-insightful-viewership-data-for-your-insta-pics-for-2024/"><u>[Updated] Insightful Viewership Data for Your Insta Pics for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-efficient-way-to-insert-a-hyperlink-in-your-tiktok-bio/"><u>2024 Approved Efficient Way to Insert a Hyperlink in Your TikTok Bio</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-the-screen-readers-digest-recorder-evaluation/"><u>2024 Approved The Screen Reader's Digest Recorder Evaluation</u></a></li>
+<li><a href="https://techidaily.com/complete-tutorial-for-lava-blaze-2-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Complete Tutorial for Lava Blaze 2 Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/in-2024-from-small-screens-to-big-screen-success-fb-video-guide-2023/"><u>In 2024, From Small Screens to Big Screen Success FB Video Guide 2023</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-7-without-swiping-up-6-ways-by-drfone-ios/"><u>In 2024, How To Unlock Apple iPhone 7 Without Swiping Up? 6 Ways</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-overview-of-the-best-samsung-galaxy-f54-5g-screen-mirroring-app-drfone-by-drfone-android/"><u>In 2024, Overview of the Best Samsung Galaxy F54 5G Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/navigate-the-best-training-logging-apps-to-elevate-your-gym-sessions/"><u>Navigate the Best Training Logging Apps to Elevate Your Gym Sessions</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-future-awaits-equipping-yourself-for-metaverse-life-top-7-for-2024/"><u>The Future Awaits Equipping Yourself for Metaverse Life (Top 7) for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/top-secret-free-apps-best-macos-text-transcribers-for-2024/"><u>Top Secret Free Apps Best macOS Text Transcribers for 2024</u></a></li>
 </ul></div>
 

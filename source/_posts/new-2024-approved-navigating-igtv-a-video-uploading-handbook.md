@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Navigating IGTV  A Video Uploading Handbook\""
-date: 2024-09-10T21:19:36.967Z
-updated: 2024-09-15T18:44:46.705Z
+date: 2024-12-10T16:10:17.663Z
+updated: 2024-12-14T16:10:35.218Z
 tags:
   - ai video
   - ai instagram
@@ -65,6 +65,10 @@ Despite the fact that you can now upload videos that last for an entire hour, it
 
 Aside from YouTube, a majority of videos on social media platforms are watched without sound. That’s why adding subtitles to your video may be a good idea, but just remember that you have to hardcode the subtitles into the video since SRT files don’t work well with vertical videos.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Analyzing and Promoting an IGTV Channel
 
 After uploading a video to IGTV you can monitor the number of **likes, comments, and views** by tapping on the **‘three dots’ icon** located next to the **Like, Comment and Share icons** on a particular video. A **drop-down menu will appear** on the screen and you should tap on the **View Insights** option in order to see how many **views, likes and comments** your video got. Below the **Engagement information**, you can find the **Audience Retention** menu that offers **Average Percentage Watch** information as well as **a drop-off graph** that tells you at which point viewers stop watching your video. The data provided by the IGTV analytics can be extremely valuable when planning future posts on IGTV. Moreover, you can use conventional tools for content promotion on Instagram to increase the number of views your IGTV videos are getting.
@@ -74,6 +78,10 @@ After uploading a video to IGTV you can monitor the number of **likes, comments,
 In the first six months after its initial launch IGTV seems like it has made Instagram more entertaining because it encourages creators to post captivating videos people around the globe love watching. Hopefully, we have provided you with all the information you’re going to need to upload your first video to IGTV. Leave a comment below and share your IGTV experiences with us.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -87,13 +95,6 @@ Follow @Shanoon Cox
 
 A little over six months ago, Instagram launched the IGTV service that allows creators to post videos that last up to one hour. On the same day IGTV app that makes sharing videos on your IGTV channel easier was also launched, so you don’t even have to use the Instagram app to post new content to your channel. In case you’re not familiar with the IGTV app and you don’t know how to upload videos to your channel you’ve come to the right place, because in this article we are going to take you through all the steps you’ll need to take in order to upload a video to IGTV.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Make Your IGTV Marketing Videos Shine
 
 Recently, video marketing has become an unstoppable trend. Celebrities and businesses earn great fortune through high-quality marketing videos. To join the **[profitable video marketing era](https://tools.techidaily.com/wondershare/filmora/download/)**, you can create your own IGTV marketing videos now!
@@ -101,16 +102,11 @@ Recently, video marketing has become an unstoppable trend. Celebrities and busin
 [![create marketing videos](https://images.wondershare.com/filmora/article-images/2021/create-marketing-videos.png)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<span id="1983551">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Upload Videos to IGTV?
@@ -144,13 +140,6 @@ Currently, the size of a video can’t exceed **560 MB** for videos between **15
 Despite the fact that you can now upload videos that last for an entire hour, it is still better to keep the content you share on your IGTV channel short. Videos that **last between two and five minutes** are best suited for the audience on social media. Posting videos that surpass the five-minute limit can prove to be counterproductive because people won’t take the time to watch them from start to finish.
 
 Aside from YouTube, a majority of videos on social media platforms are watched without sound. That’s why adding subtitles to your video may be a good idea, but just remember that you have to hardcode the subtitles into the video since SRT files don’t work well with vertical videos.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Analyzing and Promoting an IGTV Channel
 
@@ -206,18 +195,15 @@ Even though IGTV videos can last up to **sixty minutes**, this option is **reser
 
 Currently, the size of a video can’t exceed **560 MB** for videos between **15 seconds and ten minutes,** while the maximum file size for a sixty-minute videos is limited to **3.6 GB**. IGTV videos have to be vertical, and the content you upload must have a minimum **4:5 aspect ratio, while the maximum aspect ratio is 9:16\.**
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Tips for Uploading and Posting Videos to IGTV
 
 Despite the fact that you can now upload videos that last for an entire hour, it is still better to keep the content you share on your IGTV channel short. Videos that **last between two and five minutes** are best suited for the audience on social media. Posting videos that surpass the five-minute limit can prove to be counterproductive because people won’t take the time to watch them from start to finish.
 
 Aside from YouTube, a majority of videos on social media platforms are watched without sound. That’s why adding subtitles to your video may be a good idea, but just remember that you have to hardcode the subtitles into the video since SRT files don’t work well with vertical videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Analyzing and Promoting an IGTV Channel
 
@@ -242,10 +228,7 @@ Follow @Shanoon Cox
 A little over six months ago, Instagram launched the IGTV service that allows creators to post videos that last up to one hour. On the same day IGTV app that makes sharing videos on your IGTV channel easier was also launched, so you don’t even have to use the Instagram app to post new content to your channel. In case you’re not familiar with the IGTV app and you don’t know how to upload videos to your channel you’ve come to the right place, because in this article we are going to take you through all the steps you’ll need to take in order to upload a video to IGTV.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Make Your IGTV Marketing Videos Shine
@@ -253,6 +236,10 @@ A little over six months ago, Instagram launched the IGTV service that allows cr
 Recently, video marketing has become an unstoppable trend. Celebrities and businesses earn great fortune through high-quality marketing videos. To join the **[profitable video marketing era](https://tools.techidaily.com/wondershare/filmora/download/)**, you can create your own IGTV marketing videos now!
 
 [![create marketing videos](https://images.wondershare.com/filmora/article-images/2021/create-marketing-videos.png)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Upload Videos to IGTV?
 
@@ -295,6 +282,10 @@ After uploading a video to IGTV you can monitor the number of **likes, comments,
 In the first six months after its initial launch IGTV seems like it has made Instagram more entertaining because it encourages creators to post captivating videos people around the globe love watching. Hopefully, we have provided you with all the information you’re going to need to upload your first video to IGTV. Leave a comment below and share your IGTV experiences with us.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -321,5 +312,22 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-a-deeper-dive-into-the-heart-of-mixed-reality/"><u>[New] In 2024, A Deeper Dive Into the Heart of Mixed Reality</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-the-instagram-video-edge-planning-for-maximum-marketing-success/"><u>[New] The Instagram Video Edge Planning for Maximum Marketing Success</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-the-ultimate-strategy-for-boosted-instagram-video-traffic/"><u>[New] The Ultimate Strategy for Boosted Instagram Video Traffic</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-boosting-stability-and-speed-more-ram-for-minecraft/"><u>[Updated] 2024 Approved Boosting Stability & Speed More RAM for Minecraft</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-step-by-step-to-turn-off-igtv/"><u>[Updated] Step-by-Step to Turn Off IGTV</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-top-8-iphone-accessories-elevate-your-selfies-today/"><u>[Updated] Top 8 iPhone Accessories - Elevate Your Selfies Today</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-the-instagram-pros-tips-for-bulk-upload-of-images-and-video/"><u>2024 Approved The Instagram Pro’s Tips for Bulk Upload of Images and Video</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/download-high-definition-badminton-matches-a-step-by-step-guide-to-finding-free-hd-videos/"><u>Download High-Definition Badminton Matches: A Step-by-Step Guide to Finding Free HD Videos</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/guide-to-sending-files-from-printer-directly-to-your-desktop/"><u>Guide to Sending Files From Printer Directly to Your Desktop</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-network-locked-sim-card-inserted-on-your-zte-nubia-flip-5g-phone-unlock-it-now-by-drfone-android/"><u>In 2024, Network Locked SIM Card Inserted On Your ZTE Nubia Flip 5G Phone? Unlock It Now</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-the-insiders-handbook-for-instagram-video-woes/"><u>In 2024, The Insider’s Handbook for Instagram Video Woes</u></a></li>
+<li><a href="https://win-able.techidaily.com/mafia-definitive-ultimate-release-postponed-now-resolved/"><u>Mafia: Definitive Ultimate Release Postponed – Now Resolved</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/streamlining-videography-optimize-for-instagram-for-2024/"><u>Streamlining Videography Optimize For Instagram for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/the-instagram-growth-strategy-handbook-for-2024/"><u>The Instagram Growth Strategy Handbook for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/top-7-skype-hacker-to-hack-any-skype-account-on-your-nokia-g22-drfone-by-drfone-virtual-android/"><u>Top 7 Skype Hacker to Hack Any Skype Account On your Nokia G22 | Dr.fone</u></a></li>
+</ul></div>
 
