@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] PictureProfessional  Expert Guide to Adjusting IG Content Sizes\""
-date: 2024-12-13T16:13:02.540Z
-updated: 2024-12-14T16:14:56.434Z
+date: 2024-12-22T17:06:54.228Z
+updated: 2024-12-23T17:38:37.769Z
 tags:
   - ai video
   - ai instagram
@@ -30,7 +30,7 @@ Taking photos with iPhones and Android Smartphones and posting them to Instagram
 Troubles begin when you want to upload photos and videos that weren't captured with a Smartphone to Instagram. In most cases, the photos and videos produced by DSLR cameras and other semi-professional and professional equipment are much larger than the sizes supported by Instagram. That is the reason why we created this guide that will help you post visual content that is perfectly adjusted to Instagram in 2021.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Types of Files Accepted by Instagram
@@ -50,7 +50,7 @@ Duration of Videos on Instagram
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Best Image Sizes for Instagram Posts
@@ -62,7 +62,7 @@ A couple of years ago, Instagram has finally allowed its users to upload images 
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
@@ -90,7 +90,7 @@ The profile pictures on Instagram are tiny, and the optimum size for them is 160
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -108,15 +108,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-behind-the-glamour-10-honest-insights-into-reels-for-2024/"><u>[New] Behind the Glamour 10 Honest Insights Into Reels for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-boost-your-following-with-these-top-insta-apps-for-2024/"><u>[New] Boost Your Following with These Top Insta Apps for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-boost-your-instagram-with-easily-shareable-gifs-step-by-step/"><u>[New] In 2024, Boost Your Instagram with Easily Shareable GIFs (Step-by-Step)</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-backpedaling-through-imagery-an-insiders-guide-to-finding-originals-in-instagram-for-2024/"><u>[Updated] Backpedaling Through Imagery An Insider's Guide to Finding Originals in Instagram for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-quick-guide-to-video-cross-upload-twitter-and-tumblr-for-2024/"><u>[Updated] Quick Guide to Video Cross-Upload Twitter & Tumblr for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-unlock-flawless-loops-on-youtube-with-these-tips/"><u>2024 Approved Unlock Flawless Loops on YouTube with These Tips</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/expert-steps-for-integrating-your-samsung-controller-into-your-home-cinema-system/"><u>Expert Steps for Integrating Your Samsung Controller Into Your Home Cinema System</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-get-the-apple-id-verification-code-from-iphone-11-in-the-best-ways-by-drfone-ios/"><u>In 2024, How To Get the Apple ID Verification Code From iPhone 11 in the Best Ways</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/reen-caption-composer-for-2024/"><u>On-Screen Caption Composer for 2024</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210689299-9781952692505-the-mindfulness-bell-no-birth-no-death-only-continuation-issue-90-2022/"><u>The Mindfulness Bell: No Birth, No Death, Only Continuation, Issue 90, 2022 | Free Book</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-essence-of-virtual-story-delivery-for-2024/"><u>[New] Essence of Virtual Story Delivery for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-fine-tune-video-quality-for-instagram-excellence/"><u>[New] In 2024, Fine-Tune Video Quality for Instagram Excellence</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-unlocking-viral-potential-creating-captivating-instagram-puzzles/"><u>[New] In 2024, Unlocking Viral Potential Creating Captivating Instagram Puzzles</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-maximize-instagram-network-best-free-safe-androidios-followers/"><u>[New] Maximize Instagram Network - Best Free, Safe Android/iOS Followers</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-step-by-step-path-turning-gifs-into-stickers-across-social-media-messaging/"><u>[New] Step-by-Step Path Turning GIFs Into Stickers Across Social Media Messaging</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-10-premier-igtv-horizontal-video-editors-for-2024/"><u>[Updated] 10 Premier IGTV Horizontal Video Editors for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-navigating-the-world-of-unfollowed-instagrams/"><u>[Updated] 2024 Approved Navigating the World of Unfollowed Instagrams</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-tips-to-triple-your-instagram-video-viewers/"><u>[Updated] 2024 Approved Tips to Triple Your Instagram Video Viewers</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-transform-your-shots-with-understanding-luts-for-2024/"><u>[Updated] Transform Your Shots with Understanding LUTs for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-unlocking-your-instagrams-virtual-meet-up-potential/"><u>[Updated] Unlocking Your Instagram's Virtual Meet-Up Potential</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/breakthrough-methods-in-logging-whatsapp-communication/"><u>Breakthrough Methods in Logging WhatsApp Communication</u></a></li>
+<li><a href="https://win-hot.techidaily.com/enhance-visual-experience-mastering-the-art-of-modifying-screen-resolution-in-windows-with-yl-computing-software-insights/"><u>Enhance Visual Experience: Mastering the Art of Modifying Screen Resolution in Windows with YL Computing Software Insights</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-your-apple-iphone-13-passcode-4-easy-methods-with-or-without-itunes-drfone-by-drfone-ios/"><u>How to Unlock Your Apple iPhone 13 Passcode 4 Easy Methods (With or Without iTunes) | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/in-2024-share-your-stories-with-lush-soundtracks/"><u>In 2024, Share Your Stories with Lush Soundtracks!</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-triggering-instant-play-for-youtube-videos-on-social-media/"><u>In 2024, Triggering Instant Play for YouTube Videos on Social Media</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/is-the-microsoft-surface-pro-9-the-answer-how-it-stacks-up-to-macbook-for-windows-fans-reviewed-by-tech-experts-at-zdnet/"><u>Is the Microsoft Surface Pro 9 the Answer? How It Stacks Up to MacBook for Windows Fans, Reviewed by Tech Experts at ZDNet</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/proven-techniques-to-elevate-your-igtv-videos-on-mobile-and-professional-cameras/"><u>Proven Techniques to Elevate Your IGTV Videos on Mobile & Professional Cameras</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/the-ultimate-guide-to-self-validation-on-social-media-for-2024/"><u>The Ultimate Guide to Self-Validation on Social Media for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/understanding-the-safety-of-chatgpt-exploring-6-key-cybersecurity-concerns/"><u>Understanding the Safety of ChatGPT: Exploring 6 Key Cybersecurity Concerns</u></a></li>
 </ul></div>
 

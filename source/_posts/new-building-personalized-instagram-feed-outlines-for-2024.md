@@ -1,7 +1,7 @@
 ---
 title: "[New] Building Personalized Instagram Feed Outlines for 2024"
-date: 2024-12-11T16:15:29.790Z
-updated: 2024-12-14T16:12:28.195Z
+date: 2024-12-20T17:00:38.461Z
+updated: 2024-12-23T17:42:31.392Z
 tags:
   - ai video
   - ai instagram
@@ -30,7 +30,7 @@ Instagram highlight covers or Instagram Story covers are little circles right be
 No worries, here in this article, we will walk you through each step on how to create Instagram highlight covers.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: Instagram Highlight Cover Size and Dimensions
@@ -41,10 +41,14 @@ Generally, the Instagram highlight covers dimensions are the same as Insta stori
 
 ![Filmora Instagram highlight ](https://images.wondershare.com/filmora/article-images/filmora-instagram-highlight.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 When designing custom highlight covers on Canva, you will notice that the icon will be in the middle of a story-size rectangle. The overall aspect ratio to make highlight covers in Canva is 9:16\. However, ensure that that the illustration is centered when you add it as your Instagram highlight icon.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to Make Instagram Highlight Cover on Canva?
@@ -63,10 +67,6 @@ Once you are on the website, create your free account if you do not have one, an
 
 ![Canva create a highlight cover design](https://images.wondershare.com/filmora/article-images/canva-create-a-design-ins-story-highlight-cover.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 On the Canva homepage, click on **Create a design** tab at the right-hand upper corner. Now from the drop-down menu, you can type Instagram Story Highlight Cover in the search bar to locate it quickly, or you can scroll down to find it. The dimensions are automatically set as 1080 X 1920 pixels for Instagram story highlight in Canva, and if you don’t want to use this default size, you can click the Custom Size menu to identify the size, let’s say, 2000 \* 2000 pixels.
 
 **Step 3: Select a background color or photo**
@@ -76,7 +76,7 @@ Canva provides fully customizable templates for highlight cover, you can drag on
 ![Canva highlight cover template](https://images.wondershare.com/filmora/article-images/canva-instagram-highlight-cover-templates.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If you choose to create Instagram highlight covers from scratch without a template, you can follow the steps below.
@@ -84,10 +84,6 @@ If you choose to create Instagram highlight covers from scratch without a templa
 On the design page, click on **Add Page** and then on the upper left side, you will see Background color, click on it and select the color you want to add. Alternatively, you can add your brand's hex code color. For the photos, you can either select a stock image from the Canva, connect your Instagram, or upload your own.
 
 ![Add background to Canva highlight cover](https://images.wondershare.com/filmora/article-images/add-background-highlight-cover.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 4: Choose an icon or add text**
 
@@ -102,6 +98,10 @@ You can make as many highlights covers as you want. Just click on the +Add page 
 **Step 5: Download the highlight covers**
 
 ![ download  highlight cover ](https://images.wondershare.com/filmora/article-images/download-canva-instagram-highlight-cover.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Once you are done making the Instagram highlight covers and are satisfied with the work, click on the Download button. Choose the file type like PNG or JPG, save your download settings, and hit the Download tab. Your highlight covers download as a zip file. Unzip them and transfer them to your phone via your preferred method.
 
@@ -158,19 +158,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-affordable-4k-lens-and-recorders/"><u>[New] Affordable 4K Lens & Recorders</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-explore-and-capture-mountains-with-best-cameras-for-2024/"><u>[New] Explore and Capture Mountains with Best Cameras for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-mastering-instagrams-per-video-restrictions/"><u>[New] In 2024, Mastering Instagram's Per-Video Restrictions</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-mastering-instagram-incorporating-music-in-videos-and-stories-for-2024/"><u>[New] Mastering Instagram Incorporating Music in Videos & Stories for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-mastering-instagram-video-streaming-quickness-for-2024/"><u>[New] Mastering Instagram Video Streaming Quickness for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-mastering-the-art-of-instagram-to-mp4-conversion-expert-tips-for-2024/"><u>[New] Mastering the Art of Instagram to MP4 Conversion - Expert Tips for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-mastering-instagram-boost-your-following/"><u>[Updated] In 2024, Mastering Instagram Boost Your Following</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-streaming-stardom-and-salary-the-pewdiepie-profit-piece/"><u>[Updated] In 2024, Streaming Stardom and Salary – The PewDiePie Profit Piece</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-mastering-downloads-igtv-media-for-phone-users-for-2024/"><u>[Updated] Mastering Downloads IGTV Media for Phone Users for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/full-guide-on-mirroring-your-tecno-pova-5-to-your-pcmac-drfone-by-drfone-android/"><u>Full Guide on Mirroring Your Tecno Pova 5 to Your PC/Mac | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-oneplus-12r-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of OnePlus 12R Without PUK Codes</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-trusted-6-online-communities-driving-business-growth/"><u>In 2024, Trusted 6 Online Communities Driving Business Growth</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/intels-upcoming-desktops-higher-heat-generation-in-new-processor-lineup/"><u>Intel's Upcoming Desktops: Higher Heat Generation in New Processor Lineup?</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/precision-adjustment-of-iphone-photo-dimensions-revealed-for-2024/"><u>Precision Adjustment of iPhone Photo Dimensions Revealed for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-inspiring-vistas-top-20-scenic-shots-for-social-media-success-for-2024/"><u>[New] Inspiring Vistas Top 20 Scenic Shots for Social Media Success for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-the-ultimate-checklist-for-instagram-popularity-surge/"><u>[Updated] In 2024, The Ultimate Checklist for Instagram Popularity Surge</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-instagram-aesthetics-final-cut-pro-x-for-editing-tall-screen-content/"><u>[Updated] Instagram Aesthetics Final Cut Pro X for Editing Tall-Screen Content</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-sonic-storytelling-how-to-enhance-ig-stories-with-melodies-for-2024/"><u>[Updated] Sonic Storytelling How to Enhance IG Stories with Melodies for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-unlocking-success-with-instagrams-business-platform/"><u>[Updated] Unlocking Success with Instagram's Business Platform</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-oppo-a78-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Oppo A78 Without PUK Codes</u></a></li>
+<li><a href="https://win-hacks.techidaily.com/identifying-signs-of-a-malfunctioning-graphics-processing-unit-gpu-expert-insights-from-yl-computing/"><u>Identifying Signs of a Malfunctioning Graphics Processing Unit (GPU) - Expert Insights From YL Computing</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-forgotten-the-voicemail-password-of-infinix-note-30i-try-these-fixes-by-drfone-android/"><u>In 2024, Forgotten The Voicemail Password Of Infinix Note 30i? Try These Fixes</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-proart-pa-329q-review-the-ultimate-4k-workstation-display/"><u>In 2024, ProArt PA 329Q Review The Ultimate 4K Workstation Display</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/unbeatable-deal-36-discount-on-8tb-samsung-portable-ssd-post-prime-day-spotted-by-zdnet/"><u>Unbeatable Deal: 36% Discount on 8TB Samsung Portable SSD Post-Prime Day - Spotted by ZDNet</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/windows-7-and-intel-graphics-upgrade-a-user-friendly-guide/"><u>Windows 7 and Intel Graphics Upgrade: A User-Friendly Guide</u></a></li>
 </ul></div>
 
