@@ -1,7 +1,7 @@
 ---
 title: "[New] Infuse Vibes Into Photos via IG Sounds for 2024"
-date: 2024-12-16T16:01:08.073Z
-updated: 2024-12-23T16:28:16.545Z
+date: 2024-12-25T02:20:53.591Z
+updated: 2024-12-28T17:38:23.522Z
 tags:
   - ai video
   - ai instagram
@@ -50,6 +50,10 @@ After you have added a filter or edited your story, **click on the sticker icon*
 
 ![Instagram Music  Sticker](https://images.wondershare.com/filmora/article-images/instagram-music-sticker.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3: Add music**
 
 After you **click on the music sticker**, you will be presented with many song suggestions. You can use a search tab to find your favorite song or artist.
@@ -57,6 +61,10 @@ After you **click on the music sticker**, you will be presented with many song s
 **Click to add** it to your stories; you can choose a 15 second part from the music you like to play on the story. You can also **change the song sticker** before uploading.
 
 ![Share Music with Instagram   Sticker](https://images.wondershare.com/filmora/article-images/share-music-with-sticker-instagram.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Edit Music Stickers?
 
@@ -69,10 +77,6 @@ You can tap on the music sticker to change the icon. You can also switch to the 
 **Changing colors:**
 
 You can also press the color wheel at the top corner of the screen to adjust the color of music stickers and the lyrics as well.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How to Add Lyrics to Stories through Instagram Music?
 
@@ -92,12 +96,16 @@ Before you post a story or send it to your close friends, you can enlarge or min
 
 ![Add Lyrics to Instagram Music](https://images.wondershare.com/filmora/article-images/add-lyrics-to-instagram-music.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: How to Add Music to Instagram without Music Stickers?
 
 Instagram music works in most cases, but it may be useless if you do not find music of your choice. Sometimes, you want to add a specific song to go with the video's vibe or a photo. In that case, you can upload music using other methods as well. Here, we will share four ways to put music to Instagram stories without stickers.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Method 1: Add music** **to Instagram through Spotify Music**
@@ -115,6 +123,10 @@ Spotify has millions of songs to listen to and add to your library. You can post
 When you click on the three dots, you will be presented with a few options; click **on share**. After clicking on share, you will see a few apps options; click **on Instagram stories**.
 
 ![Share Spotify Music to Instagram Story](https://images.wondershare.com/filmora/article-images/share-spotify-music-to-instagram-stories.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3: Post**
 
@@ -138,10 +150,6 @@ When you **select the ellipsis sign,** you will see a few options and an Instagr
 
 The song will be shared to the stories, **make changes you want, and post**.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Method 3: Share Music to Instagram through Apple Music
 
 Apple Music is one of the best music apps which many people use to listen to their favorite songs. It is an iOS app through which you can also post music on Instagram stories. Let's see how to post music through Apple Music on Instagram stories.
@@ -162,13 +170,13 @@ Note: You might have to click on "More" on some smartphones.
 
 ![Share Apple Music to Instagram Story](https://images.wondershare.com/filmora/article-images/share-apple-music-instagram.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4: Post on stories**
 
 The last thing you will do is post the cover art and the song. People can click on the Apple Music icon to listen to it there.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 4: Edit Instagram stories with Music through Filmora
 
@@ -193,14 +201,6 @@ Once selected, you can edit and customize that video or photo as per your choice
 Finally, you can share your edited Instagram Story Video to your Instagram account right from the app.
 
 ![Share video with Music to Ins](https://images.wondershare.com/filmora/article-images/share-video-with-music-to-instagram.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Frequently Asked Questions About Instagram Music
 
@@ -233,20 +233,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-how-to-create-insta-highlight-cover-photos-an-ultimate-guide-for-2024/"><u>[New] How to Create Insta Highlight Cover Photos An Ultimate Guide for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-10-free-youtube-thumbnail-downloaderssavers-online/"><u>[New] In 2024, 10 Free YouTube Thumbnail Downloaders/Savers Online</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-best-cameras-for-quality-youtube-content/"><u>[New] In 2024, Best Cameras for Quality YouTube Content</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-exploring-the-top-hashtags-for-a-boost-on-ig/"><u>[New] In 2024, Exploring the Top Hashtags for a Boost on IG</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-a-step-by-step-guide-to-creating-compelling-instagram-puzzles/"><u>[Updated] 2024 Approved A Step-by-Step Guide to Creating Compelling Instagram Puzzles</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-instagrams-media-mastery-pro-level-tips-for-pcmac-downloading/"><u>[Updated] In 2024, Instagram's Media Mastery Pro-Level Tips for PC/Mac Downloading</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-probing-into-verified-selfies-significance-in-modern-social-media/"><u>[Updated] In 2024, Probing Into Verified Selfies' Significance in Modern Social Media</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-pioneering-ig-video-influence-crafting-an-excellent-marketing-plan/"><u>[Updated] Pioneering IG Video Influence Crafting an Excellent Marketing Plan</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-square-video-production-masterclass-in-imovie-for-social-media/"><u>[Updated] Square Video Production Masterclass in iMovie for Social Media</u></a></li>
-<li><a href="https://win-best.techidaily.com/4-speicherstande-auf-dem-pc-sofortige-losungsmoglichkeiten/"><u>4 Speicherstände Auf Dem PC – Sofortige Lösungsmöglichkeiten</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-turn-off-google-location-to-stop-tracking-you-on-realme-gt-5-pro-drfone-by-drfone-virtual-android/"><u>How to Turn Off Google Location to Stop Tracking You on Realme GT 5 Pro | Dr.fone</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-androids-video-recording-techniques-explored/"><u>In 2024, Android's Video Recording Techniques Explored</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-best-10-mock-location-apps-worth-trying-on-vivo-y36i-drfone-by-drfone-virtual-android/"><u>In 2024, Best 10 Mock Location Apps Worth Trying On Vivo Y36i | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/resolving-multiple-ms-users-error-on-windows/"><u>Resolving Multiple MS Users' Error on Windows</u></a></li>
-<li><a href="https://games-able.techidaily.com/toggle-times-unite-players-set-new-zone-for-xbox/"><u>Toggle Times, Unite Players: Set New Zone for Xbox</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-unlock-the-secrets-of-premium-instagram-image-creation/"><u>[New] 2024 Approved Unlock the Secrets of Premium Instagram Image Creation</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-unlocking-popularity-the-best-hashtags-to-use-on-instagram/"><u>[New] 2024 Approved Unlocking Popularity The Best #Hashtags to Use on Instagram</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-unleash-your-social-media-potential-find-the-best-8-instagram-timers/"><u>[Updated] 2024 Approved Unleash Your Social Media Potential Find the Best 8 Instagram Timers</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-essential-tips-for-using-switch-pro-controller-with-steam-for-2024/"><u>[Updated] Essential Tips for Using Switch Pro Controller with Steam for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-trending-upward-selective-use-for-your-insta-posts/"><u>[Updated] In 2024, Trending Upward Selective Use for Your Insta Posts</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-understanding-igtv-from-basics-to-boosting-your-presence/"><u>[Updated] In 2024, Understanding IGTV From Basics, to Boosting Your Presence</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-turbo-techniques-for-faster-vimeo-views-for-2024/"><u>[Updated] Turbo Techniques for Faster Vimeo Views for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-ultimate-social-media-analysis-manual-for-decoding-ig-engagement-and-more-for-2024/"><u>[Updated] Ultimate Social Media Analysis Manual for Decoding IG Engagement and More for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-techniques-to-transfer-data-from-oppo-reno-8t-5g-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Techniques to Transfer Data from Oppo Reno 8T 5G to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-honor-100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Best Spy Watches For your Honor 100 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-infinix-note-30-vip-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Infinix Note 30 VIP | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/the-rising-popularity-how-openstack-and-kata-containers-gain-renewed-interest-in-the-tech-world/"><u>The Rising Popularity: How OpenStack & Kata Containers Gain Renewed Interest in the Tech World</u></a></li>
+<li><a href="https://win-outstanding.techidaily.com/yl-computings-ford-f-250-background-images-and-decals/"><u>YL Computing's Ford F-250 Background Images & Decals</u></a></li>
 </ul></div>
 

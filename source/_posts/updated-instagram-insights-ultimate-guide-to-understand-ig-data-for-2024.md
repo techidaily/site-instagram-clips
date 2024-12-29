@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Instagram Insights  Ultimate Guide to Understand IG Data for 2024\""
-date: 2024-12-20T16:41:44.807Z
-updated: 2024-12-23T16:24:47.114Z
+date: 2024-12-27T07:01:14.742Z
+updated: 2024-12-28T18:19:13.979Z
 tags:
   - ai video
   - ai instagram
@@ -53,15 +53,15 @@ Impressions, profile visits, and reach can be visible with insights and can be t
 
 ![access insights from business](https://images.wondershare.com/filmora/article-images/access-instagram-insights-business.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Access insights from post
 
 On your business profile, click a post to view insights. A right tilted arrow on the bottom-right denotes a promoted post.
 
 On a promoted post click ‘Original’ to view its Instagram Insights, and tap ‘Promotion’ for viewing insights.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Access insights from story
 
@@ -73,6 +73,10 @@ Automatic chronological sorting of Stories helps to understand the pattern of co
 ## Part 2: View Posts Data
 
 You can check several posts together or dive deeper into the metrics for post specific information. Here we have explained both of them.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### View metrics for Individual posts
 
@@ -93,10 +97,6 @@ The ‘Discovery’ section’s first statistics denotes percentage of non-follo
 **Others** – posts shared through DM, saved, mentioned, tagged, notifications from tagged/mentioned posts, and posts on ‘Following’ tab notifications
 
 ![view ig data from posts](https://images.wondershare.com/filmora/article-images/view-ig-data-from-posts.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Filtering post data based on metric, timeframe, and content type
 
@@ -125,14 +125,10 @@ Only ‘Stories’ after subscribing to a business account will be offered insig
 **Exits** \- how many times people exit Stories to see their feed
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: Notes you should know
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### The difference between impressions and reach
 
@@ -150,6 +146,10 @@ Apart from Instagram Insights, you can look for a tool like Keyhole. Its Instagr
 
 ![keyhole](https://images.wondershare.com/filmora/article-images/keyhole.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2. [Squarelovin](https://squarelovin.com/business/home/instagram-insights/)
 
 Squarelovin is an in-depth Instagram analytics tool that shows the metrics for recent posts’ growth. Monthly analysis, posts’ history fragmented to year, month, day, and hour as well as deep insights on communities’ interests and preferences is possible. You get to know what fuels engagement, the best and worst time to post.
@@ -157,7 +157,11 @@ Squarelovin is an in-depth Instagram analytics tool that shows the metrics for r
 ![squarelovin](https://images.wondershare.com/filmora/article-images/squarelovin.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -167,14 +171,10 @@ When you have a clear idea about Instagram Insights, achieving the best out of y
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -191,15 +191,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-highlight-hacks-10-ways-to-captivate-your-followers/"><u>[New] Highlight Hacks 10 Ways to Captivate Your Followers</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-avoiding-common-pitfalls-using-movie-maker-on-windows-8/"><u>[New] In 2024, Avoiding Common Pitfalls Using Movie Maker on Windows 8</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-elevate-user-participation-via-personalized-ig-story-polls/"><u>[Updated] 2024 Approved Elevate User Participation via Personalized IG Story Polls</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-ryan-kajis-riches-the-tale-of-youtubes-youngest-mogul-for-2024/"><u>[Updated] Ryan Kaji’s Riches The Tale of YouTube's Youngest Mogul for 2024</u></a></li>
-<li><a href="https://discover-exclusive.techidaily.com/add-new-tunes-with-every-beat-discover-the-latest-top-50-hits-on-our-renowned-karaoke-streaming-platform-this-fifth-day-fiesta/"><u>Add New Tunes with Every Beat - Discover the Latest Top 50 Hits on Our Renowned Karaoke Streaming Platform This Fifth-Day Fiesta!</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/boost-your-site-with-the-cookiebot-custom-tracking-system/"><u>Boost Your Site with the Cookiebot Custom Tracking System</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/pc-image-management-for-iphone-integration-for-2024/"><u>PC Image Management for iPhone Integration for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/quick-and-easy-techniques-to-prevent-your-pc-from-crashing-while-playing-the-sims-3/"><u>Quick and Easy Techniques to Prevent Your PC From Crashing While Playing The Sims 3</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/troubleshooting-tips-resolving-recurrent-rust-application-crashes/"><u>Troubleshooting Tips - Resolving Recurrent Rust Application Crashes</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/turning-insta-vids-into-music-your-complete-guide-for-2024/"><u>Turning Insta Vids Into Music Your Complete Guide for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-amplify-audience-response-with-innovative-instagram-questions/"><u>[New] 2024 Approved Amplify Audience Response with Innovative Instagram Questions</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-top-sites-for-digital-metallic-text-with-a-golden-twist/"><u>[New] Top Sites for Digital Metallic Text with a Golden Twist</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-4-proven-methods-for-perfect-instagram-video-loops/"><u>[Updated] 2024 Approved 4 Proven Methods for Perfect Instagram Video Loops</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-from-novice-to-notable-top-course-recommendations-for-youtubers/"><u>[Updated] 2024 Approved From Novice to Notable Top Course Recommendations for YouTubers</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-unlock-the-potential-of-your-camera-creating-stunning-slow-motion-videos-for-instagram/"><u>[Updated] Unlock the Potential of Your Camera Creating Stunning Slow-Motion Videos for Instagram</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-unlocking-instagrams-power-essential-5-tips-and-examples-from-pros/"><u>[Updated] Unlocking Instagram's Power Essential 5 Tips & Examples From Pros</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-viral-velocity-on-instagram-leveraging-video-and-likes/"><u>[Updated] Viral Velocity on Instagram Leveraging Video & Likes</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-visual-symphony-iosandroid-instagram-collage-app/"><u>[Updated] Visual Symphony IOS/Android Instagram Collage App</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-the-beginners-guide-to-captivating-instagram-video-audiences/"><u>2024 Approved The Beginner's Guide to Captivating Instagram Video Audiences</u></a></li>
+<li><a href="https://howto.techidaily.com/best-methods-for-vivo-y36i-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Vivo Y36i Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/converting-vimeo-videos-to-mp3-format-for-2024/"><u>Converting Vimeo Videos to MP3 Format for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/stepwise-guide-backing-up-and-exporting-mobile-camera-images-for-social-media/"><u>Stepwise Guide Backing Up & Exporting Mobile Camera Images for Social Media</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/unboxing-the-power-of-raspberry-pi-cm4-a-tribute-to-industrial-innovation/"><u>Unboxing the Power of Raspberry Pi CM4 - A Tribute to Industrial Innovation</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/xbox-game-recording-techniques-for-gamers/"><u>Xbox Game Recording Techniques for Gamers</u></a></li>
 </ul></div>
 

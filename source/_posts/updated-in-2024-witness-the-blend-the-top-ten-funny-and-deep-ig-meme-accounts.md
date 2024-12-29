@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Witness the Blend  The Top Ten Funny & Deep IG Meme Accounts\""
-date: 2024-09-25T19:41:48.196Z
-updated: 2024-09-29T22:56:28.066Z
+date: 2024-12-28T01:26:50.313Z
+updated: 2024-12-29T05:40:35.064Z
 tags:
   - ai video
   - ai instagram
@@ -30,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/4622c737506cba1a23868ce6098299cf82c4724d1
 * [**Part 1: 10 best Instagram meme accounts**](#part1)
 * [**Part 2: Why Are Memes So Popular On Instagram, Anyway**](#part2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Dank Memes Instagram Compilation
 
 ## Part1: 10 best Instagram meme accounts
@@ -41,20 +45,6 @@ thumbnail: https://thmb.techidaily.com/4622c737506cba1a23868ce6098299cf82c4724d1
  Memes is one of the biggest communities for memes on the internet, with followers on Facebook as well. They are currently developing a Memes app that you can use in order to make your own memes.
 
 ![memes](https://images.wondershare.com/filmora/article-images/memes-ig.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2. [7thgrader.s](https://www.instagram.com/7thgrader.s/)
 
@@ -73,10 +63,7 @@ thumbnail: https://thmb.techidaily.com/4622c737506cba1a23868ce6098299cf82c4724d1
 ![CelAction2D](https://images.wondershare.com/filmora/article-images/memezar-ig.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4. [vines](https://www.instagram.com/vines/)
@@ -88,16 +75,7 @@ thumbnail: https://thmb.techidaily.com/4622c737506cba1a23868ce6098299cf82c4724d1
 ![vines](https://images.wondershare.com/filmora/article-images/vines-ig.JPG)
 
 <!-- affiliate ads begin -->
-<span id="1983474">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5. [drunk](https://www.instagram.com/drunk/)
@@ -107,6 +85,10 @@ thumbnail: https://thmb.techidaily.com/4622c737506cba1a23868ce6098299cf82c4724d1
  This Instagram page claims to be the largest Instagram community of drunk fails and memes – and the site is still going very strong. While there are a lot of drunk memes and fails, you will also find a variety of ordinary memes from around the web.
 
 ![drunk](https://images.wondershare.com/filmora/article-images/drunk-ig.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 6. [fuckjerry](https://www.instagram.com/fuckjerry/?hl=en)
 
@@ -125,10 +107,7 @@ thumbnail: https://thmb.techidaily.com/4622c737506cba1a23868ce6098299cf82c4724d1
 ![memerizey](https://images.wondershare.com/filmora/article-images/memerizey-ig.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 8. [funnyvideos](https://www.instagram.com/funnyvideos/)
@@ -139,26 +118,6 @@ thumbnail: https://thmb.techidaily.com/4622c737506cba1a23868ce6098299cf82c4724d1
 
 ![funnyvideos](https://images.wondershare.com/filmora/article-images/funnyvideos-ig.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 9. [funnymemes](https://www.instagram.com/funnymemes/)
 
  Followers – 7.9 million
@@ -168,10 +127,7 @@ thumbnail: https://thmb.techidaily.com/4622c737506cba1a23868ce6098299cf82c4724d1
 ![funnymemes](https://images.wondershare.com/filmora/article-images/funnymemes-ig.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 10. [swearcasm](https://www.instagram.com/swearcasm/)
@@ -181,6 +137,14 @@ thumbnail: https://thmb.techidaily.com/4622c737506cba1a23868ce6098299cf82c4724d1
  According to their profile, they’re “50% swearing and 50% sarcasm”, which some people may argue covers a lot of memes that you see on the web. They try to post fairly regularly and are involved in the meme community that has started to build and become more popular on Instagram over the past few years.
 
 ![swearcasm](https://images.wondershare.com/filmora/article-images/swearcasm-ig.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Why Are Memes So Popular On Instagram, Anyway
 
@@ -195,6 +159,10 @@ thumbnail: https://thmb.techidaily.com/4622c737506cba1a23868ce6098299cf82c4724d1
 ### 2\. We Like Sharing Memes
 
  Think about it – if you see a meme that you find amusing or that fits you or someone you know really well, then you will share it to your social media page or send it to your friend. Sharing memes is a lot of fun, and so it’s become something that is really popular for many of us to do.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -219,17 +187,18 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-quick-hacks-for-downloading-instagram-content-onto-iphone/"><u>[New] 2024 Approved Quick Hacks for Downloading Instagram Content Onto iPhone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-rapid-rise-to-instagram-riches-15-innovative-techniques-for-quick-popularity-boost/"><u>[New] In 2024, Rapid Rise to Instagram Riches 15 Innovative Techniques for Quick Popularity Boost</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-top-internet-speech-capture-tools/"><u>[New] Top Internet Speech Capture Tools</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-practical-guide-to-swapping-gender-representation-online-from-basics-to-expertise/"><u>[Updated] In 2024, Practical Guide to Swapping Gender Representation Online From Basics to Expertise</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-pinpointing-pioneers-a-strategic-look-at-influencers-on-insta-for-2024/"><u>[Updated] Pinpointing Pioneers A Strategic Look at Influencers on Insta for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-chuckling-challenge-brainstroming-7-humorous-youtube-videos/"><u>2024 Approved Chuckling Challenge Brainstroming 7 Humorous YouTube Videos</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-essential-skills-importing-snapchat-images-into-device-gallery/"><u>2024 Approved Essential Skills Importing Snapchat Images Into Device Gallery</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-the-ultimate-insights-into-audio-memos/"><u>2024 Approved The Ultimate Insights Into Audio Memos</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-remove-and-reset-face-id-on-iphone-11-pro-by-drfone-ios/"><u>In 2024, How to Remove and Reset Face ID on iPhone 11 Pro</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-poco-m6-5g-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Poco M6 5G to BlackBerry | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/summer-essentials-the-ultimate-list-of-7-accessories-for-your-daily-gobag/"><u>Summer Essentials: The Ultimate List of 7 Accessories for Your Daily GoBag</u></a></li>
-<li><a href="https://games-able.techidaily.com/ultimate-ergonomic-seats-for-giants-in-games/"><u>Ultimate Ergonomic Seats for Giants in Games</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-dive-deep-into-the-soundscapes-of-iphone-podcasts-for-2024/"><u>[New] Dive Deep Into the Soundscapes of iPhone Podcasts for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-effortlessly-preserve-your-linkedin-content-with-the-best-6-apps-for-2024/"><u>[Updated] Effortlessly Preserve Your LinkedIn Content with The Best 6 Apps for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-splitcam-breakdown-best-or-not-amongst-recorders-for-2024/"><u>[Updated] SplitCam Breakdown Best or Not Amongst Recorders for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-top-10-digital-storefronts-for-exquisite-presentation-boxes-for-2024/"><u>[Updated] Top 10 Digital Storefronts for Exquisite Presentation Boxes for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/cookiebot-technology-revolutionizing-personalized-advertising-and-analytics/"><u>Cookiebot Technology – Revolutionizing Personalized Advertising and Analytics</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/elevate-your-instagram-game-with-pro-edit-techniques/"><u>Elevate Your Instagram Game with Pro Edit Techniques</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/elevating-your-igtv-presence-a-guide-to-effective-hash-tags/"><u>Elevating Your IGTV Presence A Guide to Effective Hash Tags</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/expertly-selected-ultimate-guide-to-the-best-note-taking-tablets-of-2e-tested-compared-and-reviewed/"><u>Expertly Selected Ultimate Guide to the Best Note-Taking Tablets of 2E - Tested, Compared, and Reviewed</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/final-cut-pro-x-mastery-crafting-instagrams-desired-format/"><u>Final Cut Pro X Mastery Crafting Instagram's Desired Format</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/harnessing-the-power-of-hashtags-to-amplify-your-igtv-content/"><u>Harnessing the Power of Hashtags to Amplify Your IGTV Content</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/highlight-harmony-the-top-business-tactics-for-insta/"><u>Highlight Harmony The Top Business Tactics for Insta</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-top-4-techniques-for-effective-hp-laptop-screen-capture/"><u>In 2024, Top 4 Techniques for Effective HP Laptop Screen Capture</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/list-of-pokemon-go-joysticks-on-realme-v30t-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Realme V30T | Dr.fone</u></a></li>
 </ul></div>
 

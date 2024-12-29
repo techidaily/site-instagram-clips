@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Art of Story Lensing  Smart Zooms on Instagram for 2024\""
-date: 2024-12-10T16:10:51.154Z
-updated: 2024-12-14T16:23:34.393Z
+date: 2024-12-28T06:23:01.222Z
+updated: 2024-12-29T00:37:25.110Z
 tags:
   - ai video
   - ai instagram
@@ -34,6 +34,10 @@ Here, in this article, we are going to introduce various methods of **zooming in
 * [Part 1: 4 Ways to Zoom in/out on Instagram Stories](#part1)
 * [Part 2: Edit Instagram Videos with Excellent Video Editor](#part2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to zoom in/out in Instagram Stories
 
 #### 1\. Normal Mode
@@ -43,7 +47,7 @@ You can zoom in/out while clicking a picture for Instagram Stories, by pinching 
 ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-normal-mode.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Image resource: later.com
@@ -54,10 +58,6 @@ Image resource: later.com
 
 ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-rewind-mode.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Image resource: techjunkie.com
 
 We know a video in 'Rewind' mode is pretty cute and funny, as the chain of events occurs in the reverse order. So, to zoom in/out while shooting one such video in 'Rewind' mode, you need to press the record button and then swipe up/down your finger, just like in the 'Normal' mode. Here also, if you remove your finger, the recording will stop. Master how to zoom in Instagram Stories, while recording in 'Rewind' mode.
@@ -65,6 +65,10 @@ We know a video in 'Rewind' mode is pretty cute and funny, as the chain of event
 #### 3\. Boomerang
 
 ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-superzoom-mode.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Image resource: metro.com
 
@@ -81,7 +85,7 @@ There are two-options while you want to zoom in/out using the 'Hands-Free' mode.
 Be it a 'Boomerang', 'Rewind', 'Hands-Free', or 'Normal' mode video, learning how to zoom in Instagram Stories is sure to make your stories cool and funky.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Edit Instagram Videos with Wondershare Filmora
@@ -91,7 +95,7 @@ Editing Instagram videos is not difficult at all as long as you installed a powe
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Final Verdict
@@ -111,10 +115,6 @@ You May also like
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -130,19 +130,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-discovering-instagram-de-follows-quickly/"><u>[New] Discovering Instagram De-Follows Quickly</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-the-monetary-scope-of-mr-beasts-ventures/"><u>[New] In 2024, The Monetary Scope of Mr. Beast’s Ventures</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-in-2024-unboxing-logitechs-ultimate-4k-webcam/"><u>[New] In 2024, Unboxing Logitech's Ultimate 4K Webcam</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-sharex-review-and-best-alternatives/"><u>[New] ShareX Review and Best Alternatives</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-crafting-visual-harmony-with-bokeh-techniques-in-storytelling/"><u>[Updated] Crafting Visual Harmony with Bokeh Techniques in Storytelling</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-discover-instagram-stories-in-private-mode/"><u>[Updated] Discover Instagram Stories In Private Mode</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-pioneering-seven-water-resilient-camera-brands-for-2024/"><u>[Updated] Pioneering Seven Water-Resilient Camera Brands for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-elevate-your-feed-10-must-have-instagram-tools/"><u>2024 Approved Elevate Your Feed 10 Must-Have Instagram Tools</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-elevate-your-instagram-videos-size-and-quality-insights/"><u>2024 Approved Elevate Your Instagram Videos Size and Quality Insights</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-top-live-stream-scenery-ideas-2023/"><u>2024 Approved Top Live Stream Scenery Ideas 2023</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/through-in-video-production-advanced-techniques-for-uploading-360-content-on-youtube/"><u>Breakthrough in Video Production Advanced Techniques for Uploading 360° Content on YouTube</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/elite-architects-best-of-breed-instragram-hlv-artisans-for-2024/"><u>Elite Architects Best-of-Breed Instragram HLV Artisans for 2024</u></a></li>
-<li><a href="https://driver-install.techidaily.com/how-to-update-focusrite-scarlett-6i6-driver-installation-guide/"><u>How to Update Focusrite Scarlett 6I6 Driver - Installation Guide</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/setting-up-a-digital-stage-for-real-time-viewers/"><u>Setting Up a Digital Stage for Real-Time Viewers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-best-alternative-editors-for-youtube-creators-seeking-new-horizons/"><u>[New] Best Alternative Editors for YouTube Creators Seeking New Horizons</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-speeding-up-your-instagram-video-watch-time/"><u>[New] In 2024, Speeding Up Your Instagram Video Watch Time</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-spotting-the-top-10-covert-instagram-story-spectators/"><u>[New] In 2024, Spotting the Top 10 Covert Instagram Story Spectators</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-smooth-sailing-with-instagram-fixes-for-frustrations-for-2024/"><u>[New] Smooth Sailing with Instagram Fixes for Frustrations for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-stepping-up-your-game-on-instagram-for-2024/"><u>[New] Stepping Up Your Game on Instagram for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-quick-guide-sharing-igtv-in-the-world-of-insta-stories/"><u>[Updated] 2024 Approved Quick Guide Sharing IGTV in the World of Insta Stories</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-revel-in-the-best-of-both-worlds-10-meme-feeds-for-chuckles-and-sobs/"><u>[Updated] In 2024, Revel in the Best of Both Worlds 10 Meme Feeds for Chuckles & Sobs</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-simplify-your-social-media-uploading-multiple-photos-and-vids-on-ig/"><u>[Updated] In 2024, Simplify Your Social Media Uploading Multiple Photos and Vids on IG</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-make-my-video-perfectly-fit-instagram-for-2024/"><u>[Updated] Make My Video Perfectly Fit Instagram for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-propel-your-social-media-success-best-6-apps-for-instagram-reels-for-2024/"><u>[Updated] Propel Your Social Media Success Best 6 Apps for Instagram Reels for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-quick-glimpse-youtube-shorts-insights/"><u>[Updated] Quick Glimpse YouTube Shorts Insights</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-snapshot-stability-mastering-motion/"><u>[Updated] Snapshot Stability Mastering Motion</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-spotlight-the-25-influencers-redefining-engagement-for-2024/"><u>[Updated] Spotlight The 25 Influencers Redefining Engagement for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/boosted-efficiency-with-mouse-gestures-get-set-for-edges-latest-features-win-11/"><u>Boosted Efficiency with Mouse Gestures: Get Set for Edge's Latest Features (Win 11)</u></a></li>
+<li><a href="https://review-topics.techidaily.com/does-find-my-friends-work-on-infinix-note-30-vip-drfone-by-drfone-virtual-android/"><u>Does find my friends work on Infinix Note 30 VIP | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/navigating-through-high-performance-tech-with-tom-at-the-helm-toms-hardware-haven/"><u>Navigating Through High-Performance Tech with Tom at the Helm - Tom's Hardware Haven</u></a></li>
+<li><a href="https://win-blog.techidaily.com/reviving-your-hp-screen-a-step-by-step-guide-issues-solved/"><u>Reviving Your HP Screen: A Step-by-Step Guide (ISSUES SOLVED)</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-6-best-sim-unlock-services-that-actually-work-on-your-zte-nubia-z60-ultra-device-by-drfone-android/"><u>The 6 Best SIM Unlock Services That Actually Work On Your ZTE Nubia Z60 Ultra Device</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/top-rated-protective-cases-for-samsung-galaxy-s24-ultra/"><u>Top-Rated Protective Cases for Samsung Galaxy S24 Ultra</u></a></li>
 </ul></div>
 

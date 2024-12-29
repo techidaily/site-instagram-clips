@@ -1,7 +1,7 @@
 ---
 title: "[New] Get Close or Farther with Ease on Instagram Stories"
-date: 2024-12-17T17:18:09.877Z
-updated: 2024-12-23T16:15:00.935Z
+date: 2024-12-28T03:16:32.165Z
+updated: 2024-12-29T00:52:52.421Z
 tags:
   - ai video
   - ai instagram
@@ -35,7 +35,7 @@ Here, in this article, we are going to introduce various methods of **zooming in
 * [Part 2: Edit Instagram Videos with Excellent Video Editor](#part2)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to zoom in/out in Instagram Stories
@@ -70,15 +70,15 @@ Shooting a video in 'Boomerang' is exciting while creating Instagram Stories. We
 
 ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-hands-free-mode.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Image resource: later.com
 
 There are two-options while you want to zoom in/out using the 'Hands-Free' mode. You can pinch the screen and zoom in or out prior to recording the video. Now, tap the record button, the video will be automatically recorded after a few seconds. Remember! You are using the 'Hands-Free' mode, so no holding the record button. The second method is similar to the previous methods of zooming in/out videos for Instagram Stories. Tap the record button and wait till the point where you want to zoom in/out. At that very point, hold the record button and slide your finger up/down to zoom in/out the video. This is how to zoom in/out Instagram Stories using 'Hands-Free' mode.
 
 Be it a 'Boomerang', 'Rewind', 'Hands-Free', or 'Normal' mode video, learning how to zoom in Instagram Stories is sure to make your stories cool and funky.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Edit Instagram Videos with Wondershare Filmora
 
@@ -87,11 +87,11 @@ Editing Instagram videos is not difficult at all as long as you installed a powe
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Final Verdict
@@ -112,7 +112,7 @@ You May also like
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -130,24 +130,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-instagram-upload-recycling-101/"><u>[New] In 2024, Instagram Upload Recycling 101</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-perfectly-timed-instagram-content-our-list-of-the-top-8-schedulers/"><u>[New] In 2024, Perfectly Timed Instagram Content - Our List of the Top 8 Schedulers</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-unveil-the-potential-of-instagram-footage-comprehensive-guide-to-mp4-conversion-software-windowsosx/"><u>[New] In 2024, Unveil the Potential of Instagram Footage Comprehensive Guide to MP4 Conversion Software [Windows/OSX]</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-instagram-to-mp4-perfection-uncover-2-most-effective-techniques/"><u>[New] Instagram to MP4 Perfection Uncover 2 Most Effective Techniques</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-unlocking-igtv-potential-converting-and-curating-horizontal-videos/"><u>[New] Unlocking IGTV Potential Converting and Curating Horizontal Videos</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-speedy-instagram-content-mobile-and-online-solutions/"><u>[Updated] 2024 Approved Speedy Instagram Content Mobile & Online Solutions</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-crafting-eye-catching-instagram-story-previews/"><u>[Updated] In 2024, Crafting Eye-Catching Instagram Story Previews</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-step-by-step-inserting-times-on-youtube-videos/"><u>[Updated] In 2024, Step-by-Step Inserting Times on YouTube Videos</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-scaling-movies-on-a-mac-for-impeccable-instagram-shares/"><u>[Updated] Scaling Movies on a Mac for Impeccable Instagram Shares</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-ultimate-audio-treasures-for-video-crafting/"><u>[Updated] Ultimate Audio Treasures for Video Crafting</u></a></li>
-<li><a href="https://win-hacks.techidaily.com/can-you-rely-on-windows-defender-alone-for-robust-antivirus-protection-expert-insights-from-yl-computing/"><u>Can You Rely on Windows Defender Alone for Robust Antivirus Protection? Expert Insights From YL Computing</u></a></li>
-<li><a href="https://driver-download.techidaily.com/get-the-newly-released-2024-drivers-for-your-hp-deskjet-2700-download-now/"><u>Get the Newly Released 2024 Drivers for Your HP Deskjet 2700 – Download Now!</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-how-to-post-a-video-between-twitter-and-tumblr/"><u>In 2024, How to Post a Video Between Twitter and Tumblr?</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-the-ultimate-ig-coverage-toolkit-apple-and-android-included/"><u>In 2024, The Ultimate IG Coverage Toolkit, Apple & Android Included</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-lava-blaze-2-device-by-drfone-android/"><u>The Ultimate Guide How to Bypass Swipe Screen to Unlock on Lava Blaze 2 Device</u></a></li>
-<li><a href="https://techidaily.com/the-way-to-recover-deleted-pictures-on-samsung-galaxy-a14-5g-without-backup-by-fonelab-android-recover-pictures/"><u>The way to recover deleted pictures on Samsung Galaxy A14 5G without backup.</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/ultimate-guide-engaging-crypto-prompts-for-chatgpt-experts/"><u>Ultimate Guide: Engaging Crypto Prompts for ChatGPT Experts</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/unveiling-the-oculum-q2-top-tier-easy-to-use-virtual-world-for-great-value/"><u>Unveiling the Oculum Q2: Top-Tier, Easy to Use Virtual World for Great Value</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/voices-on-the-page-techniques-for-effective-scriptwriting/"><u>Voices on the Page Techniques for Effective Scriptwriting</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-become-an-instagram-reel-guru-with-these-proven-strategies/"><u>[New] Become an Instagram Reel Guru with These Proven Strategies</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-bring-back-the-sparkle-applying-instagram-effects-retro-style/"><u>[New] Bring Back the Sparkle Applying Instagram Effects Retro Style</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unlocking-the-secret-of-hashtags-for-six-figures/"><u>[New] Unlocking the Secret of #Hashtags for Six Figures</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-find-the-best-value-top-6-budget-friendly-camera-options/"><u>[Updated] Find the Best Value Top 6 Budget-Friendly Camera Options</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-decoding-instagram-selfies-the-validation-handbook/"><u>2024 Approved Decoding Instagram Selfies The Validation Handbook</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/best-practices-for-measuring-igtv-video-effectiveness-for-2024/"><u>Best Practices for Measuring IGTV Video Effectiveness for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/best-practices-in-altering-igtv-video-titles-for-2024/"><u>Best Practices in Altering IGTV Video Titles for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/felicia-day-explores-the-world-of-additive-manufacturing-a-special-offer-on-her-custom-3d-models-for-enthusiasts/"><u>Felicia Day Explores the World of Additive Manufacturing: A Special Offer on Her Custom 3D Models for Enthusiasts</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722971673187-get-the-latest-steelseries-mouse-driver-downloads-here/"><u>Get the Latest SteelSeries Mouse Driver Downloads Here</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-bringing-up-the-height-editing-instagram-content-with-fcpx/"><u>In 2024, Bringing Up the Height Editing Instagram Content with FCPX</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/starting-your-own-platform-a-guide-to-reviews-and-ratings-for-gadgets-for-2024/"><u>Starting Your Own Platform A Guide to Reviews and Ratings for Gadgets for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/status-bt-classic-insight-budget-friendly-with-room-for-improvement/"><u>Status BT Classic Insight: Budget-Friendly with Room for Improvement</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/timeless-tech-treatment-reviving-oldschool-gaming/"><u>Timeless Tech Treatment: Reviving Oldschool Gaming</u></a></li>
 </ul></div>
 

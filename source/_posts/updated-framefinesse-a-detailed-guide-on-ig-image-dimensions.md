@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] FrameFinesse  A Detailed Guide on IG Image Dimensions\""
-date: 2024-12-21T16:31:35.637Z
-updated: 2024-12-23T17:40:27.361Z
+date: 2024-12-27T01:48:34.298Z
+updated: 2024-12-29T01:12:37.104Z
 tags:
   - ai video
   - ai instagram
@@ -30,7 +30,7 @@ Taking photos with iPhones and Android Smartphones and posting them to Instagram
 Troubles begin when you want to upload photos and videos that weren't captured with a Smartphone to Instagram. In most cases, the photos and videos produced by DSLR cameras and other semi-professional and professional equipment are much larger than the sizes supported by Instagram. That is the reason why we created this guide that will help you post visual content that is perfectly adjusted to Instagram in 2021.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Types of Files Accepted by Instagram
@@ -50,7 +50,7 @@ Duration of Videos on Instagram
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Best Image Sizes for Instagram Posts
@@ -62,7 +62,7 @@ A couple of years ago, Instagram has finally allowed its users to upload images 
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
@@ -90,7 +90,7 @@ The profile pictures on Instagram are tiny, and the optimum size for them is 160
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -108,20 +108,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-sharp-focus-tech-best-4k-camera-phones-of-the-genre/"><u>[New] 2024 Approved Sharp Focus Tech Best 4K Camera Phones of the Genre</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-craft-magical-reels-on-instagram-using-top-6-tools-for-2024/"><u>[New] Craft Magical Reels on Instagram Using Top 6 Tools for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-essential-tips-for-utilizing-instagram-story-sections/"><u>[New] Essential Tips for Utilizing Instagram Story Sections</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-instantaneous-window-imaging-technique/"><u>[New] In 2024, Instantaneous Window Imaging Technique</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-optimizing-igtv-video-success-metrics-for-2024/"><u>[New] Optimizing IGTV Video Success Metrics for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-title-and-description-tweaks-for-maximum-engagement-on-igtv-for-2024/"><u>[New] Title and Description Tweaks for Maximum Engagement on IGTV for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/updated-bridge-the-gap-between-skype-and-zoom-with-simple-steps/"><u>[Updated] Bridge the Gap Between Skype & Zoom with Simple Steps</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-how-to-upload-horizontal-videos-to-igtv-3-ways/"><u>[Updated] How to Upload Horizontal Videos to IGTV [3 Ways]</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/are-there-any-restrictions-on-length-in-chatgpt-answers/"><u>Are There Any Restrictions on Length in ChatGPT Answers?</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/complete-tutorial-setting-up-and-using-remote-desktop-feature-in-windows-11/"><u>Complete Tutorial: Setting Up and Using Remote Desktop Feature in Windows 11</u></a></li>
-<li><a href="https://win11.techidaily.com/solutions-for-function-keys-not-adjusting-display-brighness-on-win-11/"><u>Solutions for Function Keys Not Adjusting Display Brighness on Win 11</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/the-art-of-patience-mastering-the-craft-of-producing-captivating-slow-motion-videos-and-photos-for-instagram/"><u>The Art of Patience Mastering the Craft of Producing Captivating Slow Motion Videos and Photos for Instagram</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-itel-a60s-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Itel A60s? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-infinix-note-30i-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Infinix Note 30i | Dr.fone</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/unraveling-the-mysteries-behind-the-paperclip-maximizer-issue-in-ai-systems/"><u>Unraveling the Mysteries Behind the Paperclip Maximizer Issue in AI Systems</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-techniques-for-fascinating-vlog-dialogue-structure/"><u>[New] Techniques for Fascinating Vlog Dialogue Structure</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-escalate-video-display-in-public-profile/"><u>[Updated] In 2024, Escalate Video Display in Public Profile</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-proactive-measures-against-typical-short-video-issues/"><u>[Updated] Proactive Measures Against Typical Short Video Issues</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-unraveling-lightrooms-potential-on-android-devices/"><u>[Updated] Unraveling Lightroom's Potential on Android Devices</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-straightforward-methods-to-save-insta-story-videos/"><u>2024 Approved Straightforward Methods to Save Insta Story Videos</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-3utools-virtual-location-not-working-on-samsung-galaxy-a34-5g-fix-now-drfone-by-drfone-virtual-android/"><u>In 2024, 3uTools Virtual Location Not Working On Samsung Galaxy A34 5G? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-sharing-knowledge-via-instagrams-hyperlink-haven/"><u>In 2024, Sharing Knowledge via Instagram's Hyperlink Haven</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-smooth-process-incorporating-igtv-in-stories/"><u>In 2024, Smooth Process Incorporating IGTV in Stories</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-swift-strategies-for-instagram-reel-success/"><u>In 2024, Swift Strategies for Instagram Reel Success</u></a></li>
+<li><a href="https://fox-shield.techidaily.com/mastering-configurations-the-expert-guide-to-importing-ini-files/"><u>Mastering Configurations: The Expert Guide to Importing INI Files</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/pixel-9xl-vs-iphone-2023-capturing-the-winning-shots-and-unexpected-results-revealed/"><u>Pixel 9XL vs iPhone 2023: Capturing the Winning Shots & Unexpected Results Revealed</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-5-tracking-apps-to-track-honor-x9b-without-them-knowing-drfone-by-drfone-virtual-android/"><u>Top 5 Tracking Apps to Track Honor X9b without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/winxvideo-ki-anleitung-professionelle-videooptimierung-und-anwendungsguide-aufzeichnen-verarbeiten-komprimieren-and-konvertieren/"><u>WinxVideo KI-Anleitung: Professionelle Videooptimierung Und Anwendungsguide – Aufzeichnen, Verarbeiten, Komprimieren & Konvertieren</u></a></li>
 </ul></div>
 

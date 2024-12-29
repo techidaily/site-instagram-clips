@@ -1,7 +1,7 @@
 ---
 title: "[New] Expert Tips for Instagram Green Screen Shoots"
-date: 2024-12-21T16:32:29.267Z
-updated: 2024-12-23T17:38:34.894Z
+date: 2024-12-24T06:51:48.397Z
+updated: 2024-12-28T17:47:49.135Z
 tags:
   - ai video
   - ai instagram
@@ -36,7 +36,7 @@ Green screen IG is a unique effect that can be used to add special effects to yo
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to Use Green Screen Effects in IG
@@ -61,25 +61,21 @@ Now tap on the search option and type **Green Screen.** Several effects will com
 
 ![Ins Green Screen Filters](https://images.wondershare.com/filmora/article-images/instagram-green-screen-filters.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 4: Tap on Add Media
 
 Tap on the **Add Media** option to add the background. Upload a video or an image for the background. After that, drag yourself to the area where you wish to see yourself.
 
 ![add Ins Green Screen Filters](https://images.wondershare.com/filmora/article-images/add-media-instagram-green-screen-filter.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Step 6: Add to the Story or Download it
 
 Now either add it to your Instagram story by tapping on the bottom left option or download it to your phone's library by clicking on the **Download** option.
 
 ![download Ins Green Screen video](https://images.wondershare.com/filmora/article-images/download-green-screen-video-from-instagram.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: How to Use the Green Screen on Instagram Reel
 
@@ -102,7 +98,7 @@ Click on **Profile Picture** on the top left, named as your story, to start it. 
 Now select the **Reels** option. A panel will appear on the right side, and then you need to choose **Effects** from it. Remember that the green screen effect is not already provided, so you have to search for it. Swipe all the way to the right until you get to the **Browse Effects** option.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 4: Search Green Screen
@@ -110,7 +106,7 @@ Now select the **Reels** option. A panel will appear on the right side, and then
 Now, search **Green Screen** in the search menu and click the first option to see the official green screen ig effect. Now **download** the effect using the download the option.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 5: Add Media
@@ -120,6 +116,10 @@ Now upload your media using **Add Media** option. Now drag yourself where you wa
 The video below shares some of the interesting green screen tricks, don't miss it.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: How to Remove Background from Instagram Video without Green Effect Effects
 
@@ -135,11 +135,23 @@ However, Instagram also supports landscape videos, portrait videos, and square v
 
 **Al Portrait in Filmora** is the best way to remove the background of an Instagram video without Green Screen Instagram effects. It can remove the background of IGTV video without affecting its movement and lighting. The following steps can assist you in knowing how to use it for removing the background.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 1: Import Media
 
 Import the media you want to upload on Instagram to Filmora. Then select **AI Portrait** from **Effects** in the menu.
 
 ![add media to Filmora](https://images.wondershare.com/filmora/article-images/add-media-remove-video-bg.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step 2: Add the AI Portrait Effect to Remove Video Background
 
@@ -147,27 +159,19 @@ Al Portrait is not a free module, so either you have to **Purchase** it or **Try
 
 ![add human segmentation effects in  Filmora](https://images.wondershare.com/filmora/article-images/add-human-segmentation-to-remove-background.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Step 3: Adjust Effects
 
 Different effects have different settings so that you can adjust the effects according to your convenience. You have to **double click** the video in the timeline and then go to the Video Effects to adjust the **Percentage, Edge thickness, Edge Feature, and Alpha** setting of the effect. You can also restore the changes you've made by selecting the **Restore** button.
 
 ![add human segmentation effects ](https://images.wondershare.com/filmora/article-images/human-segmentation-effects-adjust.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Now you have gotten a video without a background, you can now add your own background to compose them together.
 
 ![compose green screen video ](https://images.wondershare.com/filmora/article-images/compose-video-without-green-screen.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step 4: Export the video
 
@@ -182,10 +186,6 @@ Instagram has opened up a gateway by launching the **green screen Instagram** ef
 To solve this problem, we have covered a step-by-step guide for using the green screen effect on Instagram. We highly recommend Al portrait of Filmora to remove the background seamlessly and quickly to achieve a high-quality final video.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -202,16 +202,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-closer-look-techniques-for-microsoft-teams-for-2024/"><u>[New] Closer Look Techniques for Microsoft Teams for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-direct-to-your-library-simple-windows-and-mac-techniques-for-downloading-igtv/"><u>[New] Direct to Your Library Simple Windows & Mac Techniques for Downloading IGTV</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-the-pros-pathway-to-professional-video-conferencing-with-slack-and-filmora/"><u>[New] In 2024, The Pro's Pathway to Professional Video Conferencing with Slack & Filmora</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-lens-and-light-the-best-of-cinematographic-insights-24-edition/"><u>[New] Lens & Light The Best of Cinematographic Insights - '24 Edition</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/nderstanding-user-engagement-measuring-own-and-enemy-content-for-2024/"><u>[New] Understanding User Engagement Measuring Own and Enemy Content for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-crafting-visual-wonders-the-art-of-3d-text-in-psartwork/"><u>[Updated] Crafting Visual Wonders The Art of 3D Text in PSArtwork</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-decoding-visual-history-navigating-reverse-search-on-instagram/"><u>[Updated] Decoding Visual History Navigating Reverse Search on Instagram</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-dynamic-duo-combining-multiple-photos-for-impactful-stories/"><u>[Updated] Dynamic Duo Combining Multiple Photos for Impactful Stories</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-elevate-your-account-25-top-instagram-tags-for-maximum-engagement/"><u>In 2024, Elevate Your Account 25 Top Instagram Tags for Maximum Engagement</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/integrate-video-content-for-playlist-building-for-2024/"><u>Integrate Video Content for Playlist Building for 2024</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-the-best-of-the-app-store-top-iphone-apps-for-2024/"><u>Updated The Best of the App Store Top iPhone Apps for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-engaging-emojis-boost-your-videos-appeal-without-payments/"><u>[New] 2024 Approved Engaging Emojis Boost Your Video's Appeal Without Payments</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-synergizing-social-networks-share-your-igtv-content/"><u>[New] 2024 Approved Synergizing Social Networks Share Your IGTV Content</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-accelerated-video-maker-time-lapse-edition-for-2024/"><u>[New] Accelerated Video Maker Time-Lapse Edition for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-investigating-whether-photostabilizer-transforms-image-quality/"><u>[New] Investigating Whether PhotoStabilizer Transforms Image Quality</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-staying-pure-hearted-amidst-the-ruse-of-ratings-and-likes-for-2024/"><u>[New] Staying Pure-Hearted Amidst the Ruse of Ratings and Likes for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-strategic-social-media-mastery-instagrams-5-crucial-steps-with-examples-for-2024/"><u>[New] Strategic Social Media Mastery Instagram's 5 Crucial Steps with Examples for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-spurring-instagram-audience-for-more-vids/"><u>[Updated] 2024 Approved Spurring Instagram Audience for More Vids</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-step-by-step-guide-adding-subs-to-igtv/"><u>[Updated] In 2024, Step-by-Step Guide Adding Subs to IGTV</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-incorporating-visual-media-into-free-writings/"><u>In 2024, Incorporating Visual Media Into Free Writings</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-wondering-the-best-alternative-to-hola-on-vivo-y100i-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>In 2024, Wondering the Best Alternative to Hola On Vivo Y100i? Here Is the Answer | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/looking-for-a-location-changer-on-oppo-a2-look-no-further-drfone-by-drfone-virtual-android/"><u>Looking For A Location Changer On Oppo A2? Look No Further | Dr.fone</u></a></li>
 </ul></div>
 

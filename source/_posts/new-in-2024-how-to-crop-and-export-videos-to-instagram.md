@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, How to Crop and Export Videos to Instagram"
-date: 2024-12-20T17:33:31.278Z
-updated: 2024-12-23T16:45:14.500Z
+date: 2024-12-25T16:20:37.936Z
+updated: 2024-12-28T22:10:05.183Z
 tags:
   - ai video
   - ai instagram
@@ -29,10 +29,6 @@ With more than 500 million active daily users Instagram has become one of the la
 
 **You May Also Like:** [How to Crop Photos/Images on iPhone](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to crop and export videos to instagram
 
 #### **Best cropping tool – Wondershare Filmora**
@@ -52,18 +48,18 @@ In order to start cropping your videos, you first must install the Filmora video
 ![](https://images.wondershare.com/filmora/article-images/filmora-import.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2: Drag and Drop the video file onto the Timeline**
 
 ![](https://images.wondershare.com/filmora/article-images/video-editor-main-interface-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Now that the video clip you want to edit is in the editor's media library, drag it and drop it to the timeline.
 
@@ -76,7 +72,7 @@ Chances are that the camera you used to record your video clip recorded the foot
 ![check aspect ratio](https://images.wondershare.com/filmora/article-images/check-aspect-ratio.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Once the new window appears, you should click on the Format icon positioned in the upper left corner of the screen. Select the MP4 format, name your file and select the folder where the file will be exported.
@@ -91,6 +87,10 @@ In order to create a video that has a portrait aspect ratio, you need to crop it
 
 ![crop and zoom filmora](https://images.wondershare.com/filmora/article-images/crop-and-zoom-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Adjust the crop tool's position and click OK. The export process for landscape and portrait videos is nearly identical and the only thing you need to change is the resolution. Click on the Resolution drop-down menu and select the custom option and then enter the height and weight values you inserted in the cropping tool. Your portrait video is ready to be exported.
 
 **3\. Square (1:1)**
@@ -102,7 +102,7 @@ The steps for exporting square videos are the same as the steps you need to take
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -120,20 +120,20 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-vlc-versus-mx-video-choice-showdown/"><u>[New] 2024 Approved VLC Versus MX Video Choice Showdown</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/1716070191852-new-in-2024-capture-and-share-your-mac-life-free/"><u>[New] In 2024, Capture & Share Your Mac Life, FREE!</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-sharpened-focus-on-squares-creating-striking-imovie-content-for-instagram/"><u>[New] In 2024, Sharpened Focus on Squares Creating Striking iMovie Content for Instagram</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-showcase-mastery-weaving-youtube-into-instagram-tales/"><u>[New] In 2024, Showcase Mastery Weaving YouTube Into Instagram Tales</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-smile-sob-and-snicker-with-these-ig-meme-masters-of-humor/"><u>[New] In 2024, Smile, Sob and Snicker with These IG Meme Masters of Humor</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-upload-and-share-your-visual-content-on-youtube/"><u>[New] Upload & Share Your Visual Content on YouTube</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-simple-routines-for-saving-instagram-stories-efficiently/"><u>[Updated] 2024 Approved Simple Routines for Saving Instagram Stories Efficiently</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-stay-ahead-of-the-curve-with-these-10-must-use-tags/"><u>[Updated] 2024 Approved Stay Ahead of the Curve with These 10 Must-Use Tags</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-step-by-step-guide-to-using-instagram-filters-and-icons/"><u>[Updated] In 2024, Step-by-Step Guide to Using Instagram Filters and Icons</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-social-media-self-proofing-deciphering-ig-identity-for-2024/"><u>[Updated] Social Media Self-Proofing Deciphering IG Identity for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-change-honor-v-purse-lock-screen-password-by-drfone-android/"><u>In 2024, How To Change Honor V Purse Lock Screen Password?</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-with-location-spoofer-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>In 2024, How To Simulate GPS Movement With Location Spoofer On Apple iPhone 8? | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/in-2024-how-to-use-life360-on-windows-pc-for-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Use Life360 on Windows PC For Apple iPhone 13 Pro Max? | Dr.fone</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/reasons-for-vivo-t2-5g-stuck-on-boot-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Vivo T2 5G Stuck on Boot Screen and Ways To Fix Them | Dr.fone</u></a></li>
-<li><a href="https://windows11.techidaily.com/simplifying-the-process-of-getting-adobe-reader-on-ms-store/"><u>Simplifying the Process of Getting Adobe Reader on MS Store</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-mastering-monetization-an-instagram-income-journey/"><u>[New] 2024 Approved Mastering Monetization An Instagram Income Journey</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-mastering-social-media-the-finest-6-reel-enhancing-apps/"><u>[New] In 2024, Mastering Social Media The Finest 6 Reel-Enhancing Apps</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-mastering-subtitles-on-the-social-media-stage-igtv/"><u>[New] In 2024, Mastering Subtitles on the Social Media Stage IGTV</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-mastering-content-and-connections-insta-follower-rise-for-2024/"><u>[New] Mastering Content & Connections Insta-Follower Rise for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-perfect-guide-for-linking-instagram-to-tiktok/"><u>[New] Perfect Guide for Linking Instagram to TikTok</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-master-the-art-of-fast-instagram-videos/"><u>[Updated] 2024 Approved Master the Art of Fast Instagram Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-discover-best-8-3d-realms-with-glossy-text-effects/"><u>[Updated] Discover Best 8 3D Realms with Glossy Text Effects</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-elevating-your-youtube-presence-with-effective-tags/"><u>[Updated] In 2024, Elevating Your YouTube Presence with Effective Tags</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-masterful-designers-top-insta-hlv-page-builders/"><u>[Updated] In 2024, Masterful Designers Top Insta HLV Page Builders</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-mastering-instagrams-latest-features-reels-and-stories/"><u>[Updated] In 2024, Mastering Instagram’s Latest Features Reels & Stories</u></a></li>
+<li><a href="https://techidaily.com/complete-tutorial-for-itel-a05s-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Complete Tutorial for Itel A05s Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://driver-download.techidaily.com/1722958517390-improved-functionality-alert-download-the-new-driver-for-your-dell-2330d-or-2330dn-laser-printer-now/"><u>Improved Functionality Alert: Download the New Driver for Your Dell 2330D or 2330Dn Laser Printer Now</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/overcoming-setbacks-in-windows-10-version-1607-upgrade-process/"><u>Overcoming Setbacks in Windows 10 Version 1607 Upgrade Process</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/watch-in-style-top-8-best-mobile-movies-for-iphones/"><u>Watch in Style Top 8 Best Mobile Movies for iPhones</u></a></li>
+<li><a href="https://video-capture.techidaily.com/44oh44kj44k544kz44o844oj44gn5l244gi44kl44oz44k544oi44gq6yyy6zplusz44ki44ox44oq44o744k944ov44oi77yu5o6o6jam/"><u>ディスコードで使えるベストな録音アプリ・ソフト４推薦</u></a></li>
 </ul></div>
 
