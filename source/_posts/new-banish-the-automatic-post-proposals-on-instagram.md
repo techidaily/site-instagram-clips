@@ -1,7 +1,7 @@
 ---
 title: "[New] Banish the Automatic Post Proposals on Instagram"
-date: 2024-12-26T21:35:59.228Z
-updated: 2024-12-28T17:44:12.490Z
+date: 2025-01-04T16:01:08.914Z
+updated: 2025-01-07T22:16:34.137Z
 tags:
   - ai video
   - ai instagram
@@ -50,7 +50,7 @@ Suggested posts will let you scroll through Instagram a bit more and even give y
 The intent of these features is to know more like-minded people and follow them to see more of their posts.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to Turn off Suggested Posts on Instagram?
@@ -64,6 +64,10 @@ Here's what you need to do:
 **Step 1:** Open your Instagram account and if you are not logged in, simply enter your credentials to log in. You can do this by visiting your Instagram mobile app or via the browser. Once your account is open, instead of going to your profile, stay on the home page, which shows you the latest posts of people you are following.
 
 ![ suggestions for you on Ins](https://images.wondershare.com/filmora/article-images/instagram-suggestions-for-you.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 2:** Go to the home page, where you can see posts of the people you follow. Now, scroll down towards the end and stop when you see the "you're all caught up" message.
 
@@ -79,11 +83,11 @@ Here's what you need to do:
 
 ![choose your feedback option](https://images.wondershare.com/filmora/article-images/instagram-suggestion-posts-feedback.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Now, you can apply the same steps for the rest of the posts as well. But do keep in mind that suggested posts will still appear. And you will have to apply this setting for each one so that you are shown fewer posts of unknown people.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: How to Delete Suggested Users from Instagram?
 
@@ -102,12 +106,16 @@ If you don't want to see suggested users on your Instagram feed, there is a way 
 **Step 4:** To delete multiple suggested users, just click on the see all option, and the list of suggested users will appear; now click on the X for each user you want to delete. However, you need to delete everyone one by one individually.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### For web browsers
 
 The problem with web browsers is that you won't be able to remove the suggested users like you can through your Instagram app on your Android or iOS devices. So, the only way out for you will be to open your Instagram mobile app and then do it from there by following the steps that we have mentioned for Instagram app users.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 4: How to Avoid Showing up in Other Users' Suggestions for Your List
 
@@ -120,10 +128,6 @@ Just like Instagram show you suggested users and posts, your account gets recomm
 **Step 3:** Scroll down towards the bottom, and you will find the similar account suggestions section. In this section, you will see a checkbox. You need to uncheck that if you don't want your name to appear as a suggested user.
 
 ![ uncheck the similar account suggestions box](https://images.wondershare.com/filmora/article-images/uncheck-similar-account-suggestions.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 5: How Does Instagram Suggestions Work?
 
@@ -143,10 +147,6 @@ So, now you know **how to remove suggested posts on Instagram feed** and how to 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -162,22 +162,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-understanding-your-new-reality-on-instagram/"><u>[New] 2024 Approved Understanding Your New Reality on Instagram</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-video-format-mastery-best-practices-for-instagram/"><u>[New] 2024 Approved Video Format Mastery Best Practices for Instagram</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-viewers-perspectives-on-instagram-stories-not-known/"><u>[New] 2024 Approved Viewers' Perspectives on Instagram Stories Not Known</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-top-tactics-for-captivating-audienes-in-instagram-reels-for-2024/"><u>[New] Top Tactics for Captivating Audienes in Instagram Reels for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-transform-instagram-videos-into-mp4-with-top-free-online-tools-windowsosx-for-2024/"><u>[New] Transform Instagram Videos Into MP4 with Top Free Online Tools [Windows/OSX] for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-understanding-the-dynamics-of-instagram-unfollows-for-2024/"><u>[New] Understanding the Dynamics of Instagram Unfollows for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/hats-the-best-youtube-thumbnail-size-in-2024/"><u>[New] What's the Best YouTube Thumbnail Size, In 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-composing-an-alluring-cinematic-teaser-track/"><u>[Updated] 2024 Approved Composing an Alluring Cinematic Teaser Track</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-blurring-identity-erasing-faces-from-video-content/"><u>[Updated] Blurring Identity Erasing Faces From Video Content</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-instagram-story-peeking-a-compre-written-in-english-but-can-be-understood-by-non-native-speakers-as-well-due-to-its-simplicity-and-universal/"><u>[Updated] In 2024, Instagram Story Peeking - A Compre Written in English but Can Be Understood by Non-Native Speakers as Well Due to Its Simplicity and Universal Appeal</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-the-ultimate-guide-to-instagrams-new-features/"><u>[Updated] In 2024, The Ultimate Guide to Instagram's New Features</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-streamline-your-skype-talks-using-obs-effectively-for-2024/"><u>[Updated] Streamline Your Skype Talks Using OBS Effectively for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/aol-mail-troubleshooting-guide-how-to-tell-if-the-problem-lies-with-your-internet-or-their-services/"><u>AOL Mail Troubleshooting Guide: How to Tell if the Problem Lies with Your Internet or Their Services</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-itel-p55plus-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Itel P55+ | Dr.fone</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/play-store-stuck-on-downloading-of-vivo-y56-5g-7-ways-to-resolve-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Stuck on Downloading Of Vivo Y56 5G? 7 Ways to Resolve | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-honor-x50-drfone-by-drfone-virtual-android/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Honor X50 | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/the-leading-virtual-reality-glasses-revolutionizing-productivity-and-journeys-with-their-latest-updates-insights-at-zdnet/"><u>The Leading Virtual Reality Glasses Revolutionizing Productivity and Journeys with Their Latest Updates | Insights at ZDNet</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-harmonizing-posts-with-instagram-music-for-2024/"><u>[New] Harmonizing Posts with Instagram Music for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-harnessing-power-in-pixels-top-10-instagram-video-ad-mastery-techniques-for-2024/"><u>[New] Harnessing Power in Pixels Top 10 Instagram Video Ad Mastery Techniques for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-from-passion-to-paycheck-a-strategic-guide-to-attracting-brand-backers-on-instagram/"><u>[New] In 2024, From Passion to Paycheck A Strategic Guide to Attracting Brand Backers on Instagram</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-harmonizing-with-instagram-a-songwriters-legal-framework/"><u>[New] In 2024, Harmonizing with Instagram A Songwriter’s Legal Framework</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-highlight-hacks-10-ways-to-captivate-your-followers/"><u>[Updated] In 2024, Highlight Hacks 10 Ways to Captivate Your Followers</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-open-broadcasters-versus-shadowreplay/"><u>[Updated] In 2024, Open Broadcasters Versus ShadowReplay</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-monetary-map-mr-beasts-financials-uncovered/"><u>[Updated] The Monetary Map Mr. Beast’s Financials Uncovered</u></a></li>
+<li><a href="https://win11.techidaily.com/breaking-through-windows-block-essential-5-step-solutions/"><u>Breaking Through Windows Block: Essential 5-Step Solutions</u></a></li>
+<li><a href="https://some-tips.techidaily.com/cost-breakdown-for-apple-vision-pro-in-extended-reality-xr-investment-strategies-nextgentech-insights/"><u>Cost Breakdown for Apple Vision Pro in Extended Reality (XR) Investment Strategies | NextGenTech Insights</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/iphone-8-backup-password-never-set-but-still-asking-heres-the-fix-drfone-by-drfone-ios/"><u>iPhone 8 Backup Password Never Set But Still Asking? Heres the Fix | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-samsung-galaxy-a15-4g-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Samsung Galaxy A15 4G</u></a></li>
+<li><a href="https://win-answers.techidaily.com/star-wars-battlefront-2-black-screen-bug-top-tips-for-a-clear-display/"><u>Star Wars Battlefront 2 Black Screen Bug – Top Tips for a Clear Display</u></a></li>
 </ul></div>
 

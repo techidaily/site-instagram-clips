@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, The Ultimate Guide to Shooting Phenomenal IGTV with DSLR/Smartphone"
-date: 2024-12-28T07:39:57.306Z
-updated: 2024-12-29T02:03:59.763Z
+date: 2025-01-03T16:15:49.311Z
+updated: 2025-01-07T20:29:34.105Z
 tags:
   - ai video
   - ai instagram
@@ -28,7 +28,7 @@ thumbnail: https://thmb.techidaily.com/bbb97d5449382acc8b92ab96bfb70e5ca97a93f11
 Instagram has been growing in popularity for a number of years, and the recent addition of the IGTV has only made the platform more diverse in terms of options it offers to its users. Before IGTV was launched the maximum duration of a video on Instagram was limited to just one minute, which made this platform better suited for photos than videos. Today you can upload videos that last up to ten minutes regardless of the type of account you have, and if you own a verified account you can even share hour-long videos on your channel. In case you were trying to find out how you can shoot IGTV videos with your Smartphone or DSLR camera, you’re at the right place because in this article we are going to show you how to create videos that are going to impress your followers.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Record IGTV Videos With a Smartphone?
@@ -44,7 +44,7 @@ The type of video you’re trying to create determines which pieces of equipment
 **You may also like:** [\>> Blue Screen VS Green Screen: All You Need to Know](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Shoot IGTV Videos With a DSLR Camera?
@@ -60,7 +60,7 @@ Shooting videos on DSLR cameras also mean that you need access to a **video edit
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Conclusion**
@@ -70,7 +70,7 @@ You don’t have to be a professional in order to record an IGTV video, but you 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -88,24 +88,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-expert-advice-seamless-srt-file-sharing-across-all-social-networks/"><u>[New] 2024 Approved Expert Advice Seamless SRT File Sharing Across All Social Networks</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-secrets-to-smoothly-resolving-youtube-short-issues/"><u>[New] 2024 Approved Secrets to Smoothly Resolving YouTube Short Issues</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-legal-framework-of-instagram-tunes/"><u>[New] Legal Framework of Instagram Tunes</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-mastering-hashtags-with-leading-apps-on-fb-twitter-and-instagram/"><u>[New] Mastering Hashtags with Leading Apps on FB, Twitter & Instagram</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-mastering-instagram-video-length-constraints-explained/"><u>[New] Mastering Instagram Video Length Constraints Explained</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-frozen-olympics-spectacular-2022-highlights/"><u>[Updated] In 2024, Frozen Olympics Spectacular 2022 Highlights</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-making-a-splash-how-to-improve-your-videos-with-instagram-edits/"><u>[Updated] Making a Splash How to Improve Your Videos with Instagram Edits</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-unleashing-creativity-building-a-memorable-podcast-name/"><u>[Updated] Unleashing Creativity Building a Memorable Podcast Name</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/avoid-being-blocked-from-chatgpt-identify-these-4-key-triggers-and-fixes/"><u>Avoid Being Blocked From ChatGPT: Identify These 4 Key Triggers and Fixes</u></a></li>
-<li><a href="https://win-updates.techidaily.com/effectiveness-of-factory-restores-does-it-wipe-out-android-trojans-worms-and-spyware-as-per-malwarefox-analysis/"><u>Effectiveness of Factory Restores: Does It Wipe Out Android Trojans, Worms, and Spyware as per MalwareFox Analysis?</u></a></li>
-<li><a href="https://extra-information.techidaily.com/expert-advice-optimizing-vlc-for-maximum-efficiency-on-mac/"><u>Expert Advice Optimizing VLC for Maximum Efficiency on Mac</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-mastering-igtv-creation-insider-techniques-for-maximum-impact/"><u>In 2024, Mastering IGTV Creation Insider Techniques for Maximum Impact</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-mastering-the-underestimated-aspects-of-instagram/"><u>In 2024, Mastering the Underestimated Aspects of Instagram</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/leveraging-background-footage-for-engaging-content-for-2024/"><u>Leveraging Background Footage for Engaging Content for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/lightning-growth-guide-for-instagram-using-content-likes-and-videos-for-2024/"><u>Lightning Growth Guide for Instagram Using Content, Likes & Videos for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/master-the-art-of-captivating-instagram-video-audiences-for-2024/"><u>Master the Art of Captivating Instagram Video Audiences for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/mastering-social-media-fame-on-instagram-for-2024/"><u>Mastering Social Media Fame on Instagram for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-vivo-v29-pro-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Vivo V29 Pro to PC- Detailed Steps | Dr.fone</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/solving-the-constant-crash-issue-for-total-war-warhammer-3-on-pc-systems/"><u>Solving the Constant Crash Issue for Total War: Warhammer 3 on PC Systems</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-from-youtube-watch-parties-to-home-auditory-archives-for-2024/"><u>[New] From YouTube Watch Parties to Home Auditory Archives for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-jailbreak-joy-top-funny-faces-at-the-social-networks-limits-for-2024/"><u>[New] Jailbreak Joy - Top Funny Faces at the Social Network’s Limits for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-mastering-the-art-of-viral-instagram-cinematography/"><u>[Updated] Mastering the Art of Viral Instagram Cinematography</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-mastering-viral-stardom-quick-simple-strategies-for-instagram-success/"><u>[Updated] Mastering Viral Stardom Quick, Simple Strategies for Instagram Success</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-optimal-instagram-posting-times-a-comprehensive-overview/"><u>2024 Approved Optimal Instagram Posting Times A Comprehensive Overview</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-premium-pages-on-mobile-best-ig-covers-app/"><u>2024 Approved Premium Pages on Mobile Best IG Covers App</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/connecting-your-epson-printer-to-the-internet-a-comprehensive-wifi-setup-tutorial/"><u>Connecting Your Epson Printer to the Internet: A Comprehensive WiFi Setup Tutorial</u></a></li>
+<li><a href="https://media-tips.techidaily.com/effortless-techniques-for-seamlessly-mirroring-your-iphone-screen-on-a-mac/"><u>Effortless Techniques for Seamlessly Mirroring Your iPhone Screen on a Mac</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-perfecting-the-instagram-story-format-with-youtube-integration/"><u>In 2024, Perfecting the Instagram Story Format with YouTube Integration</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-the-soundtrack-of-successful-snapchat-stories/"><u>In 2024, The Soundtrack of Successful Snapchat Stories</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-top-virtualdub-competitors-a-comprehensive-review/"><u>New In 2024, Top Virtualdub Competitors A Comprehensive Review</u></a></li>
 </ul></div>
 

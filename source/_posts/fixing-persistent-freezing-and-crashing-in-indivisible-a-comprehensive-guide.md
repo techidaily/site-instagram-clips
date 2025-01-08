@@ -1,7 +1,7 @@
 ---
 title: "Fixing Persistent Freezing and Crashing in 'Indivisible': A Comprehensive Guide"
-date: 2024-12-22T05:46:13.855Z
-updated: 2024-12-28T21:29:12.417Z
+date: 2025-01-03T19:21:13.738Z
+updated: 2025-01-07T18:54:18.794Z
 tags:
   - win11
   - win10
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/5d7dcfd1995cfb2b2cd35f38aacc2ff6a59f7f19a
 ## Effortless Ways to Overcome and Prevent Division 2 From Crashing During Play
 
 **The Division 2 keeps crashing?** Don’t worry… Although it’s incredibly frustrating, you’re definitely not the only person to experience this problem. Thousands of players have recently reported the very same issue. More importantly, you should be able to fix it pretty easily…
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Try these fixes
 
@@ -83,6 +87,10 @@ thumbnail: https://thmb.techidaily.com/5d7dcfd1995cfb2b2cd35f38aacc2ff6a59f7f19a
 
  If it this issue persists after you install the latest game patch, or if there was no new game patch available, move on to Fix 3, below.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Fix 3: Update your graphics driver
 
  In most cases, the broken or outdated graphics driver is the main culprit behind the game crashing issues.
@@ -115,10 +123,6 @@ thumbnail: https://thmb.techidaily.com/5d7dcfd1995cfb2b2cd35f38aacc2ff6a59f7f19a
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-129.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  2) Select**Verify files** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-130.png)
@@ -145,11 +149,11 @@ thumbnail: https://thmb.techidaily.com/5d7dcfd1995cfb2b2cd35f38aacc2ff6a59f7f19a
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-123.png)
 
- Launch the game after verifying the game file to see if this fix works. If not, try the next fix, below.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Launch the game after verifying the game file to see if this fix works. If not, try the next fix, below.
 
 ### Fix 5: Run Windows Compatibility Troubleshooter
 
@@ -166,7 +170,7 @@ thumbnail: https://thmb.techidaily.com/5d7dcfd1995cfb2b2cd35f38aacc2ff6a59f7f19a
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-124.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  2) Go to**the Compatibility tab** and click**Change high DPI settings** .
@@ -176,6 +180,10 @@ thumbnail: https://thmb.techidaily.com/5d7dcfd1995cfb2b2cd35f38aacc2ff6a59f7f19a
  3)**Check the box** next to**Override high DPI scaling behavior** and select**Scaling performed by: Application** . Then click**OK** to save the changes.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-127.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  4)**Tick the box** next to**Disable fullscreen optimizations** and click**OK** .
 
@@ -197,40 +205,28 @@ Make sure you have disabled Steam Overlay and Ubisoft Overlay.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-146.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  2) In the search box, type**advanced** and then click**View advanced system settings** in the list of search results.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-150.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  3) Click**Settings** … in the**Performance** section.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-151.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  4) Under**the Advanced tab** , click**Change…** in the**Virtual memory** section.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-152.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  5)**Check the box** next to**Automatically manage paging file size for all drives** . Then click OK to save the changes.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-153.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  **Do not disable the paging file or modify it to 0 MB or a static value** even if your PC has sufficient RAM, since if you doing that, it usually causes crashes in the game.
@@ -253,10 +249,6 @@ Make sure you have disabled Steam Overlay and Ubisoft Overlay.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-156-1024x776.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  4) Set**Particle Detail** to**High** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-157-1024x756.png)
@@ -274,7 +266,7 @@ Make sure you have disabled Steam Overlay and Ubisoft Overlay.
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-160-1024x762.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  8) Set**Ambient Occlusion** to**Medium** .
@@ -285,9 +277,17 @@ Make sure you have disabled Steam Overlay and Ubisoft Overlay.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-162-1024x759.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  10) Set**Terrain Quality** to**Medium** . Then save all the changes.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-163-1024x772.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Launch the game to see if the crash issue reappears. If not, congratulations! You’ve resolved this issue.
 
@@ -312,24 +312,20 @@ Make sure you have disabled Steam Overlay and Ubisoft Overlay.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-quick-hacks-for-downloading-instagram-content-onto-iphone/"><u>[New] 2024 Approved Quick Hacks for Downloading Instagram Content Onto iPhone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-selfie-verification-examining-its-impact-on-social-platforms/"><u>[New] 2024 Approved Selfie Verification Examining Its Impact on Social Platforms</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-rapid-rise-to-instagram-riches-15-innovative-techniques-for-quick-popularity-boost/"><u>[New] In 2024, Rapid Rise to Instagram Riches 15 Innovative Techniques for Quick Popularity Boost</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-professional-insights-concealed-strategies-for-instagram-success-for-2024/"><u>[New] Professional Insights Concealed Strategies for Instagram Success for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-from-the-shooting-range-to-streaming-real-time-dslr-and-pcmac-connection/"><u>[Updated] 2024 Approved From the Shooting Range to Streaming Real-Time DSLR & PC/Mac Connection</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-peering-into-the-pantheon-of-social-media-mavens-in-your-area/"><u>[Updated] In 2024, Peering Into the Pantheon of Social Media Mavens in Your Area</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-practical-guide-to-swapping-gender-representation-online-from-basics-to-expertise/"><u>[Updated] In 2024, Practical Guide to Swapping Gender Representation Online From Basics to Expertise</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-pinpointing-pioneers-a-strategic-look-at-influencers-on-insta-for-2024/"><u>[Updated] Pinpointing Pioneers A Strategic Look at Influencers on Insta for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-proven-instagram-analysis-apps-enhance-engagement-growth-and-conversion-rates-for-2024/"><u>[Updated] Proven Instagram Analysis Apps Enhance Engagement, Growth & Conversion Rates for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-rapid-rise-to-instagram-riches-15-innovative-techniques-for-quick-popularity-boost-for-2024/"><u>[Updated] Rapid Rise to Instagram Riches 15 Innovative Techniques for Quick Popularity Boost for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/3-solutions-to-hard-reset-asus-rog-phone-8-phone-using-pc-drfone-by-drfone-reset-android-reset-android/"><u>3 Solutions to Hard Reset Asus ROG Phone 8 Phone Using PC | Dr.fone</u></a></li>
-<li><a href="https://fox-making.techidaily.com/boost-your-pcs-performance-top-techniques-to-clear-up-windows-memory-and-enhance-speed-tips-from-yl-computing/"><u>Boost Your PC's Performance: Top Techniques to Clear Up Windows Memory and Enhance Speed - Tips From YL Computing</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/earn-a-150-apple-gift-card-when-buying-your-next-mac-or-ipad-for-education-simple-steps-revealed/"><u>Earn a $150 Apple Gift Card When Buying Your Next Mac or iPad for Education - Simple Steps Revealed</u></a></li>
-<li><a href="https://fox-that.techidaily.com/how-to-fix-an-iphone-when-the-proximity-sensor-malfunctions/"><u>How to Fix an iPhone When the Proximity Sensor Malfunctions</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-the-soft-bricked-nokia-c300-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix the Soft Bricked Nokia C300? | Dr.fone</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/in-2024-essential-insights-into-the-world-of-free-stock-images-via-pexelscom/"><u>In 2024, Essential Insights Into the World of Free Stock Images via Pexels.com</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-peak-performance-audio-organizer-android/"><u>In 2024, Peak Performance Audio Organizer, Android</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-top-rated-avi-editor-for-windows-8-advanced-video-editing-features-for-2024/"><u>New Top-Rated AVI Editor for Windows 8 Advanced Video Editing Features for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/the-essential-twitter-archive-user-manual-for-2024/"><u>The Essential Twitter Archive User Manual for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-building-a-thriving-igtv-following-the-ultimate-guide/"><u>[New] 2024 Approved Building a Thriving IGTV Following The Ultimate Guide</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-capturing-attention-the-power-of-these-top-10-tags/"><u>[New] 2024 Approved Capturing Attention The Power of These Top 10 Tags</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-blending-past-memories-with-instagrams-vivid-filters-for-2024/"><u>[New] Blending Past Memories with Instagram's Vivid Filters for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-affordable-skycabinet-mass-data-hoarding-on-a-budget/"><u>[New] In 2024, Affordable SkyCabinet Mass Data Hoarding on a Budget</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-behind-the-scenes-with-slow-motion-in-reels/"><u>[New] In 2024, Behind the Scenes with Slow Motion in Reels</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-become-a-reel-pro-in-30-days-or-less/"><u>[Updated] 2024 Approved Become a Reel Pro in 30 Days or Less</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-best-10-video-editing-apps-to-edit-and-make-instagram-reels/"><u>[Updated] 2024 Approved Best 10 Video Editing Apps to Edit and Make Instagram Reels</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-blending-brands-joining-instagram-and-facebook-effortlessly-for-2024/"><u>[Updated] Blending Brands Joining Instagram and Facebook Effortlessly for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-conquer-mixer-broadcasting-on-macos-systems/"><u>2024 Approved Conquer Mixer Broadcasting on macOS Systems</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-essential-blueprint-for-srt-file-adaptability/"><u>2024 Approved The Essential Blueprint for SRT File Adaptability</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/1726030357256-windows/"><u>写真から動画へ変換: Windowsプラットフォーム用ガイド</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/eco-friendly-tech-initiatives-the-roadmap-for-corporate-environmental-responsibility-zdnet/"><u>Eco-Friendly Tech Initiatives: The Roadmap for Corporate Environmental Responsibility | ZDNet</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/effective-steps-for-dealing-with-non-functional-discord-calls/"><u>Effective Steps for Dealing with Non-Functional Discord Calls</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/freedom-in-sight-comparing-free-screen-capture-tools-for-2024/"><u>Freedom in Sight Comparing Free Screen Capture Tools for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-diagnose-and-repair-skewed-lines-across-your-computer-screen/"><u>How To Diagnose and Repair Skewed Lines Across Your Computer Screen</u></a></li>
 </ul></div>
 
