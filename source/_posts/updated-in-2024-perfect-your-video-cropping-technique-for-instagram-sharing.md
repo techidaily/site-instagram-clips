@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Perfect Your Video Cropping Technique for Instagram Sharing"
-date: 2025-01-04T16:31:39.012Z
-updated: 2025-01-07T18:47:13.679Z
+date: 2025-01-08T10:19:20.773Z
+updated: 2025-01-14T01:09:00.097Z
 tags:
   - ai video
   - ai instagram
@@ -29,6 +29,10 @@ With more than 500 million active daily users Instagram has become one of the la
 
 **You May Also Like:** [How to Crop Photos/Images on iPhone](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to crop and export videos to instagram
 
 #### **Best cropping tool – Wondershare Filmora**
@@ -36,10 +40,6 @@ With more than 500 million active daily users Instagram has become one of the la
 In order to create videos that will get thousands of likes on Instagram, you need a video editing software that will enable you to adjust the aspect ratio of the videos you want to upload to this platform.[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a video editing software that provides support for a large number of different video file formats and it will enable you to crop your videos and get them ready for online use.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### **How to crop videos for instagram in Filmora**
 
@@ -52,18 +52,18 @@ In order to start cropping your videos, you first must install the Filmora video
 ![](https://images.wondershare.com/filmora/article-images/filmora-import.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2: Drag and Drop the video file onto the Timeline**
 
 ![](https://images.wondershare.com/filmora/article-images/video-editor-main-interface-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Now that the video clip you want to edit is in the editor's media library, drag it and drop it to the timeline.
 
@@ -74,10 +74,6 @@ Now that the video clip you want to edit is in the editor's media library, drag 
 Chances are that the camera you used to record your video clip recorded the footage in the landscape aspect ratio. Before you can export your video clip, you must first check the resolution and frame rate of the clip you want to export. Right-click on the clip in the media panel and select Properties. After you found out this information, click on the Export button located just below the media panel.
 
 ![check aspect ratio](https://images.wondershare.com/filmora/article-images/check-aspect-ratio.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Once the new window appears, you should click on the Format icon positioned in the upper left corner of the screen. Select the MP4 format, name your file and select the folder where the file will be exported.
 
@@ -92,7 +88,7 @@ In order to create a video that has a portrait aspect ratio, you need to crop it
 ![crop and zoom filmora](https://images.wondershare.com/filmora/article-images/crop-and-zoom-filmora.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Adjust the crop tool's position and click OK. The export process for landscape and portrait videos is nearly identical and the only thing you need to change is the resolution. Click on the Resolution drop-down menu and select the custom option and then enter the height and weight values you inserted in the cropping tool. Your portrait video is ready to be exported.
@@ -104,6 +100,10 @@ The process of creating a square video is the same as the process of creating a 
 The steps for exporting square videos are the same as the steps you need to take to export a portrait video. Make sure to change the resolution of the video to 1080X1080 before hitting the Export button and enjoy sharing your videos on Instagram.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -120,24 +120,16 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-from-fresh-face-to-hashtag-hero-unleash-the-secrets-for-swift-social-media-success-on-instagram/"><u>[New] From Fresh Face to Hashtag Hero Unleash the Secrets for Swift Social Media Success on Instagram</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/1716168998160-new-how-to-edit-vertical-videos-for-instagram-in-final-cut-pro-x/"><u>[New] How to Edit Vertical Videos for Instagram in Final Cut Pro X ?</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-from-raw-footage-to-instagram-gold-top-10-editor-shortlists/"><u>[Updated] From Raw Footage to Instagram Gold - Top 10 Editor Shortlists</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-going-back-in-space-and-time-rewind-your-instagram-video/"><u>2024 Approved Going Back in Space and Time Rewind Your Instagram Video</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-harnessing-new-filters-on-instagram-a-modern-take-2023-techniques/"><u>2024 Approved Harnessing New Filters on Instagram A Modern Take (2023 Techniques)</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-how-to-spark-interest-and-boost-views-on-instagram-videos/"><u>2024 Approved How to Spark Interest & Boost Views on Instagram Videos</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-top-8-proven-video-growth-and-promotion-strategies/"><u>2024 Approved Top 8 Proven Video Growth & Promotion Strategies</u></a></li>
-<li><a href="https://win11.techidaily.com/7-symptoms-your-pc-may-need-a-new-beginning/"><u>7 Symptoms Your PC May Need A New Beginning</u></a></li>
-<li><a href="https://win-news.techidaily.com/1728501113736-pdf/"><u>高效PDF維修程式檢視報告：選擇最符合需求的改良工具</u></a></li>
-<li><a href="https://media-tips.techidaily.com/discover-the-ultimate-free-dvd-players-our-top-picks-for-pc-and-mac-users/"><u>Discover the Ultimate Free DVD Players: Our Top Picks for PC and Mac Users</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/humor-hub-for-apple-devices-for-2024/"><u>Humor Hub for Apple Devices for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/ignite-social-success-discover-the-10-most-powerful-igtv-video-ideas-for-brands-for-2024/"><u>Ignite Social Success Discover the 10 Most Powerful IGTV Video Ideas for Brands for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-huawei-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Huawei</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-from-novice-to-pro-building-an-insta-highlight-showcase/"><u>In 2024, From Novice to Pro Building an Insta Highlight Showcase</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-how-to-reverse-video-on-instagram-complete-guide/"><u>In 2024, How to Reverse Video on Instagram? [Complete Guide]</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-remove-the-lock-screen-fingerprint-of-your-infinix-smart-7-hd-by-drfone-android/"><u>In 2024, Remove the Lock Screen Fingerprint Of Your Infinix Smart 7 HD</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/mastering-clearer-internet-video-views-for-2024/"><u>Mastering Clearer Internet Video Views for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/quick-tips-mastering-the-art-of-screenshots-on-asus-laptops-and-notebooks/"><u>Quick Tips: Mastering the Art of Screenshots on ASUS Laptops and Notebooks</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/understanding-evo-files-a-comprehensive-guide-with-conversion-tips/"><u>Understanding EVO Files: A Comprehensive Guide with Conversion Tips</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-dynamic-duo-combining-multiple-photos-for-impactful-stories/"><u>[New] 2024 Approved Dynamic Duo Combining Multiple Photos for Impactful Stories</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-tips-for-creating-engaging-fb-video-content/"><u>[New] Tips for Creating Engaging FB Video Content</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-discover-the-leading-apps-for-instagrams-vertical-igtv-edits/"><u>[Updated] 2024 Approved Discover the Leading Apps for Instagram's Vertical IGTV Edits</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-drive-audience-participation-through-custom-stories-queries/"><u>[Updated] 2024 Approved Drive Audience Participation Through Custom Stories Queries</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-decoding-instagrams-reels-and-stories-evolution-for-2024/"><u>[Updated] Decoding Instagram's Reels and Stories Evolution for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-edge-it-all-out-the-finest-frame-options-for-social-media-photography/"><u>[Updated] In 2024, Edge It All Out The Finest Frame Options for Social Media Photography</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-precise-age-settings-the-essential-guide-for-tiktok-profiles/"><u>[Updated] Precise Age Settings The Essential Guide for TikTok Profiles</u></a></li>
+<li><a href="https://win-comparisons.techidaily.com/einrichtung-automatischer-sicherungen-in-windows-11-uber-batch-skripte-professionelle-tipps-und-tricks/"><u>Einrichtung Automatischer Sicherungen in Windows 11 Über Batch Skripte - Professionelle Tipps Und Tricks</u></a></li>
+<li><a href="https://win-dash.techidaily.com/latest-hp-officejet-4655-dri-software-for-smooth-operation-free-downloads-available/"><u>Latest HP OfficeJet 4655 Dri Software for Smooth Operation: Free Downloads Available</u></a></li>
+<li><a href="https://fox-that.techidaily.com/mastering-iphone-image-processing-tips-for-resolving-common-issues/"><u>Mastering iPhone Image Processing: Tips for Resolving Common Issues</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-return-of-the-lying-down-mode-in-meta-quest-2-and-pro-versions-misses-the-mark-for-quest-ebox-owners-a-deep-dive-by-zdnet/"><u>The Return of the 'Lying Down' Mode in Meta Quest 2 and Pro Versions Misses the Mark for Quest Ebox Owners: A Deep Dive by ZDNet</u></a></li>
 </ul></div>
 

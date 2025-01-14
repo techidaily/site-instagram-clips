@@ -1,7 +1,7 @@
 ---
 title: "[Updated] IGTV Shutdown for Beginners"
-date: 2025-01-02T18:39:47.439Z
-updated: 2025-01-07T18:22:18.350Z
+date: 2025-01-09T17:37:13.191Z
+updated: 2025-01-13T17:40:02.288Z
 tags:
   - ai video
   - ai instagram
@@ -28,7 +28,7 @@ thumbnail: https://thmb.techidaily.com/84a7e5fe8a2d746104e06bccf0ffdc78d9a7d9997
  There is nothing more frustrating than receiving notifications about posts on social media you have zero interest in. Fortunately for all of us, turning off notifications is a quick and simple process that can be completed in just a few clicks or taps. IGTV, Instagram’s latest mobile video platform is no exception, and if you decide to use it, you will occasionally stumble upon the content you don’t necessarily like and you will receive notifications about posts that really have nothing to do with your interests. In case you are looking for a way to get rid of IGTV suggestions, you’ve come to the right place because in this article we are going to show you how to hide videos you don’t want to see and how to switch off notifications.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Turn Off IGTV Notifications on Instagram
@@ -38,7 +38,7 @@ thumbnail: https://thmb.techidaily.com/84a7e5fe8a2d746104e06bccf0ffdc78d9a7d9997
  Select the **Push Notifications option**, and then scroll all the way down to the **IGTV Video Updates section** of the Push Notifications menu. Tap on the **Off** option, and you’re done, you’ll no longer receive notifications from IGTV. If at any point you change your mind and you decide that you want to receive notifications from IGTV you can return to the Push Notifications menu and select the **From People I Follow** or **From Everyone** option in the IGTV Video Update section of the Push Notifications menu.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Hide IGTV Videos?
@@ -56,7 +56,7 @@ thumbnail: https://thmb.techidaily.com/84a7e5fe8a2d746104e06bccf0ffdc78d9a7d9997
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -74,17 +74,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-energy-savings-calculations-while-not-directly-impacting-installation-cost-understanding-potential-energy-savings-is-crucial-for-long-/"><u>[Updated] 2024 Approved __Energy Savings Calculations__ While Not Directly Impacting Installation Cost, Understanding Potential Energy Savings Is Crucial for Long-Term ROI Analysis.</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-your-daily-dose-of-humor-and-heartbreak-from-instagram-memes/"><u>[Updated] 2024 Approved Your Daily Dose of Humor & Heartbreak From Instagram Memes</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-your-ultimate-method-for-mobile-igtv-downloads/"><u>[Updated] 2024 Approved Your Ultimate Method for Mobile IGTV Downloads</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-the-gif-creation-journey-unveiling-the-ultimate-9-tools-of-memetic-ingenuity/"><u>[Updated] The GIF Creation Journey Unveiling the Ultimate 9 Tools of Memetic Ingenuity</u></a></li>
-<li><a href="https://win-reviews.techidaily.com/adding-audio-enhancements-to-your-ebook-with-flipbuilder-a-comprehensive-guide/"><u>Adding Audio Enhancements to Your eBook with FlipBuilder - A Comprehensive Guide</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/best-nokia-105-classic-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>Best Nokia 105 Classic Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/crafting-cinematic-magic-essential-tips-for-creating-stunning-slow-motion-media-on-instagram/"><u>Crafting Cinematic Magic Essential Tips for Creating Stunning Slow-Motion Media on Instagram</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/detecting-changes-in-your-instagram-network/"><u>Detecting Changes in Your Instagram Network</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/echoing-emotions-infusing-music-into-instareel-content/"><u>Echoing Emotions Infusing Music Into InstaReel Content</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/effortless-iphone-backup-strategies-using-icloud-and-mac-tools-expert-advice-unveiled/"><u>Effortless iPhone Backup Strategies Using iCloud and Mac Tools, Expert Advice Unveiled</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-gain-listener-traffic-advanced-techniques-in-podcast-seo/"><u>In 2024, Gain Listener Traffic Advanced Techniques in Podcast SEO</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-samsung-galaxy-s24-screen-mirroring-app-drfone-by-drfone-android/"><u>Overview of the Best Samsung Galaxy S24 Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-analyzing-the-post-upload-process-in-youtubes-ecosystem/"><u>[New] 2024 Approved Analyzing the Post-Upload Process in YouTube's Ecosystem</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-ensuring-visibility-fixing-missing-shorts-thumbnails/"><u>[New] In 2024, Ensuring Visibility Fixing Missing Shorts Thumbnails</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-decoding-inverse-visual-queries-on-facebook-platforms/"><u>[Updated] 2024 Approved Decoding Inverse Visual Queries on Facebook Platforms</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-top-pick-prodigious-insta-hlv-pages-creators/"><u>[Updated] Top Pick Prodigious Insta HLV Pages Creators</u></a></li>
+<li><a href="https://blog-min.techidaily.com/2-ways-to-transfer-text-messages-from-oppo-a78-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>2 Ways to Transfer Text Messages from Oppo A78 to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-unlocking-the-full-potential-of-igtv-a-step-by-step-guide/"><u>2024 Approved Unlocking the Full Potential of IGTV A Step-by-Step Guide</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/artificial-intelligence-personalization-gpt-for-customized-chatbot/"><u>Artificial Intelligence Personalization: GPT for Customized Chatbot</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/combat-snip-and-sketch-failures-a-guide-to-capturing-entire-display/"><u>Combat Snip & Sketch Failures: A Guide to Capturing Entire Display</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-the-latest-canon-mp280-drivers-compatible-with-windows-operating-systems-win-10-8-and-7/"><u>Download the Latest Canon MP280 Drivers: Compatible with Windows Operating Systems (Win 10, 8 & 7)</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-turning-insta-vids-into-music-your-complete-guide/"><u>In 2024, Turning Insta Vids Into Music Your Complete Guide</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-uncover-the-joyful-journey-best-comedy-and-sadness-on-insta/"><u>In 2024, Uncover the Joyful Journey Best Comedy & Sadness on Insta</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-unlock-creative-potential-10-premium-android-and-pc-editors/"><u>In 2024, Unlock Creative Potential 10 Premium Android and PC Editors</u></a></li>
+<li><a href="https://driver-error.techidaily.com/troubleshooting-steps-when-your-final-usb-gadget-fails-and-wont-show-up-in-windows/"><u>Troubleshooting Steps When Your Final USB Gadget Fails & Won't Show Up in Windows</u></a></li>
 </ul></div>
 
