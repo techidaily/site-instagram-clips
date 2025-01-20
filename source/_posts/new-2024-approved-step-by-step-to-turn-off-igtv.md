@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Step-by-Step to Turn Off IGTV\""
-date: 2025-01-07T17:35:30.302Z
-updated: 2025-01-14T05:42:49.558Z
+date: 2025-01-13T16:36:59.848Z
+updated: 2025-01-20T10:47:59.996Z
 tags:
   - ai video
   - ai instagram
@@ -28,7 +28,7 @@ thumbnail: https://thmb.techidaily.com/359889cca1fac1d0cab50a3e170aa122469e4b901
  There is nothing more frustrating than receiving notifications about posts on social media you have zero interest in. Fortunately for all of us, turning off notifications is a quick and simple process that can be completed in just a few clicks or taps. IGTV, Instagram’s latest mobile video platform is no exception, and if you decide to use it, you will occasionally stumble upon the content you don’t necessarily like and you will receive notifications about posts that really have nothing to do with your interests. In case you are looking for a way to get rid of IGTV suggestions, you’ve come to the right place because in this article we are going to show you how to hide videos you don’t want to see and how to switch off notifications.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Turn Off IGTV Notifications on Instagram
@@ -38,7 +38,7 @@ thumbnail: https://thmb.techidaily.com/359889cca1fac1d0cab50a3e170aa122469e4b901
  Select the **Push Notifications option**, and then scroll all the way down to the **IGTV Video Updates section** of the Push Notifications menu. Tap on the **Off** option, and you’re done, you’ll no longer receive notifications from IGTV. If at any point you change your mind and you decide that you want to receive notifications from IGTV you can return to the Push Notifications menu and select the **From People I Follow** or **From Everyone** option in the IGTV Video Update section of the Push Notifications menu.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Hide IGTV Videos?
@@ -56,7 +56,7 @@ thumbnail: https://thmb.techidaily.com/359889cca1fac1d0cab50a3e170aa122469e4b901
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -74,20 +74,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-build-your-wealth-on-youtube-a-guide-to-creating-content-without-ads/"><u>[New] 2024 Approved Build Your Wealth on YouTube A Guide to Creating Content Without Ads</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-exploring-best-video-grabbers-for-win11/"><u>[Updated] In 2024, Exploring Best Video Grabbers for Win11</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-the-ultimate-videographers-accessory-list-the-top-9-essentials/"><u>[Updated] In 2024, The Ultimate Videographer’s Accessory List - The Top 9 Essentials</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-unleash-your-inner-influencer-9-essential-instagram-steps/"><u>[Updated] In 2024, Unleash Your Inner Influencer 9 Essential Instagram Steps</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-mastering-insta-metrics-comprehensive-ig-data-analysis/"><u>[Updated] Mastering Insta Metrics Comprehensive IG Data Analysis</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-mastering-instagram-4-pro-tips-for-looped-video-content/"><u>[Updated] Mastering Instagram 4 Pro Tips for Looped Video Content</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-maximizing-impact-10-key-strategies-for-instagram-video-promotion/"><u>2024 Approved Maximizing Impact 10 Key Strategies for Instagram Video Promotion</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-mixing-music-into-your-instagram-visuals/"><u>2024 Approved Mixing Music Into Your Instagram Visuals</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-navigate-the-maze-of-macos-for-streamlined-video-resizing-to-instagram/"><u>2024 Approved Navigate the Maze of MacOS for Streamlined Video Resizing to Instagram</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/5-easy-steps-to-a-picture-perfect-instagram-group/"><u>5 Easy Steps to a Picture-Perfect Instagram Group</u></a></li>
-<li><a href="https://discover-forum.techidaily.com/ensure-uninterrupted-safety-continual-data-backup-with-onedrive-for-business/"><u>Ensure Uninterrupted Safety: Continual Data Backup with OneDrive for Business</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/from-basic-to-bold-installing-unique-customizable-ringtones-and-sounds-on-android-for-2024/"><u>From Basic to Bold Installing Unique, Customizable Ringtones & Sounds on Android for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-mastering-the-art-of-loop-creating-impactful-content-for-instagram/"><u>In 2024, Mastering the Art of Loop Creating Impactful Content for Instagram</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/infinix-hot-40-not-connecting-to-wi-fi-12-quick-ways-to-fix-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Infinix Hot 40 Not Connecting to Wi-Fi? 12 Quick Ways to Fix | Dr.fone</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/new-color-harmony-made-easy-a-step-by-step-fcp-guide/"><u>New Color Harmony Made Easy A Step-by-Step FCP Guide</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-apples-m1-pro-versus-the-powerhouse-m1-max-what-to-note-in-2024/"><u>[New] Apple's M1 Pro Versus the Powerhouse M1 Max - What to Note, In 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-tailor-videos-to-instagrams-preferred-format/"><u>[New] In 2024, Tailor Videos to Instagram's Preferred Format</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-unveiling-the-ultimate-methods-for-high-quality-video-conversion/"><u>[New] In 2024, Unveiling the Ultimate Methods for High Quality Video Conversion</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-optimal-method-for-incorporating-linktree-in-tiktok-profiles/"><u>[New] Optimal Method for Incorporating Linktree in TikTok Profiles</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-choosing-the-right-instagram-video-size-a-2023-guide-for-2024/"><u>[Updated] Choosing the Right Instagram Video Size - A 2023 Guide for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-key-applications-for-superior-vtuber-audible-identity/"><u>[Updated] Key Applications for Superior Vtuber Audible Identity</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-unleash-creativity-professional-insights-into-shooting-and-editing-stunning-slow-motion-content-for-instagram/"><u>[Updated] Unleash Creativity Professional Insights Into Shooting and Editing Stunning Slow Motion Content for Instagram</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-unleash-your-social-media-potential-with-insta-post-magic-for-2024/"><u>[Updated] Unleash Your Social Media Potential with Insta Post Magic for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/exploring-the-merits-of-obs-studio-and-fraps-for-recording-screens/"><u>Exploring the Merits of OBS Studio & Fraps for Recording Screens</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-honor-90-lite-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Hassle-Free Solutions to Fake Location on Find My Friends Of Honor 90 Lite | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/remedying-java-installer-problems-on-a-windows-pc/"><u>Remedying Java Installer Problems on a Windows PC</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-6-best-sim-unlock-services-that-actually-work-on-your-nokia-c32-device-by-drfone-android/"><u>The 6 Best SIM Unlock Services That Actually Work On Your Nokia C32 Device</u></a></li>
+<li><a href="https://some-skills.techidaily.com/top-3-tactics-converting-pins-to-audio-clips-for-2024/"><u>Top 3 Tactics Converting Pins to Audio Clips for 2024</u></a></li>
 </ul></div>
 

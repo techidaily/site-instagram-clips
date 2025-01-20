@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Telling Stories Vertically  Video Editing for Instagram with FCPX\""
-date: 2025-01-11T05:39:21.325Z
-updated: 2025-01-13T20:28:42.699Z
+date: 2025-01-14T03:33:04.478Z
+updated: 2025-01-20T10:57:17.383Z
 tags:
   - ai video
   - ai instagram
@@ -36,7 +36,7 @@ You may also like: [How to Get 90-day Free Trial of FCPX](https://tools.techidai
 ![Instagram-video](https://images.wondershare.com/filmora/images/final-cut-pro/Instagram-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: Introduction to Vertical Videos for Instagram
@@ -55,7 +55,7 @@ Before entering the nitty-gritty on how to edit vertical videos with FCPX, you s
 | **Audio codecs supported**       | 128 kbps, Vorbis                                         |
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to Edit and Export Vertical Videos for Instagram in Final Cut Pro X?
@@ -97,7 +97,7 @@ Too many steps? Then try a **beginner-friendly editing tool**, Filmora!
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Tips on Editing Vertical Videos for Instagram
@@ -117,7 +117,7 @@ Is the video already shot horizontally on your camera or smartphone? No worries,
 Vertical video is a great option to showcase wide and tall subjects where you can place close-ups and show off details to get up close and personal. It could be a product or fabric. You can showcase enticing minor elements that attract an audience in such landscape shots.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -127,7 +127,7 @@ Hence, I am sure you found new tactics to create vertical videos for Instagram. 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -145,18 +145,14 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/idden-gems-on-youtube-understanding-unlisted-videos/"><u>[New] Hidden Gems on YouTube Understanding 'Unlisted' Videos</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-conveniently-captivated-by-ifunnys-humor-hub/"><u>[Updated] Conveniently Captivated by iFunny's Humor Hub</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-visuals-that-convert-mastering-the-art-of-video-marketing-on-insta/"><u>[Updated] In 2024, Visuals That Convert Mastering the Art of Video Marketing on Insta</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/10-best-apps-for-editing-igtv-vertical-videos/"><u>10 Best Apps for Editing IGTV Vertical Videos</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/a-guide-to-instagram-video-brilliance-with-templates/"><u>A Guide to Instagram Video Brilliance with Templates</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/abbyys-smart-intelligence-catalyzing-enterprise-digitization-and-streamlining-processes/"><u>ABBYY's Smart Intelligence: Catalyzing Enterprise Digitization and Streamlining Processes</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/achieve-a-personalized-look-with-these-easy-to-follow-theme-steps-for-win11/"><u>Achieve a Personalized Look with These Easy-to-Follow Theme Steps for Win11</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/brands-on-the-rise-choose-the-best-ig-video-editing-apps/"><u>Brands on the Rise Choose the Best IG Video Editing Apps</u></a></li>
-<li><a href="https://fox-useful.techidaily.com/creative-tims-corporate-ui-dashboard-design-in-laravel-a-collaboration-with-updivision/"><u>Creative Tim's Corporate UI Dashboard Design in Laravel: A Collaboration with UPDIVISION</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/elevate-your-account-25-top-instagram-tags-for-maximum-engagement/"><u>Elevate Your Account 25 Top Instagram Tags for Maximum Engagement</u></a></li>
-<li><a href="https://some-tips.techidaily.com/how-the-upgrade-to-usb-c-changed-my-game-impulse-purchase-at-amazons-big-sale-event-covered-by-zdnet/"><u>How the Upgrade to USB-C Changed My Game: Impulse Purchase at Amazon's Big Sale Event Covered by ZDNet</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/how-to-restore-audio-functionality-in-windows-7-systems/"><u>How To Restore Audio Functionality in Windows 7 Systems</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/winning-the-battle-against-launch-failures-in-back-4-blood-windows-11-10-and-7-solutions-unveiled/"><u>Winning the Battle Against Launch Failures in Back 4 Blood - Windows 11, 10 & 7 Solutions Unveiled</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-10-visionary-beauty-experts-leading-online-trends/"><u>[Updated] 10 Visionary Beauty Experts Leading Online Trends</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-effortless-method-to-post-sites-on-ig-storyposts/"><u>[Updated] 2024 Approved Effortless Method to Post Sites on IG Story/Posts</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-rotate-to-win-insta-tricks-for-video-transformation-for-2024/"><u>[Updated] Rotate to Win Insta-Tricks for Video Transformation for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-the-essential-framework-for-saving-instagram-vids-from-desktop-systems-for-2024/"><u>[Updated] The Essential Framework for Saving Instagram Vids From Desktop Systems for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/avoid-slow-response-times-after-adding-an-additional-screen/"><u>Avoid Slow Response Times After Adding an Additional Screen</u></a></li>
+<li><a href="https://fox-ssl.techidaily.com/convert-your-videos-seamlessly-experience-the-top-free-flv-to-mp4-converter/"><u>Convert Your Videos Seamlessly: Experience the Top Free FLV-to-MP4 Converter!</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-block-youtube-previews-embrace-full-length-videos/"><u>In 2024, Block YouTube Previews, Embrace Full-Length Videos</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/rising-as-dragonslayer-a-strategists-playbook-for-infinite-prosperity-on-pc-gaming-adventures/"><u>Rising as Dragonslayer: A Strategist's Playbook for Infinite Prosperity on PC Gaming Adventures</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-game-changer-a-detailed-look-at-the-m1-powered-2020-apple-macbook-pro-13-reviews-and-insights/"><u>The Game Changer: A Detailed Look at the M1-Powered 2020 Apple MacBook Pro 13'' – Reviews and Insights</u></a></li>
 </ul></div>
 

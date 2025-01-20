@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] PicturePerfectionist  Expert Guide to IG Size Settings for 2024\""
-date: 2025-01-07T00:23:35.468Z
-updated: 2025-01-13T16:53:50.995Z
+date: 2025-01-18T12:42:07.739Z
+updated: 2025-01-20T12:31:12.408Z
 tags:
   - ai video
   - ai instagram
@@ -30,7 +30,7 @@ Taking photos with iPhones and Android Smartphones and posting them to Instagram
 Troubles begin when you want to upload photos and videos that weren't captured with a Smartphone to Instagram. In most cases, the photos and videos produced by DSLR cameras and other semi-professional and professional equipment are much larger than the sizes supported by Instagram. That is the reason why we created this guide that will help you post visual content that is perfectly adjusted to Instagram in 2021.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Types of Files Accepted by Instagram
@@ -50,7 +50,7 @@ Duration of Videos on Instagram
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Best Image Sizes for Instagram Posts
@@ -62,7 +62,7 @@ A couple of years ago, Instagram has finally allowed its users to upload images 
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
@@ -90,7 +90,7 @@ The profile pictures on Instagram are tiny, and the optimum size for them is 160
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -108,22 +108,14 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-driving-engagement-on-instagram-a-step-by-step-guide/"><u>[New] 2024 Approved Driving Engagement on Instagram A Step-by-Step Guide</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-dial-up-the-excitement-engaging-viewers-on-insta-for-2024/"><u>[New] Dial Up the Excitement Engaging Viewers on Insta for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-dive-into-fixes-for-your-troublesome-instagram-video-for-2024/"><u>[New] Dive Into Fixes for Your Troublesome Instagram Video for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-crafting-cinematic-magic-essential-tips-for-creating-stunning-slow-motion-media-on-instagram/"><u>[New] In 2024, Crafting Cinematic Magic Essential Tips for Creating Stunning Slow-Motion Media on Instagram</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-crafting-your-vocal-image-for-instagrams-dynamic-features/"><u>[New] In 2024, Crafting Your Vocal Image for Instagram’s Dynamic Features</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-curated-igtv-channels-that-matter-today/"><u>[New] In 2024, Curated IGTV Channels That Matter Today</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-the-law-of-lyrics-on-instagram-platforms-for-2024/"><u>[New] The Law of Lyrics on Instagram Platforms for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-the-ultimate-obs-recording-guide-for-gaming-enthusiasts-for-2024/"><u>[New] The Ultimate OBS Recording Guide for Gaming Enthusiasts for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-crafting-captivating-storytelling-with-a-soundtrack-on-instagram-for-2024/"><u>[Updated] Crafting Captivating Storytelling with a Soundtrack on Instagram for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-fabricate-fascinating-face-painting-gifs-on-giphy/"><u>[Updated] Fabricate Fascinating Face-Painting Gifs on Giphy</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-cutting-edge-ways-to-tailor-your-igtv-content-size/"><u>[Updated] In 2024, Cutting-Edge Ways to Tailor Your IGTV Content Size</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-professional-audio-tactics-achieving-excellence-without-a-microphone/"><u>[Updated] In 2024, Professional Audio Tactics Achieving Excellence without a Microphone</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-online-partnerships-crafting-brand-joint-ventures-on-youtube-for-2024/"><u>[Updated] Online Partnerships Crafting Brand Joint Ventures on YouTube for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-clear-images-made-easy-picart-backdrop-takedown-technique/"><u>2024 Approved Clear Images Made Easy PicArt Backdrop Takedown Technique</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Realme 12+ 5G | Dr.fone</u></a></li>
-<li><a href="https://win-answers.techidaily.com/resolving-game-crashes-dealing-with-genshin-impact-error-4201/"><u>Resolving Game Crashes: Dealing with 'Genshin Impact Error #4201'</u></a></li>
-<li><a href="https://some-tips.techidaily.com/why-the-latest-ipad-air-is-a-must-have-apple-unveils-4-irresistible-factors-you-cant-ignore/"><u>Why the Latest iPad Air Is a Must-Have: Apple Unveils 4 Irresistible Factors You Can't Ignore</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-choreograph-cheeky-comics-via-giphy/"><u>[New] Choreograph Cheeky Comics via Giphy</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-mastering-facebook-visuals-adding-text-boxes-and-dark-bar-overlays/"><u>[New] Mastering Facebook Visuals Adding Text Boxes & Dark Bar Overlays</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-streamlining-the-process-of-finding-your-own-musical-compilation-on-youtube/"><u>[Updated] 2024 Approved Streamlining the Process of Finding Your Own Musical Compilation on Youtube</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-photos-files-on-oppo-a79-5g-by-fonelab-android-recover-photos/"><u>Complete guide for recovering photos files on Oppo A79 5G.</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-hidden-viewers-guide-reading-instagram-stories-privately-from-pcandroidios/"><u>In 2024, Hidden Viewers Guide Reading Instagram Stories Privately From PC/Android/iOS</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-instagrams-latest-trends-for-successful-influencer-journeys/"><u>In 2024, Instagram's Latest Trends for Successful Influencer Journeys</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-perfecting-pace-techniques-for-shooting-captivating-slow-motion-content-for-instagram-audiences/"><u>In 2024, Perfecting Pace Techniques for Shooting Captivating Slow Motion Content for Instagram Audiences</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-quick-start-engaging-with-friends-on-insta-chat/"><u>In 2024, Quick Start Engaging with Friends on Insta Chat</u></a></li>
+<li><a href="https://article-helps.techidaily.com/melodic-medley-choosing-the-best-ringtone-websites/"><u>Melodic Medley Choosing the Best Ringtone Websites</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, The Art of Crafting Instagram Highlights"
-date: 2025-01-12T01:53:36.272Z
-updated: 2025-01-14T02:00:19.840Z
+date: 2025-01-13T11:34:32.506Z
+updated: 2025-01-20T02:10:30.500Z
 tags:
   - ai video
   - ai instagram
@@ -49,7 +49,7 @@ Here are two easy ways to do just that.
 * [**Bonus Tip 2: Best Instagram Video Editor—Wondershare Filmora**](#part4)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Method 1: Download Instagram Highlights Online
@@ -64,13 +64,13 @@ How to save Instagram Highlights? Dive in and follow these three easy steps:
 
 ![open instagram highlight downloader](https://images.wondershare.com/filmora/article-images/open-online-instagram-highlight-downloader1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 2\. Paste the username into the dialogue box on StorySaver.
 
 ![download instagram hightlights - copy highlight username](https://images.wondershare.com/filmora/article-images/copy-highlight-username2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 3\. Select the current story or the specific Highlight/s you are crushing over.
 
@@ -79,6 +79,10 @@ How to save Instagram Highlights? Dive in and follow these three easy steps:
 4\. Click '**Save As**', and the video/photo will be downloaded to your phone/PC. As easy as that.
 
 ![how to download instagram highlights - click to download instagram highlights](https://images.wondershare.com/filmora/article-images/click-download-instagram-highlight4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Method 2: Download Instagram Highlights Using Stories Archive
 
@@ -89,10 +93,6 @@ Stories Archive is a rich library full of the oldest to latest stories. It is co
 1\. Open Instagram and open a profile. Tap the **Archive** icon on the profile page.
 
 ![using stories archive - tap archive button](https://images.wondershare.com/filmora/article-images/tap-archive-button5.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 2\. The Archive library will pop open. Finding a specific story can be like looking for a needle in the haystack. But luckily, the stories are arranged date-wise.
 
@@ -107,11 +107,7 @@ Stories Archive is a rich library full of the oldest to latest stories. It is co
 ![download instagram highlights as](https://images.wondershare.com/filmora/article-images/download-instagram-highlight-as8.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Bonus Tip 1: How to Create an Instagram Highlight
@@ -130,12 +126,16 @@ If you haven't created an Instagram Highlight yet, hop on and make one. There ar
 
 ![tap story highlights button](https://images.wondershare.com/filmora/article-images/tap-story-highlights-button9.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Choose a story/stories to create a highlight and click 'Next.'
 
 ![create new instagram highlight](https://images.wondershare.com/filmora/article-images/create-new-instagram-highlight-10.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Enter Highlight name and 'Edit Cover' by choosing a story.
@@ -153,7 +153,7 @@ What is the best way to attract an audience on Instagram? Make unique videos! Le
 [![Download Filmora Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
@@ -206,7 +206,7 @@ Go on, craft, or download Instagram highlights and enjoy. Good luck, Instagramme
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -224,19 +224,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-revamping-screen-recording-a-critical-look-at-camstudios-new-features/"><u>[Updated] 2024 Approved Revamping Screen Recording - A Critical Look at CamStudio's New Features</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-plotting-precise-promotional-reels/"><u>[Updated] Plotting Precise Promotional Reels</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-8-free-instagram-to-mp4-converters-that-you-can-try-onlinewindowsmac/"><u>2024 Approved 8 Free Instagram to MP4 Converters That You Can Try [Online/Windows/Mac]</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/a-step-by-step-approach-to-editing-titles-and-descriptions-for-igtv-for-2024/"><u>A Step-by-Step Approach to Editing Titles and Descriptions for IGTV for 2024</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/enhance-your-online-presence-using-manycam-advanced-live-streaming-application-and-virtually-instant-webcam-solution/"><u>Enhance Your Online Presence Using ManyCam - Advanced Live Streaming Application & Virtually Instant Webcam Solution</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/from-basics-to-high-quality-srgb-vs-rgb/"><u>From Basics to High-Quality Srgb vs Rgb</u></a></li>
-<li><a href="https://howto.techidaily.com/google-play-services-wont-update-12-fixes-are-here-on-itel-p55plus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Play Services Wont Update? 12 Fixes are Here on Itel P55+ | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-itel-phone-with-broken-screen-by-drfone-android/"><u>How to Unlock Itel Phone with Broken Screen</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-4-feasible-ways-to-fake-location-on-facebook-for-your-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>In 2024, 4 Feasible Ways to Fake Location on Facebook For your Apple iPhone 7 | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-5-easy-ways-to-change-location-on-youtube-tv-on-honor-magic-5-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Easy Ways to Change Location on YouTube TV On Honor Magic 5 | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/step-by-step-walkthrough-of-instagram-story-screening/"><u>Step-by-Step Walkthrough of Instagram Story Screening</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/tips-and-hacks-for-using-instagram-filters-effectively/"><u>Tips & Hacks for Using Instagram Filters Effectively</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/unlocking-viral-potential-in-instagram-videos/"><u>Unlocking Viral Potential in Instagram Videos</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/unveiling-instagrams-videography-timeframe/"><u>Unveiling Instagram's Videography Timeframe</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-ideal-dialogue-architect-forum/"><u>[New] 2024 Approved Ideal Dialogue Architect Forum</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-streamlining-instagram-story-captioning-techniques/"><u>[New] 2024 Approved Streamlining Instagram Story Captioning Techniques</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-seamless-experience-with-best-rated-android-devices-for-playstation-2-games/"><u>[New] In 2024, Seamless Experience with Best-Rated Android Devices for PlayStation 2 Games</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-top-2023s-top-browser-extensions-download-facebook-videos-effortlessly/"><u>[New] In 2024, Top 2023'S Top Browser Extensions Download Facebook Videos Effortlessly</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-beat-making-brilliance-music-for-your-instareals/"><u>[Updated] 2024 Approved Beat-Making Brilliance Music for Your InstaReals</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-follower-erosion-how-to-spot-it-on-insta/"><u>[Updated] 2024 Approved Follower Erosion How to Spot It on Insta</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-spotting-the-top-10-covert-instagram-story-spectators/"><u>[Updated] 2024 Approved Spotting the Top 10 Covert Instagram Story Spectators</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/crafting-wisdom-for-the-virtual-realm-30plus-metaverse-quotes/"><u>Crafting Wisdom for the Virtual Realm 30+ Metaverse Quotes</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Apply These Techniques to Improve How to Detect Fake GPS Location On Apple iPhone 14 Pro | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/optimize-visibility-choosing-the-right-hashtags-today-for-2024/"><u>Optimize Visibility Choosing the Right Hashtags Today for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/premium-pickers-best-websites-to-secure-snapalert-music/"><u>Premium Pickers Best Websites to Secure SnapAlert Music</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/spk10-037-softbox-review-a-bright-future-in-lighting/"><u>SPK10-037 Softbox Review - A Bright Future in Lighting</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/the-roadmap-to-becoming-an-excellent-interviewer/"><u>The Roadmap To Becoming An Excellent Interviewer</u></a></li>
 </ul></div>
 

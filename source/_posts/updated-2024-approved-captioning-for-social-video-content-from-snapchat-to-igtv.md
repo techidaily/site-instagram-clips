@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Captioning for Social Video Content  From Snapchat to IGTV\""
-date: 2025-01-09T04:07:18.532Z
-updated: 2025-01-13T23:06:57.872Z
+date: 2025-01-19T12:49:56.339Z
+updated: 2025-01-20T10:17:06.506Z
 tags:
   - ai video
   - ai instagram
@@ -28,7 +28,7 @@ thumbnail: https://thmb.techidaily.com/9e326dc97d7b2a04840d4bac29152fee0a09ec2e5
 During the process of editing an IGTV video, you have to think about the audience that is going to watch that video. The vast majority of people who can see your IGTV posts will be viewing them from a mobile device, which is why your content has to be mobile-friendly. Subtitles should be included in all videos you post on IGTV since they will make your videos more accessible to people with hearing impairment as well as to those IGTV users who for whatever reason can’t turn on the sound while they are watching your video. Read on if you would like to find out how you can add subtitles to IGTV videos because in this article we are going to show you how you can accomplish this effortlessly.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Add Subtitles to IGTV Videos from Mac and PC Computers Using Filmora
@@ -45,6 +45,10 @@ Choose the **New Project** option and then once the project opens, head over to 
 
 ![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/filmora9-4k-project-settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Click on the **OK button** to confirm the changes, and then go to the **Media panel** to import the video you would like to edit. The fastest way to add media files to your project is to just drag them from the folder in which they are stored and drop them to the Media panel. You can also click on the **Import** drop-down menu and select the **Import Media Files** option from the list.
 
 Place the video file on the timeline, and then return to the **File menu**, and click on the **Preferences** option. Click on the **Editing tab** in the **Preferences window** and make sure that the **Crop to Fit feature** is selected in the **Photo Placement drop-down** menu.
@@ -54,7 +58,7 @@ Click on the **Ok button** to confirm the changes, and then proceed to add the *
 ![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/add-background-blur-effects-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You can then cut or trim the video, add filters or perform any other video editing action you want. Keep in mind **that you shouldn’t start adding subtitles before you finish editing your IGTV video.** When you have the final draft of the video ready, you should **make a transcript**. You can do this by exporting the video from Filmora, and uploading it to YouTube in order to automatically create closed captions, but it is much better if you create the transcript manually, because that way you will reduce the chances of making a mistake.
@@ -63,16 +67,12 @@ Once you have all the text ready, you should go to the **Titles panel** and clic
 
 ![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/add-titles-text.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 You can choose from a variety of preset text styles, and you can select the font, color or the size of the text. Click on the **Advanced button** if you would like to customize the text and create as many text layers as you need to cover all the dialogues or the narration in the video.
 
 ![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/advanced-text-editing-9-win.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Adding subtitles to a video can be a painstakingly long process if you’re working with a lot of text, so arm yourself with patience and do your best to be as precise as you possibly can, because lagging subtitles can create a lot of confusion. Besides adding the title and text, you can add some animation effects such as typewriter animation to the typed texts. Learn more about [How to add typewriter effects to videos](https://tools.techidaily.com/wondershare/filmora/download/) in details.
@@ -94,7 +94,7 @@ Even though adding subtitles to videos can require a lot of precision and attent
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -112,17 +112,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-tips.techidaily.com/new-breaking-new-ground-top-6-platforms-for-digital-artistry/"><u>[New] Breaking New Ground Top 6 Platforms for Digital Artistry</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-mastering-ram-management-in-minecraft/"><u>[New] Mastering RAM Management in Minecraft</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-starting-point-learning-to-thrive-in-instagrams-virtual-spaces/"><u>[Updated] Starting Point Learning to Thrive in Instagram's Virtual Spaces</u></a></li>
-<li><a href="https://howto.techidaily.com/11-proven-solutions-to-fix-google-play-store-not-working-issue-on-honor-90-lite-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Proven Solutions to Fix Google Play Store Not Working Issue on Honor 90 Lite | Dr.fone</u></a></li>
-<li><a href="https://win-popular.techidaily.com/embedding-audio-content-across-multiple-pages-a-guide-for-your-flipboard-ebook/"><u>Embedding Audio Content Across Multiple Pages: A Guide for Your FlipBoard eBook</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/heres-everything-you-should-know-about-pokemon-stops-in-detail-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>Heres Everything You Should Know About Pokemon Stops in Detail On Apple iPhone 7 Plus | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-step-by-step-guide-to-refine-igtv-titles-and-descs/"><u>In 2024, Step-by-Step Guide to Refine IGTV Titles & Descs</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/streamlined-social-media-management-our-picks-of-the-best-8-planners-for-2024/"><u>Streamlined Social Media Management Our Picks of the Best 8 Planners for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/successfully-installed-printer-drivers-on-windows-previous-cannot-locate-issue-solved/"><u>Successfully Installed Printer Drivers on Windows - Previous 'Cannot Locate' Issue SOLVED</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/the-artisans-guide-to-instagram-stories-preservation-for-2024/"><u>The Artisan’s Guide to Instagram Stories Preservation for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/theme-that-stands-out-crafting-banners-for-gamers/"><u>Theme That Stands Out Crafting Banners for Gamers</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-lenovo-ideapad-320-assessment-sleek-and-lightweight-laptop-featuring-lenovos-iconic-keyboard/"><u>Top Lenovo IdeaPad 320 Assessment - Sleek & Lightweight Laptop Featuring Lenovo's Iconic Keyboard</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-understanding-the-dynamics-of-ig-reels-vs-ig-stories/"><u>[New] 2024 Approved Understanding the Dynamics of IG Reels Vs IG Stories</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-master-the-art-of-cropping-videos-for-instagrams-highest-standards/"><u>[New] In 2024, Master the Art of Cropping Videos for Instagram's Highest Standards</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-instagram-make-videos-play-swiftly/"><u>[New] Instagram Make Videos Play Swiftly</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-pro-3-camera-insight-mastering-video-on-the-go-with-ion-for-2024/"><u>[New] Pro 3 Camera Insight Mastering Video on the Go with ION for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-reposition-mac-picture-cache-destination/"><u>[Updated] In 2024, Reposition Mac Picture Cache Destination</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-instagram-audio-intellectual-property/"><u>[Updated] Instagram Audio Intellectual Property</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-the-ultimate-guide-to-embedding-youtube-videos-in-insta-stories-for-2024/"><u>[Updated] The Ultimate Guide to Embedding YouTube Videos in Insta Stories for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/discover-the-top-pick-your-ideal-email-program-on-linux-unveiled-by-zdnet/"><u>Discover the Top Pick: Your Ideal Email Program on Linux Unveiled by ZDNet</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-basics-of-ray-tracing-in-graphics-and-rendering/"><u>The Basics of Ray Tracing in Graphics and Rendering</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-pursuit-of-benignly-bound-ai-behavior/"><u>The Pursuit of Benignly Bound AI Behavior</u></a></li>
+<li><a href="https://os-tips.techidaily.com/troubleshooting-a-frozen-ipad-solutions-when-your-device-gets-stuck-on-the-apple-icon/"><u>Troubleshooting a Frozen iPad: Solutions When Your Device Gets Stuck on the Apple Icon</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unraveling-the-mystery-a-detailed-look-at-amazon-fire-vs-samsung-tablets/"><u>Unraveling the Mystery - A Detailed Look at Amazon Fire Vs. Samsung Tablets</u></a></li>
 </ul></div>
 

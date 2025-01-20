@@ -1,7 +1,7 @@
 ---
 title: "[New] Bridging Language Gaps with Translated Subs in IGTV for 2024"
-date: 2025-01-11T01:04:31.686Z
-updated: 2025-01-14T05:36:35.726Z
+date: 2025-01-12T18:31:18.806Z
+updated: 2025-01-20T11:25:56.989Z
 tags:
   - ai video
   - ai instagram
@@ -27,27 +27,27 @@ thumbnail: https://thmb.techidaily.com/aad91a6ecd7769da95953b80a90f8da974d1c7ad6
 
 During the process of editing an IGTV video, you have to think about the audience that is going to watch that video. The vast majority of people who can see your IGTV posts will be viewing them from a mobile device, which is why your content has to be mobile-friendly. Subtitles should be included in all videos you post on IGTV since they will make your videos more accessible to people with hearing impairment as well as to those IGTV users who for whatever reason can’t turn on the sound while they are watching your video. Read on if you would like to find out how you can add subtitles to IGTV videos because in this article we are going to show you how you can accomplish this effortlessly.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Add Subtitles to IGTV Videos from Mac and PC Computers Using Filmora
 
 IGTV videos are vertically oriented, so you can’t just create an SRT file that contains the subtitles. The subtitles for IGTV videos have to be hardcoded. This means that the subtitles are going to be an integral part of the video and that you have to add them to the video during the post-production process.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 We are going to show you how to add subtitles to videos in Filmora because you don’t have to be an experienced filmmaker in order to use this video editing software. After installing Filmora on your Mac or PC computer, double-click on its desktop icon to launch it. The welcome window will appear on the screen asking you if you want to continue working on a **recent project** or if you want to create a **new project**.
 
 ![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/new-project-9.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Choose the **New Project** option and then once the project opens, head over to **File menu** and select **Project Settings** from the list. The **Project Settings window** will pop up on the screen and you should change the resolution to **1080x1920 (9:16)** and increase the **Frame Rate to 30fps**.
 
 ![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/filmora9-4k-project-settings.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Click on the **OK button** to confirm the changes, and then go to the **Media panel** to import the video you would like to edit. The fastest way to add media files to your project is to just drag them from the folder in which they are stored and drop them to the Media panel. You can also click on the **Import** drop-down menu and select the **Import Media Files** option from the list.
 
@@ -57,15 +57,15 @@ Click on the **Ok button** to confirm the changes, and then proceed to add the *
 
 ![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/add-background-blur-effects-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can then cut or trim the video, add filters or perform any other video editing action you want. Keep in mind **that you shouldn’t start adding subtitles before you finish editing your IGTV video.** When you have the final draft of the video ready, you should **make a transcript**. You can do this by exporting the video from Filmora, and uploading it to YouTube in order to automatically create closed captions, but it is much better if you create the transcript manually, because that way you will reduce the chances of making a mistake.
 
 Once you have all the text ready, you should go to the **Titles panel** and click on the **Subtitles** submenu. Filmora features a huge library of fully customizable subtitles, so you should just pick the option that you like the most and add it to the timeline. Add a subtitle file to the exact location on the timeline where particular words are said, and then double-click on it to start adding the text to your IGTV video. Keep in mind that you are going to have to go through the same process for each new sentence.
 
 ![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/add-titles-text.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 You can choose from a variety of preset text styles, and you can select the font, color or the size of the text. Click on the **Advanced button** if you would like to customize the text and create as many text layers as you need to cover all the dialogues or the narration in the video.
 
@@ -75,13 +75,13 @@ Adding subtitles to a video can be a painstakingly long process if you’re work
 
 Once you’re done adding the subtitles you should click on the **Photo Camera icon** to take a snapshot of the video, you can use as a **cover photo for your IGTV video**. Export the video and proceed to upload it to IGTV from your web browser or from your phone.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Add Text to IGTV Videos with the Quik App For iOS and Android Devices
 
 In case you like editing IGTV videos from your phone, you can try adding subtitles to your IGTV videos with the Quik app. After you’ve completed all other video editing tasks, you should tap on the **Text icon** and type in the text you’d like to add to the video. Hit the **OK button** after you’ve added the text and that’s it you’ve successfully created the subtitles for your IGTV video. How long the process of creating hardcoded subtitles is going to last depends on the duration of the video and the amount of narration or dialogue in the video.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Tips for Adding Subtitles to IGTV Videos
 
@@ -94,7 +94,7 @@ Even though adding subtitles to videos can require a lot of precision and attent
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -112,14 +112,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-improve-video-comprehensibility-with-effective-use-of-chapters-in-youtube/"><u>[New] 2024 Approved Improve Video Comprehensibility with Effective Use of Chapters in YouTube</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ut-the-clutter-advanced-techniques-with-youtube-studio-editor-for-2024/"><u>[New] Cut the Clutter Advanced Techniques with YouTube Studio Editor for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-enhance-stories-interaction-with-custom-queries-design/"><u>[New] In 2024, Enhance Stories Interaction with Custom Queries Design</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-elevate-your-posts-with-4-effective-video-loop-techniques/"><u>[Updated] 2024 Approved Elevate Your Posts with 4 Effective Video Loop Techniques</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-enhancing-image-aesthetics-with-effective-instagram-borders-for-2024/"><u>[Updated] Enhancing Image Aesthetics with Effective Instagram Borders for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-elevate-your-engagement-essential-apps-for-insta-growth/"><u>[Updated] In 2024, Elevate Your Engagement Essential Apps for Insta Growth</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-essential-tips-for-a-novice-using-facebook-analytics/"><u>[Updated] In 2024, Essential Tips for a Novice Using Facebook Analytics</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/innovative-approaches-to-customize-your-igtv-content-size-for-2024/"><u>Innovative Approaches to Customize Your IGTV Content Size for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/by-step-designing-a-standout-youtube-video-intro/"><u>Step-by-Step Designing a Standout YouTube Video Intro</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-unbeatable-6-apps-for-crafting-perfect-reels-on-instagram/"><u>[New] 2024 Approved Unbeatable 6 Apps for Crafting Perfect Reels on Instagram</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-instantaneous-timestamping-for-your-youtube-urls/"><u>[New] In 2024, Instantaneous Timestamping for Your YouTube URLs</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-unveiling-the-top-8-instagram-ae-design-choices/"><u>[New] Unveiling the Top 8 Instagram AE Design Choices</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-decode-insta-success-your-comprehensive-guide-to-understanding-user-insights/"><u>[Updated] 2024 Approved Decode Insta Success Your Comprehensive Guide to Understanding User Insights</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-the-instagram-circle-of-power-the-leading-25-titans-revealed/"><u>[Updated] 2024 Approved The Instagram Circle of Power The Leading 25 Titans Revealed</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-ultra-fast-instagram-video-views-for-smartphone-users/"><u>[Updated] 2024 Approved Ultra-Fast Instagram Video Views for Smartphone Users</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-acquire-no-cost-sounds-for-videos-and-podcasts/"><u>[Updated] Acquire No-Cost Sounds for Videos & Podcasts!</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-creating-impressive-video-tracks-with-a-newbie-mac-user-for-2024/"><u>[Updated] Creating Impressive Video Tracks with a Newbie Mac User for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-fusionvisualizer-ipadplusmacmedia-combining-tool-for-2024/"><u>[Updated] FusionVisualizer IPad+MacMedia Combining Tool for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-beginners-essential-guide-to-youtube-video-editing-magic/"><u>[Updated] In 2024, Beginner’s Essential Guide to YouTube Video Editing Magic</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-revolutionize-your-brand-presence-on-igtv-with-these-top-10-strategies-for-2024/"><u>[Updated] Revolutionize Your Brand Presence on IGTV with These Top 10 Strategies for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-the-ultimate-guide-to-vr-game-engine-picks-2023-for-2024/"><u>[Updated] The Ultimate Guide to VR Game Engine Picks, 2023 for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-t-mobile-iphone-xs-online-without-sim-card-by-drfone-ios/"><u>How to Unlock T-Mobile iPhone XS online without SIM Card?</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/remove-the-lock-screen-fingerprint-of-your-huawei-nova-y71-by-drfone-android/"><u>Remove the Lock Screen Fingerprint Of Your Huawei Nova Y71</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/step-by-step-methods-for-easy-instagram-video-uploads-from-desktop-for-2024/"><u>Step-by-Step Methods for Easy Instagram Video Uploads From Desktop for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-canva-blueprint-to-neat-and-clean-image-edges/"><u>The Canva Blueprint to Neat and Clean Image Edges</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Petcube Premium: Budget-Conscious HD Pet Surveillance Camera"
-date: 2025-01-13T03:27:18.293Z
-updated: 2025-01-14T04:17:04.457Z
+date: 2025-01-15T08:57:29.778Z
+updated: 2025-01-20T09:56:07.172Z
 categories:
   - BestProducts
 description: "This Article Describes Petcube Premium: Budget-Conscious HD Pet Surveillance Camera"
@@ -38,7 +38,7 @@ Lifewire / Kelsey Simon
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Dying Light
@@ -68,10 +68,14 @@ Lifewire / Kelsey Simon
 
 ![Dying Light](https://www.lifewire.com/thmb/_0yEidfS3S4dy57s584t378TZYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-5-4ec68914607c4b56acff25a78887af7f.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: Straight into the action**
@@ -79,10 +83,6 @@ Lifewire / Kelsey Simon
  The first time you launch the game you'll be treated to an artistic video over the background of a news report. It explains the situation in Harran, the city where the game takes place. The game proper starts with a cut scene that shows you on a plane, about to parachute out. There’s no character creation here, although once you get a little further into the game, you’ll be able to pick your clothes.
 
 ![Dying Light](https://www.lifewire.com/thmb/P3rXmBBI1GdQfgi0vVT9xKcFw90=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-2-db5990d1f64341eaae79e22a71bb8f95.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -97,10 +97,6 @@ Harran is a whole different city at night.
  This is a fairly linear game with regards to the plot. There's a main storyline for you to follow, with some optional side quests that you can take or leave. The narrative does a decent job of building up the circumstances for Kyle feeling torn between his mission and these people, and you’ll learn more about the virus as you go, as well as Antizin, the fictional drug that could lead to a cure.
 
 ![Dying Light](https://www.lifewire.com/thmb/8G35q3VsoSEuht_3bqsGm0Pwz-0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-7-d9d2bbe8881e476f8dfb3c13059634ed.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -128,15 +124,23 @@ Harran is a whole different city at night.
 
 ![Dying Light](https://www.lifewire.com/thmb/sy9NHLj8JNe2eaeS9HJJdejt6QE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-6-56ef808272b544e6a1038f4a5d0280f1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Worth the cost, especially with a friend**
 
  On PlayStation 4, you can purchase the game for $14, a fantastic value. You’ll get more than enough gameplay and fun to justify a purchase at that low cost. However, if you want to play on[PC](https://www.lifewire.com/best-desktop-pcs-4045927) , you’ll have to either wait for the game to go on sale, or you’ll have to pay $40\. Considering the game is older now, we’d suggest getting the game on sale (it goes on sale often through Steam). There’s a lot of fun to be had in Dying Light, especially if you have a friend to play with, so if you’re thinking about getting the game, we’d say go for it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: Other zombie and parkour games**
 
@@ -149,10 +153,6 @@ Harran is a whole different city at night.
 **An original in the zombie survival genre.**
 
  Dying Light is a game that took an overdone trope and used it to create a fresh game. Its fun parkour and co-op gameplay make for a great gaming experience, particularly when shared with friends. The variety of zombie enemies combined with the excellent melee combat keep the experience fresh even in the late game―and if things feel too simple, doing a mission at night is a wholly different experience from daylight outings. Dying Light is a great game in the zombie survival genre that we would recommend to most players.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -175,21 +175,20 @@ Harran is a whole different city at night.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-time-travellers-guide-sharing-past-photos-as-snaps/"><u>[New] In 2024, Time Traveller's Guide - Sharing Past Photos as Snaps</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-boost-music-production-with-our-leading-free-beat-detection-software/"><u>[Updated] 2024 Approved Boost Music Production with Our Leading Free Beat Detection Software</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-seamless-and-secure-downloading-instagram-videos-from-your-computermacos/"><u>[Updated] 2024 Approved Seamless & Secure Downloading Instagram Videos From Your Computer/MacOS</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-seamless-transition-of-youtube-videos-into-instagram-stories/"><u>[Updated] 2024 Approved Seamless Transition of YouTube Videos Into Instagram Stories</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-spotlight-on-recent-unfollows-on-instagram/"><u>[Updated] 2024 Approved Spotlight on Recent Unfollows on Instagram</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-tactical-techniques-for-stunning-instagram-puzzle-displays/"><u>[Updated] 2024 Approved Tactical Techniques for Stunning Instagram Puzzle Displays</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-the-art-of-background-blur-in-modern-photography/"><u>[Updated] 2024 Approved The Art of Background Blur in Modern Photography</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-step-by-step-to-reel-success-on-instagram/"><u>[Updated] In 2024, Step-by-Step to Reel Success on Instagram</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-step-by-step-guide-to-crafting-an-instagram-enterprise-profile-for-2024/"><u>[Updated] Step-by-Step Guide to Crafting an Instagram Enterprise Profile for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-humor-and-memes-galore-iphones/"><u>2024 Approved Humor & Memes Galore, iPhones</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-optimal-vision-with-the-best-4k-monitors-1-10/"><u>2024 Approved Optimal Vision with the Best 4K Monitors, #1-10</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/breaking-down-the-distinctiveness-of-knack-against-predictable-gaming-environments/"><u>Breaking Down the Distinctiveness of Knack Against Predictable Gaming Environments</u></a></li>
-<li><a href="https://win-online.techidaily.com/conversione-gratuita-da-wma-a-mpeg-come-utilizzare-il-servizio-di-conversioni-on-line-di-movavi-senza-costi/"><u>Conversione Gratuita Da WMA a MPEG: Come Utilizzare Il Servizio Di Conversioni on Line Di Movavi Senza Costi</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-xiaomi-redmi-12-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on Xiaomi Redmi 12</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-syncopated-sounds-discovering-crossfades/"><u>In 2024, Syncopated Sounds Discovering Crossfades</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/optimal-method-for-incorporating-linktree-in-tiktok-profiles-for-2024/"><u>Optimal Method for Incorporating Linktree in TikTok Profiles for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-instagrams-temporal-twist-learn-how-to-turn-back-time/"><u>[New] 2024 Approved Instagram's Temporal Twist Learn How to Turn Back Time</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-mastering-the-craft-of-igtv-video-production-with-phones-and-dslrs/"><u>[New] 2024 Approved Mastering the Craft of IGTV Video Production with Phones and DSLRs</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-mastering-vimeo-video-on-instagram-feed/"><u>[New] 2024 Approved Mastering Vimeo Video on Instagram Feed</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-navigating-and-mastering-instagram-filters-a-2023-guide/"><u>[New] 2024 Approved Navigating and Mastering Instagram Filters A 2023 Guide</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-perfect-your-profile-easy-guide-for-instagram-videos-from-desktop/"><u>[New] 2024 Approved Perfect Your Profile Easy Guide for Instagram Videos From Desktop</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-personalize-speakability-changing-your-tone-on-instagram-posts/"><u>[New] 2024 Approved Personalize Speakability Changing Your Tone on Instagram Posts</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-navigating-color-change-pro-methods-uncovered/"><u>[New] Navigating Color Change Pro Methods Uncovered</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-the-startups-secret-weapon-kit-must-have-items-that-set-you-apart/"><u>[Updated] In 2024, The Startup's Secret Weapon Kit Must-Have Items That Set You Apart</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/2024-approved-youtube-intros-unveiled-two-proven-ways-for-impact/"><u>2024 Approved YouTube Intros Unveiled Two Proven Ways for Impact</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-infinix-note-30-pro-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For Infinix Note 30 Pro</u></a></li>
+<li><a href="https://video-capture.techidaily.com/capture-slide-show-as-cinema-ready-media/"><u>Capture Slide Show as Cinema-Ready Media</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-photos-from-a60-by-fonelab-android-recover-photos/"><u>Easy steps to recover deleted photos from A60.</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-to-get-rid-of-microsofts-copilot-assistant-from-windows-11-systems/"><u>How To: Get Rid of Microsoft's Copilot Assistant From Windows 11 Systems</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-achieving-accuracy-and-artistry-in-altered-image-tones/"><u>In 2024, Achieving Accuracy and Artistry in Altered Image Tones</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-can-i-bypass-a-forgotten-phone-password-of-tecno-by-drfone-android/"><u>In 2024, Can I Bypass a Forgotten Phone Password Of Tecno?</u></a></li>
 </ul></div>
 
