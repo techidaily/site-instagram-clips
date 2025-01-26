@@ -1,7 +1,7 @@
 ---
 title: "[New] Transforming Your Photos on Instagram Green Screen for 2024"
-date: 2025-01-14T06:54:29.617Z
-updated: 2025-01-20T07:03:20.488Z
+date: 2025-01-24T07:05:42.288Z
+updated: 2025-01-26T00:28:35.764Z
 tags:
   - ai video
   - ai instagram
@@ -43,10 +43,6 @@ The green background can be replaced with various sceneries or any kind of backg
 
 If you have not heard of the green screen effect of Instagram yet, then don't worry. This is the perfect time to know how to use this effect on Instagram, and for this, we have got you covered. In this part, we will discuss a stepwise method to use the green screen Instagram effect. So, let's get started:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Step1: Launch Instagram
 
 First things first, launch the Instagram app on your phone to get started. Now click on the little **\+** icon on your profile picture to start an Instagram story.
@@ -55,6 +51,10 @@ First things first, launch the Instagram app on your phone to get started. Now c
 
 You'll see an effect prompt, and then you need to swipe to the right until you get the **Browse Effects** option.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 3: Search Green Screen
 
 Now tap on the search option and type **Green Screen.** Several effects will come after the search, but we need the Instagram green-screen effect, i.e., the one offered by Instagram. Bookmark that effect to save it for use.
@@ -62,7 +62,11 @@ Now tap on the search option and type **Green Screen.** Several effects will com
 ![Ins Green Screen Filters](https://images.wondershare.com/filmora/article-images/instagram-green-screen-filters.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 4: Tap on Add Media
@@ -72,7 +76,7 @@ Tap on the **Add Media** option to add the background. Upload a video or an imag
 ![add Ins Green Screen Filters](https://images.wondershare.com/filmora/article-images/add-media-instagram-green-screen-filter.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 6: Add to the Story or Download it
@@ -80,10 +84,6 @@ Tap on the **Add Media** option to add the background. Upload a video or an imag
 Now either add it to your Instagram story by tapping on the bottom left option or download it to your phone's library by clicking on the **Download** option.
 
 ![download Ins Green Screen video](https://images.wondershare.com/filmora/article-images/download-green-screen-video-from-instagram.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: How to Use the Green Screen on Instagram Reel
 
@@ -100,6 +100,10 @@ You have to **launch the Instagram app** on your phone to use the green screen I
 ### Step 2: Tap on the Story
 
 Click on **Profile Picture** on the top left, named as your story, to start it. Now, swipe right until you see the **Reels** option.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step 3: Select Reels
 
@@ -118,7 +122,7 @@ The video below shares some of the interesting green screen tricks, don't miss i
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to Remove Background from Instagram Video without Green Effect Effects
@@ -141,14 +145,6 @@ Import the media you want to upload on Instagram to Filmora. Then select **AI Po
 
 ![add media to Filmora](https://images.wondershare.com/filmora/article-images/add-media-remove-video-bg.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Step 2: Add the AI Portrait Effect to Remove Video Background
 
 Al Portrait is not a free module, so either you have to **Purchase** it or **Try it for free**. There are various assets under AI Portrait, to remove the video background and isolate the human, you need to add Human Segmentation to the timeline. **Play the video** once to check the segmentation of the effects that you have applied to your video.
@@ -156,7 +152,7 @@ Al Portrait is not a free module, so either you have to **Purchase** it or **Try
 ![add human segmentation effects in  Filmora](https://images.wondershare.com/filmora/article-images/add-human-segmentation-to-remove-background.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 3: Adjust Effects
@@ -165,19 +161,23 @@ Different effects have different settings so that you can adjust the effects acc
 
 ![add human segmentation effects ](https://images.wondershare.com/filmora/article-images/human-segmentation-effects-adjust.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Now you have gotten a video without a background, you can now add your own background to compose them together.
 
 ![compose green screen video ](https://images.wondershare.com/filmora/article-images/compose-video-without-green-screen.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step 4: Export the video
 
 Once you are done with all that, you need to export the video to the desktop first and then upload it to Instagram from the desktop. Watch the video tutorial below and find out more creative usage of Filmora AI Portrait.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Conclusion**
 
@@ -202,20 +202,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-finding-fixes-your-missing-video-suggestions-on-fb/"><u>[New] 2024 Approved Finding Fixes Your Missing Video Suggestions on FB</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-learn-the-ultimate-snap-sharing-trick-today/"><u>[New] 2024 Approved Learn the Ultimate Snap Sharing Trick Today</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-uncovering-the-leading-10-under-the-radar-story-viewers/"><u>[New] 2024 Approved Uncovering the Leading 10 Under-the-Radar Story Viewers</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-instagrams-copyright-and-sharing-guide-for-2024/"><u>[New] Instagram's Copyright & Sharing Guide for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-elevate-your-edits-10-essential-apps-for-instagram-videos/"><u>[Updated] 2024 Approved Elevate Your Edits 10 Essential Apps for Instagram Videos</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-directing-fundamentals-a-comprehensive-online-course-by-youtube-experts/"><u>[Updated] In 2024, Directing Fundamentals A Comprehensive Online Course by YouTube Experts</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-essential-apps-for-professional-video-editing-on-androidpc/"><u>[Updated] In 2024, Essential Apps for Professional Video Editing on Android/PC</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-understanding-and-managing-facebooks-hidden-history/"><u>[Updated] In 2024, Understanding & Managing Facebook's Hidden History</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-perfectly-prepared-videos-a-guide-to-instagram-fitness-for-2024/"><u>[Updated] Perfectly Prepared Videos A Guide to Instagram Fitness for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-remove-forgotten-pin-of-your-sony-by-drfone-android/"><u>How to Remove Forgotten PIN Of Your Sony</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-crafting-quality-content-image-submission-for-youtubers/"><u>In 2024, Crafting Quality Content Image Submission for YouTubers</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-professional-mix-techniques-for-crossfading-sounds-with-audacity/"><u>In 2024, Professional Mix Techniques for Crossfading Sounds with Audacity</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/professional-edge-mastering-bordered-videos-on-insta-for-2024/"><u>Professional Edge Mastering Bordered Videos on Insta for 2024</u></a></li>
-<li><a href="https://win-blog.techidaily.com/step-by-step-guide-to-stop-resident-evil-4-remake-from-crashing/"><u>Step-by-Step Guide to Stop Resident Evil 4 (Remake) From Crashing</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/ways-to-find-unlocking-codes-for-google-pixel-fold-phones-by-drfone-android/"><u>Ways To Find Unlocking Codes For Google Pixel Fold Phones</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-assessing-instagrams-limits-on-posted-videos-for-2024/"><u>[New] Assessing Instagram's Limits on Posted Videos for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-backpedaling-through-imagery-an-insiders-guide-to-finding-originals-in-instagram-for-2024/"><u>[New] Backpedaling Through Imagery An Insider's Guide to Finding Originals in Instagram for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-boosting-impact-in-instagram-tv-key-size-strategies-unveiled-for-2024/"><u>[New] Boosting Impact in Instagram TV Key Size Strategies Unveiled for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-a-step-by-step-tutorial-for-capturing-excellent-igtv-footage/"><u>[New] In 2024, A Step-by-Step Tutorial for Capturing Excellent IGTV Footage</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-avoid-unnecessary-interactions-block-strategies/"><u>[New] In 2024, Avoid Unnecessary Interactions Block Strategies</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-engage-audiences-on-all-sides-live-360-degree-video-broadcasting-for-youtube/"><u>[New] In 2024, Engage Audiences on All Sides Live 360-Degree Video Broadcasting for YouTube</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-through-a-photographers-eye-our-best-10-lenses-list/"><u>[New] Through a Photographer's Eye Our Best 10 Lenses List</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-visualizationvirtue-the-art-of-resizing-photos-and-videos-in-instagram/"><u>[New] VisualizationVirtue The Art of Resizing Photos and Videos in Instagram</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-a-symphony-for-screens-music-in-instagram-visuals/"><u>[Updated] 2024 Approved A Symphony for Screens Music in Instagram Visuals</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-amplify-igtv-audiences-5-effective-ways-for-a-larger-following/"><u>[Updated] 2024 Approved Amplify IGTV Audiences 5 Effective Ways for a Larger Following</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-pro-gif-designers-picks-online-vs-desktop-platforms/"><u>[Updated] In 2024, Pro-Gif Designers' Picks Online vs Desktop Platforms</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-latest-tricks-for-ios-screenshots-and-recording/"><u>2024 Approved Latest Tricks for iOS Screenshots & Recording</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-stellar-spectrum-10-sites-cutting-edge-of-hd-astronomy/"><u>2024 Approved Stellar Spectrum 10 Sites Cutting-Edge of HD Astronomy</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/easy-steps-get-the-latest-acer-touchpad-software-for-your-windows-10-device/"><u>Easy Steps: Get the Latest Acer Touchpad Software for Your Windows 10 Device</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/iphoneapp202/"><u>IPhoneをもっと幸せに!?【究極のオフライン音楽App】202</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/optimizing-your-legal-paperwork-5-key-tips-using-abbyy-tech/"><u>Optimizing Your Legal Paperwork: 5 Key Tips Using ABBYY Tech</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/peering-through-the-lens-how-predictive-ai-functions/"><u>Peering Through the Lens: How Predictive AI Functions</u></a></li>
 </ul></div>
 

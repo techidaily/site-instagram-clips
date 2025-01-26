@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] FrameFinesse  A Detailed Guide on IG Image Dimensions\""
-date: 2025-01-19T05:40:48.992Z
-updated: 2025-01-20T01:05:16.313Z
+date: 2025-01-22T16:15:37.604Z
+updated: 2025-01-26T10:06:12.509Z
 tags:
   - ai video
   - ai instagram
@@ -30,7 +30,7 @@ Taking photos with iPhones and Android Smartphones and posting them to Instagram
 Troubles begin when you want to upload photos and videos that weren't captured with a Smartphone to Instagram. In most cases, the photos and videos produced by DSLR cameras and other semi-professional and professional equipment are much larger than the sizes supported by Instagram. That is the reason why we created this guide that will help you post visual content that is perfectly adjusted to Instagram in 2021.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Types of Files Accepted by Instagram
@@ -50,7 +50,7 @@ Duration of Videos on Instagram
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Best Image Sizes for Instagram Posts
@@ -62,7 +62,7 @@ A couple of years ago, Instagram has finally allowed its users to upload images 
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
@@ -90,7 +90,7 @@ The profile pictures on Instagram are tiny, and the optimum size for them is 160
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -108,24 +108,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-the-art-of-enticing-instagram-followers-a-puzzle-post-primer/"><u>[Updated] In 2024, The Art of Enticing Instagram Followers A Puzzle Post Primer</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-infinite-jest-joyride-top-kids-game-lineup-for-2024/"><u>[Updated] Infinite Jest Joyride - Top Kids' Game Lineup for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/1715860782574-updated-instant-mac-screen-savior-free/"><u>[Updated] Instant Mac Screen Savior - Free!</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-independent-ringtones-at-your-fingertips-a-comprehensive-guide/"><u>2024 Approved Independent Ringtones at Your Fingertips A Comprehensive Guide</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-understanding-ip-instagram-melody-rights/"><u>2024 Approved Understanding IP Instagram Melody Rights</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-unleash-creativity-a-comprehensive-guide-to-instagrams-gif-features/"><u>2024 Approved Unleash Creativity A Comprehensive Guide to Instagram's GIF Features</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-unleash-your-social-media-potential-find-the-best-8-instagram-timers/"><u>2024 Approved Unleash Your Social Media Potential Find the Best 8 Instagram Timers</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-unlock-instagram-potential-with-advanced-cropping-methods/"><u>2024 Approved Unlock Instagram Potential with Advanced Cropping Methods</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-unlocking-igtvs-potential-secrets-to-attract-more-subscribers/"><u>2024 Approved Unlocking IGTV's Potential Secrets to Attract More Subscribers</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-unlocking-instagrams-power-essential-5-tips-and-examples-from-pros/"><u>2024 Approved Unlocking Instagram's Power Essential 5 Tips & Examples From Pros</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-unlocking-the-potential-of-instagrams-filters-a-modern-guide-2e23/"><u>2024 Approved Unlocking the Potential of Instagram's Filters - A Modern Guide (2E23)</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-unlocking-the-secrets-to-instagram-post-replicas/"><u>2024 Approved Unlocking the Secrets to Instagram Post Replicas</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-unrestricted-story-preservation-free/"><u>2024 Approved Unrestricted Story Preservation, FREE</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ce-your-content-creation-with-these-top-12-cameras-for-2024/"><u>Enhance Your Content Creation with These Top 12 Cameras for 2024</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-5-quick-methods-to-bypass-honor-x7b-frp-by-drfone-android/"><u>In 2024, 5 Quick Methods to Bypass Honor X7b FRP</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-perfecting-the-art-of-compelling-mosaic-imagery/"><u>In 2024, Perfecting the Art of Compelling Mosaic Imagery</u></a></li>
-<li><a href="https://win-special.techidaily.com/optimizing-system-performance-key-software-to-discontinue-for-a-faster-computer/"><u>Optimizing System Performance: Key Software to Discontinue for a Faster Computer</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/inside-the-ultimate-list-of-immersive-youtube-vr-content-for-2024/"><u>Step Inside The Ultimate List of Immersive YouTube VR Content for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-5-features-of-the-kobo-forma-the-ultimate-e-reader-for-bibliophiles/"><u>Top 5 Features of the Kobo Forma – The Ultimate E-Reader for Bibliophiles</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-alight-motion-comprehensive-review/"><u>[New] Alight Motion Comprehensive Review</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/iscover-10-amazing-world-wanderlust-channels-for-2024/"><u>[New] Discover 10 Amazing World Wanderlust Channels for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-instagram-video-promotion-mastery-craft-your-winning-market-plan/"><u>[New] Instagram Video Promotion Mastery Craft Your Winning Market Plan</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-instagram-video-reduction-tips-for-mac-users/"><u>[New] Instagram Video Reduction Tips for Mac Users</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-instagram-visual-mastery-crop-and-edit-videos-like-pros/"><u>[New] Instagram Visual Mastery Crop and Edit Videos Like Pros</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-instantaneous-methods-for-video-to-mp3-on-instagram/"><u>[New] Instantaneous Methods for Video-to-MP3 on Instagram</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-top-6-instagram-money-calculator-safe-and-effective/"><u>[New] Top 6 Instagram Money Calculator - Safe & Effective</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-crop-chronicles-the-ultimate-farm-farewell-fest/"><u>[Updated] 2024 Approved Crop Chronicles The Ultimate Farm Farewell Fest</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-instagram-tv-shutdown-procedure/"><u>[Updated] Instagram TV Shutdown Procedure</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-navigating-picture-in-picture-on-safaris-ecosystem/"><u>[Updated] Navigating Picture-in-Picture on Safari's Ecosystem</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-tips-to-make-your-instagram-video-goes-viral/"><u>[Updated] Tips to Make Your Instagram Video Goes Viral</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-your-digital-footprint-the-impact-of-off-facebook-history/"><u>[Updated] Your Digital Footprint The Impact of Off-Facebook History</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/5-solutions-for-poco-c55-unlock-without-password-by-drfone-android/"><u>5 Solutions For Poco C55 Unlock Without Password</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-xiaomi-redmi-note-12-pro-5g-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on Xiaomi Redmi Note 12 Pro 5G</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/strategic-move-as-automattic-takes-over-beeper-unveiling-ambitious-goals-for-the-future-of-messaging-services/"><u>Strategic Move as Automattic Takes Over Beeper, Unveiling Ambitious Goals for the Future of Messaging Services</u></a></li>
+<li><a href="https://win11.techidaily.com/winning-cars-mouse-keys-and-acceleration-mastery/"><u>Winning Cars: Mouse, Keys, and Acceleration Mastery</u></a></li>
 </ul></div>
 

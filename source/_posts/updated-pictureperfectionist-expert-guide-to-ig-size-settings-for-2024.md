@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] PicturePerfectionist  Expert Guide to IG Size Settings for 2024\""
-date: 2025-01-18T12:42:07.739Z
-updated: 2025-01-20T12:31:12.408Z
+date: 2025-01-19T18:07:00.293Z
+updated: 2025-01-26T12:27:33.117Z
 tags:
   - ai video
   - ai instagram
@@ -30,7 +30,7 @@ Taking photos with iPhones and Android Smartphones and posting them to Instagram
 Troubles begin when you want to upload photos and videos that weren't captured with a Smartphone to Instagram. In most cases, the photos and videos produced by DSLR cameras and other semi-professional and professional equipment are much larger than the sizes supported by Instagram. That is the reason why we created this guide that will help you post visual content that is perfectly adjusted to Instagram in 2021.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Types of Files Accepted by Instagram
@@ -50,7 +50,7 @@ Duration of Videos on Instagram
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Best Image Sizes for Instagram Posts
@@ -62,7 +62,7 @@ A couple of years ago, Instagram has finally allowed its users to upload images 
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
@@ -90,7 +90,7 @@ The profile pictures on Instagram are tiny, and the optimum size for them is 160
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -108,14 +108,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-choreograph-cheeky-comics-via-giphy/"><u>[New] Choreograph Cheeky Comics via Giphy</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-mastering-facebook-visuals-adding-text-boxes-and-dark-bar-overlays/"><u>[New] Mastering Facebook Visuals Adding Text Boxes & Dark Bar Overlays</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-streamlining-the-process-of-finding-your-own-musical-compilation-on-youtube/"><u>[Updated] 2024 Approved Streamlining the Process of Finding Your Own Musical Compilation on Youtube</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-photos-files-on-oppo-a79-5g-by-fonelab-android-recover-photos/"><u>Complete guide for recovering photos files on Oppo A79 5G.</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-hidden-viewers-guide-reading-instagram-stories-privately-from-pcandroidios/"><u>In 2024, Hidden Viewers Guide Reading Instagram Stories Privately From PC/Android/iOS</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-instagrams-latest-trends-for-successful-influencer-journeys/"><u>In 2024, Instagram's Latest Trends for Successful Influencer Journeys</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-perfecting-pace-techniques-for-shooting-captivating-slow-motion-content-for-instagram-audiences/"><u>In 2024, Perfecting Pace Techniques for Shooting Captivating Slow Motion Content for Instagram Audiences</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-quick-start-engaging-with-friends-on-insta-chat/"><u>In 2024, Quick Start Engaging with Friends on Insta Chat</u></a></li>
-<li><a href="https://article-helps.techidaily.com/melodic-medley-choosing-the-best-ringtone-websites/"><u>Melodic Medley Choosing the Best Ringtone Websites</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-the-entrepreneurial-journey-of-launching-a-review-channel-for-clothing-for-2024/"><u>[New] The Entrepreneurial Journey of Launching a Review Channel for Clothing for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-the-ultimate-guide-to-embedding-youtube-videos-in-insta-stories/"><u>[New] The Ultimate Guide to Embedding YouTube Videos in Insta Stories</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-unlimited-savvy-instagrams-infinite-save-tool/"><u>[New] Unlimited Savvy Instagram's Infinite Save Tool</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-your-first-steps-for-youtube-earning-8-methods/"><u>[Updated] 2024 Approved Your First Steps for YouTube Earning - 8 Methods</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-innovative-approaches-to-capturing-skype-calls-on-obs/"><u>[Updated] In 2024, Innovative Approaches to Capturing Skype Calls on OBS</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-the-strategic-approach-to-embedding-youtube-links-in-insta-stories/"><u>[Updated] The Strategic Approach to Embedding YouTube Links in Insta Stories</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-the-ultimate-guide-to-melodic-content-on-instagram/"><u>[Updated] The Ultimate Guide to Melodic Content on Instagram</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-top-iphones-and-android-premium-coverage-for-your-ig-highlights/"><u>2024 Approved Top iPhones & Android Premium Coverage for Your IG Highlights</u></a></li>
+<li><a href="https://discover-guides.techidaily.com/windows-11-0xc00-user/"><u>防ぐには何が！Windows 11のクラッシュエラー 0XC00 # User</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-vivo-y27s-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Vivo Y27s</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-minimalist-obs-adjustments-for-under-500-pcs/"><u>In 2024, Minimalist OBS Adjustments for Under-$500 PCs</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-unleash-a-new-sound-personality-on-instagram/"><u>In 2024, Unleash a New Sound Personality on Instagram</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/the-ultimate-how-to-subtitling-your-igtv-videos-for-2024/"><u>The Ultimate How-To Subtitling Your IGTV Videos for 2024</u></a></li>
+<li><a href="https://win-online.techidaily.com/top-rangige-gratis-spiegelbild-sicherungswerkzeuge-fur-windows-111087-lassen-sie-sich-uberzeugen/"><u>Top-Rangige Gratis Spiegelbild Sicherungswerkzeuge Für Windows 11/10/8/7 - Lassen Sie Sich Überzeugen!</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/transforming-your-video-content-making-square-format-footage-for-instagram-for-2024/"><u>Transforming Your Video Content Making Square-Format Footage for Instagram for 2024</u></a></li>
+<li><a href="https://techidaily.com/undeleted-lost-videos-from-infinix-hot-40-pro-by-fonelab-android-recover-video/"><u>Undeleted lost videos from Infinix Hot 40 Pro</u></a></li>
+<li><a href="https://win-guides.techidaily.com/understanding-the-causes-of-your-sluggish-laptop-insights-from-yl-computing-and-yl-software/"><u>Understanding the Causes of Your Sluggish Laptop: Insights From YL Computing & YL Software</u></a></li>
 </ul></div>
 

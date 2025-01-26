@@ -1,7 +1,7 @@
 ---
 title: "\"Optimize Video Posts  A Comprehensive Crop & Export Method for 2024\""
-date: 2025-01-16T21:21:27.082Z
-updated: 2025-01-20T10:57:00.270Z
+date: 2025-01-21T08:33:01.274Z
+updated: 2025-01-26T12:50:08.294Z
 tags:
   - ai video
   - ai instagram
@@ -38,7 +38,7 @@ In order to create videos that will get thousands of likes on Instagram, you nee
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### **How to crop videos for instagram in Filmora**
@@ -51,10 +51,14 @@ In order to start cropping your videos, you first must install the Filmora video
 
 ![](https://images.wondershare.com/filmora/article-images/filmora-import.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 2: Drag and Drop the video file onto the Timeline**
@@ -71,25 +75,21 @@ Chances are that the camera you used to record your video clip recorded the foot
 
 ![check aspect ratio](https://images.wondershare.com/filmora/article-images/check-aspect-ratio.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Once the new window appears, you should click on the Format icon positioned in the upper left corner of the screen. Select the MP4 format, name your file and select the folder where the file will be exported.
 
 Click on the Settings button and then set the Quality of the video to Best and select the HD Optimized option in the Encoder menu. Choose the Resolution and Frame Rate that match the ones in your video and change the Bitrate in the Audio settings to 128 Kbps and hit OK.
 
 ![](https://images.wondershare.com/filmora/article-images/16-9-aspect-ratio-export.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **2\. Portrait (4:3)**
 
 In order to create a video that has a portrait aspect ratio, you need to crop it. You can do this by clicking on the **Crop and Pan tool**, located in the timeline tools. Use an [online aspect ratio calculator](https://calculateaspectratio.com/) to find the exact resolution that matches the portrait aspect ratio. Once you made the calculations return to Filmora and click on the Manually option in the Crop and Pan screen. Insert the numbers manually to resize the video.
 
 ![crop and zoom filmora](https://images.wondershare.com/filmora/article-images/crop-and-zoom-filmora.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Adjust the crop tool's position and click OK. The export process for landscape and portrait videos is nearly identical and the only thing you need to change is the resolution. Click on the Resolution drop-down menu and select the custom option and then enter the height and weight values you inserted in the cropping tool. Your portrait video is ready to be exported.
 
@@ -102,7 +102,7 @@ The steps for exporting square videos are the same as the steps you need to take
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -120,18 +120,20 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-the-key-to-cinematic-excellence-mastering-the-art-of-shooting-stunning-slow-motion-media-on-instagram/"><u>[New] In 2024, The Key to Cinematic Excellence Mastering the Art of Shooting Stunning Slow-Motion Media on Instagram</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-perfect-your-visuals-on-insta-with-these-borders/"><u>[Updated] 2024 Approved Perfect Your Visuals on Insta with These Borders</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-expert-techniques-for-adding-borders-to-your-instagram-images/"><u>[Updated] In 2024, Expert Techniques for Adding Borders to Your Instagram Images</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-instagrowth-hack-secrets-for-scaling-to-1000month-fans/"><u>[Updated] In 2024, InstaGrowth Hack Secrets for Scaling to 1,000/Month Fans</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-youtube-profitability-guide-cpm-and-earnings-analysis/"><u>[Updated] In 2024, YouTube Profitability Guide CPM and Earnings Analysis</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-the-art-of-sound-in-visual-storytelling-on-instagram-for-2024/"><u>[Updated] The Art of Sound in Visual Storytelling on Instagram for 2024</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-vivo-v29e-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Vivo V29e</u></a></li>
-<li><a href="https://network-issues.techidaily.com/enabling-internal-cameras-on-asus-systems/"><u>Enabling Internal Cameras on Asus Systems</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-top-12-prominent-nokia-xr21-fingerprint-not-working-solutions-by-drfone-android/"><u>In 2024, Top 12 Prominent Nokia XR21 Fingerprint Not Working Solutions</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/mystery-of-the-asleep-pc-wake-failure-in-windows/"><u>Mystery of the Asleep PC: Wake Failure in Windows</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/simple-steps-accessing-windows-11s-advanced-startup-features-without-hitch/"><u>Simple Steps: Accessing Windows 11'S Advanced Startup Features Without Hitch</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/ultimate-guide-resolving-pc-playback-problems-with-facebook-videos-sound-issues/"><u>Ultimate Guide: Resolving PC Playback Problems with Facebook Videos (Sound Issues)</u></a></li>
-<li><a href="https://fox-links.techidaily.com/windows-10-key-additions-and-tweaks-in-focus-for-2024/"><u>Windows 10 Key Additions and Tweaks in Focus for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-grading-inshot-does-it-reign-supreme/"><u>[New] 2024 Approved Grading InShot Does It Reign Supreme?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/emystifying-video-seo-on-youtube-as-a-novice-for-2024/"><u>[New] Demystifying Video SEO on YouTube as a Novice for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-youtube-profitability-initial-steps-to-earnings/"><u>[New] YouTube Profitability Initial Steps to Earnings</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-enhancing-your-snap-with-soundtracks-without-stickers/"><u>[Updated] Enhancing Your Snap with Soundtracks (Without Stickers)</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-fundamentals-for-newcomers-on-screen-quality-measures/"><u>[Updated] In 2024, Fundamentals for Newcomers on Screen Quality Measures</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-avoiding-common-pitfalls-in-rl-gameplay-recordings/"><u>2024 Approved Avoiding Common Pitfalls in RL Gameplay Recordings</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-flip-the-script-on-instagram-vids-complete-guide/"><u>2024 Approved Flip the Script on Instagram Vids [Complete Guide]</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/chatgpts-legal-hurdles-explored-impact-on-users-and-developers/"><u>ChatGPT's Legal Hurdles Explored – Impact on Users and Developers</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/expert-tips-for-efficient-instagram-to-mp4-transformation-for-2024/"><u>Expert Tips for Efficient Instagram to MP4 Transformation for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/from-instagram-video-to-mp3-sound-for-2024/"><u>From Instagram Video to Mp3 Sound for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-elevating-your-instagram-post-visibility-and-interaction/"><u>In 2024, Elevating Your Instagram Post Visibility and Interaction</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-from-business-idea-to-boardroom-on-instagram/"><u>In 2024, From Business Idea to Boardroom on Instagram</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-realme-c67-5g-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Realme C67 5G to Other Android Devices Devices? | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-your-guide-to-instantaneously-add-closed-captions-to-youtube-clips/"><u>In 2024, Your Guide to Instantaneously Add Closed Captions to YouTube Clips</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/solving-the-javascript-dll-file-missing-a-step-by-step-guide/"><u>Solving the 'JavaScript' DLL File Missing: A Step-by-Step Guide</u></a></li>
 </ul></div>
 

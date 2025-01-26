@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Ultimate Tutorial for Adding GIFs & Emojis in Instagram Stories for 2024"
-date: 2025-01-12T17:49:34.676Z
-updated: 2025-01-19T20:09:31.688Z
+date: 2025-01-24T07:37:34.156Z
+updated: 2025-01-25T22:24:14.134Z
 tags:
   - ai video
   - ai instagram
@@ -52,6 +52,10 @@ As you know, Instagram Stickers are pretty fun to use. These Stickers can also h
 
 However, if you are not aware of adding stickers to Instagram stories and posts, you have come to the right place. In this part, we have covered a step-wise method to use built-in stickers in your Instagram Stories and Posts. Here’s how to add stickers on Instagram:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 1: Launch Instagram App and Create a New Story
 
 First things first, **Launch** the Instagram app. Click on **Your Story** at the top left corner of your Instagram feed. Now, you need to take a photo by clicking on the **Big White circle** or upload one by clicking on the **Square** in the bottom left of the screen.
@@ -61,11 +65,7 @@ First things first, **Launch** the Instagram app. Click on **Your Story** at the
 ![Add instagram sticker ](https://images.wondershare.com/filmora/article-images/create-new-instagram-story.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 2: Click on Stickers and Add Sticker to Story
@@ -74,15 +74,15 @@ After you are done with the picture uploading, click on the **Stickers** option 
 
 ![Add Instagram sticker ](https://images.wondershare.com/filmora/article-images/add-instagram-sticker.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 3: Add to Your Story
 
 Now, add the picture to your story by clicking on the **Your Story** option or **Download** it to upload as a post.
 
 **Note:** You can also move the sticker by **Holding and dragging** it on the screen.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: How to Create and Add Your Own GIF Stickers on Instagram Stories?
 
@@ -92,13 +92,13 @@ You don’t need to depend on the built-in Instagram Stickers; you can create yo
 
 Moreover, the majority of the people are not aware of how to add stickers in Instagram of their own, but no need to worry about that anymore. Just follow the steps below to create your stickers:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Step 1: Create a Story
 
 Launch the Instagram app, and start a story by clicking on the **Your Story** option. Then either take a photo or upload one from your Phone’s Gallery.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step 2: Tap on Sticker Option and Add Picture
 
@@ -106,21 +106,17 @@ After you are done with the picture uploading, tap on the **Stickers** option at
 
 ![  Ins  sticker  add picture](https://images.wondershare.com/filmora/article-images/instagram-sticker-add-picture-option.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Step 3: Choose the picture as sticker
 
 You’ll be redirected to your phone’s gallery. Choose the picture you want to add as a sticker on the story, and the sticker will be added.
 
 ![  Ins     add photo sticker](https://images.wondershare.com/filmora/article-images/add-photo-sticker.jpg)
 
-**Note:** You can also move it on the screen by **holding and dragging it**.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+**Note:** You can also move it on the screen by **holding and dragging it**.
 
 ## Part 4: Most Popular Types of Instagram Stickers
 
@@ -129,10 +125,6 @@ Instagram Stickers comes in a wide variety, and since it’s a social media netw
 ### 1\.  Quiz Sticker
 
 Quiz Sticker allows you to ask multiple-choice questions from your followers. It allows you to customize answers as well. You can also find a random question by clicking on dice at the bottom.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\.  Question Sticker
 
@@ -145,6 +137,10 @@ A donation sticker allows a person to donate to non-profits. You can choose a no
 ### 4\.  Countdown Sticker
 
 This sticker enables you to start a countdown for an important event or moment. You can customize the time, date, name, and color to make it look better. For example, you can start a countdown for your friend’s birthday.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\.  Poll Sticker
 
@@ -164,12 +160,16 @@ Want to add music to Instagram?Check this article to learn more about [how to ad
 
 You can share your selfies in a rounded form on your Instagram Story. This rounded shape sticker was launched in late 2020, and since then, it has changed the concept of sharing selfies in Instagram Stories. The Instagram stories are now more engaging and fun due to this selfie sticker.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 9\.  Location Sticker
 
 Now, you can share your location on Instagram Story by using a location sticker. For example, if you are dining at a nice restaurant, you can share your location on the story with the help of this sticker. It is pretty helpful for those brands who want to promote the business.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 10\.  Weather/Time Sticker
@@ -185,7 +185,7 @@ But many people do not know **how to add stickers to Instagram** or create one o
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -203,19 +203,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-how-to-make-highlights-on-instagram-3-ways/"><u>[New] In 2024, How to Make Highlights on Instagram [3 Ways]</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-social-splendor-leading-story-filter-hits/"><u>[New] In 2024, Social Splendor Leading Story Filter Hits</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-starting-up-the-guide-to-youtube-fame-in-gaming/"><u>[New] In 2024, Starting Up The Guide to YouTube Fame in Gaming</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-the-ultimate-path-to-a-thriving-instagram-community-for-2024/"><u>[New] The Ultimate Path to a Thriving Instagram Community for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-instagram-tracking-your-followers-departure/"><u>[Updated] 2024 Approved Instagram Tracking Your Followers' Departure</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-unlock-your-pcs-potential-exciting-new-windows-10-games/"><u>[Updated] Unlock Your PC’s Potential Exciting New Windows 10 Games</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210010457-9781591939184-crystal-healing/"><u>Crystal Healing | Free Book</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-xiaomi-14-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your Xiaomi 14 Phone</u></a></li>
-<li><a href="https://windows11.techidaily.com/reawaken-your-computers-usb-a-quick-fix-guide-windows/"><u>Reawaken Your Computer's USB: A Quick Fix Guide, Windows</u></a></li>
-<li><a href="https://techtrends.techidaily.com/the-complete-breakdown-of-ar-versus-vr-mr-and-xr-exploring-the-key-differences/"><u>The Complete Breakdown of AR Versus VR, MR, and XR: Exploring the Key Differences</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-revenue-driven-guide-to-designing-youtube-trailers/"><u>The Revenue-Driven Guide to Designing YouTube Trailers</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/the-ultimate-guide-to-hash-trackers-fb-twt-and-ig-networks-for-2024/"><u>The Ultimate Guide to Hash Trackers FB, Twt & IG Networks for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/ultimate-guide-instagrams-video-maximum-length-rule-for-2024/"><u>Ultimate Guide Instagram's Video Maximum Length Rule for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/unveiling-sony-action-camera-x1000-performance/"><u>Unveiling Sony Action Camera X1000 Performance</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-simply-turn-off-your-insta-tv/"><u>[New] 2024 Approved Simply Turn Off Your Insta TV</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-sonic-social-media-merging-melodies-and-memes-on-instagram/"><u>[New] 2024 Approved Sonic Social Media Merging Melodies and Memes on Instagram</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-streamlining-youtube-sharing-with-google-account-accessibility/"><u>[New] 2024 Approved Streamlining YouTube Sharing with Google Account Accessibility</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-swift-strategies-for-instagram-reel-success/"><u>[New] 2024 Approved Swift Strategies for Instagram Reel Success</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-virtual-ventures-discovering-the-best-in-action-adventure-classics-top-10-for-2024/"><u>[New] Virtual Ventures – Discovering the Best in Action-Adventure Classics (Top 10) for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-simplified-methods-to-screen-record-instagrams-story-feature/"><u>[Updated] 2024 Approved Simplified Methods to Screen Record Instagram's Story Feature</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-step-by-step-approach-to-saving-instagram-stories-for-2024/"><u>[Updated] Step-by-Step Approach to Saving Instagram Stories for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/become-an-expert-tutorial-for-making-gifs-into-desirable-whatsapp-and-telegram-stickers-for-2024/"><u>Become an Expert Tutorial for Making GIFs Into Desirable WhatsApp & Telegram Stickers for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/convert-flac-and-aiff-files-for-free-with-movavis-online-tool/"><u>Convert FLAC and AIFF Files for Free with Movavi's Online Tool</u></a></li>
+<li><a href="https://games-able.techidaily.com/does-size-trump-quality-in-aaa-game-publishing-critique-analysis/"><u>Does Size Trump Quality in AAA Game Publishing? [Critique Analysis]</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/leading-tools-for-customizable-screenshot-capabilities-for-2024/"><u>Leading Tools for Customizable Screenshot Capabilities for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/navigating-srt-download-from-youtube-with-3-tactics-for-2024/"><u>Navigating SRT Download From YouTube with 3 Tactics for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-ultimate-tonal-transformation-for-android-users/"><u>The Ultimate Tonal Transformation for Android Users</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-the-step-by-step-guide-to-personalizing-mobile-notifications/"><u>Updated The Step-by-Step Guide to Personalizing Mobile Notifications</u></a></li>
 </ul></div>
 

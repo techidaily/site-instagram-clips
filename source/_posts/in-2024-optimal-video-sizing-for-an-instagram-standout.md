@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Optimal Video Sizing for an Instagram Standout"
-date: 2024-07-24T23:50:37.378Z
-updated: 2024-07-25T23:50:37.378Z
+date: 2025-01-21T07:53:37.939Z
+updated: 2025-01-26T01:19:53.293Z
 tags:
   - ai video
   - ai instagram
@@ -29,10 +29,6 @@ Detailed tutorials provided by the official channel
 
 Instagram is a renowned social media app that impresses users from all age groups. It connects people beyond boundaries and offers a space to share their media files effortlessly. To post the desired videos on Instagram, the media files must satisfy fixed aspect ratio attributes. In this article, you will learn about the Instagram video aspect ratio parameters in detail. Likewise, get some valuable insights on Facebook video sizes to ease your social media posting activities.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![Aspect-ratio](https://images.wondershare.com/filmora/article-images/2021/aspect-ratio.jpg)
 
 Figure out the optimal aspect ratio values on these platforms and do not end up with error messages at the time of the posting process. Prepare your media files in pace with the guidelines provided by the social media platform. You must abide by their instructions to make the best out of this environment. You can adopt incredible video editor tools in the digital space to perform the desired edits on the videos. Surf below to enlighten the optimum aspect ratio values for the videos to upload at selected social media platforms.
@@ -63,23 +59,18 @@ These are the Instagram aspect ratio sizes, and you must abide by these numbers 
 
 The dimensions and aspect ratio are crucial when uploading the media files on social media like Facebook. To post the Facebook stories, check whether your content satisfies the permittable range of aspect ratio 1:91:1 up to 9:16\. In the case of Facebook 360 videos, the aspect ratio must be from 1:1 up to 2:1\. If you want to post Facebook video ads at the news feeds, try to satisfy the aspect ratio value of 4:5.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook-video-sizes](https://images.wondershare.com/filmora/article-images/2021/facebook-video-sizes.jpg)
 
 Please make a note on all sorts of Facebook posts such that you may not struggle while uploading the desired content at its wall. Meet the best video sizes for Facebook posts and make your content appear clearly on the screen without any issues. These permissible sizes help you get a clear picture of your videos in the desired space retaining the quality factors.
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 3 How to adjust your Instagram video in proper aspect ratios?
 
 Here, you can explore three different methods to adjust the Instagram videos in proper aspect ratio values. Choose the perfect method that satisfies your needs and go for it without any hesitation.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
 ### Method 1: Animaker app
 
 The Animaker app is a simple tool that assists you in changing the aspect ratio of the video efficiently. It is an online editor, and you can use its features either by using the Google or Facebook account. You must register with Animaker to carry out the video resizing process. Apart from adjusting the aspect ratio, you can perform a wide range of activities like trim, flip, rotate the videos, and remove audio signals from the video content. There are options to add filters, modify brightness and merge the videos to add flavors to the existing media file.
@@ -90,11 +81,12 @@ Here are the steps to resize videos to desired aspect ratio using the Animaker a
 
 ![Custom-size](https://images.wondershare.com/filmora/article-images/2021/custom-size.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step2 Upload the video file into the Animaker app from the system drive or drag and drop the file at your convenience
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Upload-file ](https://images.wondershare.com/filmora/article-images/2021/upload-file.jpg)
 
 ##### Step3 The video fits the set dimension as soon as it enters the Animaker platform. You can perform minor manual adjustments and finally hit the Apply button to save the changes
@@ -103,18 +95,16 @@ Here are the steps to resize videos to desired aspect ratio using the Animaker a
 
 ##### Step4 At last, press the Download button at the top right corner of the screen. The adjusted video is stored at the desired storage space in your device
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 ![Download-video ](https://images.wondershare.com/filmora/article-images/2021/download-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 2: Wondershare Filmora Video Editor
 
 Here comes an incredible program, Wondershare Filmora. It has amazing video editing properties that enhance the overall appearance of the videos. This app has a simple interface and allows you to change the aspect ratio of the videos precisely. All the controls are explicit for quick access, and you can work on minute details on the videos like a pro. You do not require any technical skills to work on this sophisticated program, few clicks are sufficient to create an amazing impact on the videos.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
-<!-- affiliate ads end -->
 ![filmora box](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
 #### Wondershare Filmora - Best Video Editor for Mac/Windows
@@ -143,10 +133,11 @@ From the official website, download the app and install it. Then, launch it by d
 
 In the home screen, at the starting interface, you will find a drop-down list displaying possible aspect ratio values. Choose the one that meets your needs and finally upload the video by tapping the ‘Open Project’ option.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Set-aspect-ratio ](https://images.wondershare.com/filmora/article-images/change-aspect-ratio-at-filmora-start-interface.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -168,9 +159,6 @@ Figure out the optimal aspect ratio values on these platforms and do not end up 
 
 03 [How to adjust your Instagram video in proper aspect ratios?](#Part 3)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 ## Part 1 Types of Instagram video aspect ratios
 
 The aspect ratio of the video varies with the places you choose to post on the Instagram platform. Here, clear illustrations on the aspect ratio are listed according to your needs.
@@ -193,16 +181,10 @@ The dimensions and aspect ratio are crucial when uploading the media files on so
 
 Please make a note on all sorts of Facebook posts such that you may not struggle while uploading the desired content at its wall. Meet the best video sizes for Facebook posts and make your content appear clearly on the screen without any issues. These permissible sizes help you get a clear picture of your videos in the desired space retaining the quality factors.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3 How to adjust your Instagram video in proper aspect ratios?
 
 Here, you can explore three different methods to adjust the Instagram videos in proper aspect ratio values. Choose the perfect method that satisfies your needs and go for it without any hesitation.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
 ### Method 1: Animaker app
 
 The Animaker app is a simple tool that assists you in changing the aspect ratio of the video efficiently. It is an online editor, and you can use its features either by using the Google or Facebook account. You must register with Animaker to carry out the video resizing process. Apart from adjusting the aspect ratio, you can perform a wide range of activities like trim, flip, rotate the videos, and remove audio signals from the video content. There are options to add filters, modify brightness and merge the videos to add flavors to the existing media file.
@@ -211,13 +193,6 @@ Here are the steps to resize videos to desired aspect ratio using the Animaker a
 
 ##### Step1 In the home screen, choose the desired aspect ratio dimension based on social media or select the Custom size option to set the video's aspect ratio values manually
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 ![Custom-size](https://images.wondershare.com/filmora/article-images/2021/custom-size.jpg)
 
 ##### Step2 Upload the video file into the Animaker app from the system drive or drag and drop the file at your convenience
@@ -226,29 +201,16 @@ No advertising on the website.
 
 ##### Step3 The video fits the set dimension as soon as it enters the Animaker platform. You can perform minor manual adjustments and finally hit the Apply button to save the changes
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Apply-changes ](https://images.wondershare.com/filmora/article-images/2021/apply-changes.jpg)
 
 ##### Step4 At last, press the Download button at the top right corner of the screen. The adjusted video is stored at the desired storage space in your device
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Download-video ](https://images.wondershare.com/filmora/article-images/2021/download-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->
 ### Method 2: Wondershare Filmora Video Editor
 
 Here comes an incredible program, Wondershare Filmora. It has amazing video editing properties that enhance the overall appearance of the videos. This app has a simple interface and allows you to change the aspect ratio of the videos precisely. All the controls are explicit for quick access, and you can work on minute details on the videos like a pro. You do not require any technical skills to work on this sophisticated program, few clicks are sufficient to create an amazing impact on the videos.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
-<!-- affiliate ads end -->
 ![filmora box](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
 #### Wondershare Filmora - Best Video Editor for Mac/Windows
@@ -277,18 +239,16 @@ From the official website, download the app and install it. Then, launch it by d
 
 In the home screen, at the starting interface, you will find a drop-down list displaying possible aspect ratio values. Choose the one that meets your needs and finally upload the video by tapping the ‘Open Project’ option.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
 ![Set-aspect-ratio ](https://images.wondershare.com/filmora/article-images/change-aspect-ratio-at-filmora-start-interface.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 **●** In the above discussion, you better understood the optimal aspect ratio essential to post media files at the social media wall. Thus, in this article, you had learned how to change videos sizes to fit perfectly with the Instagram video aspect ratio values for a flawless upload process. Choose the perfect method to change the aspect ratio according to your needs without any data loss—the Filmora app assists in your resizing the video process precisely by retaining the quality factors. Connect with the Filmora app and discover mind-blowing video editing functionalities. Stay tuned with this article and learn about the video editing techniques using a reliable tool in the digital space.
@@ -297,9 +257,6 @@ No advertising on the website.
 
 Instagram is a renowned social media app that impresses users from all age groups. It connects people beyond boundaries and offers a space to share their media files effortlessly. To post the desired videos on Instagram, the media files must satisfy fixed aspect ratio attributes. In this article, you will learn about the Instagram video aspect ratio parameters in detail. Likewise, get some valuable insights on Facebook video sizes to ease your social media posting activities.
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Aspect-ratio](https://images.wondershare.com/filmora/article-images/2021/aspect-ratio.jpg)
 
 Figure out the optimal aspect ratio values on these platforms and do not end up with error messages at the time of the posting process. Prepare your media files in pace with the guidelines provided by the social media platform. You must abide by their instructions to make the best out of this environment. You can adopt incredible video editor tools in the digital space to perform the desired edits on the videos. Surf below to enlighten the optimum aspect ratio values for the videos to upload at selected social media platforms.
@@ -318,9 +275,6 @@ The aspect ratio of the video varies with the places you choose to post on the I
 
 Regular Posts: In the case of regular posts on the Instagram app, the expected aspect ratio is 1:1\. If you do not have square shape videos, then zoom out to landscape or portrait as per your requirements. Make the video sizes to either 1.91.1 (landscape) or 4:5 (Portrait). When you edit the aspect ratio, the resolution varies according to it respectively.
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Instagram-video-sizes](https://images.wondershare.com/filmora/article-images/2021/instagram-video-sizes.jpg)
 
 Story Posts: When you try to upload videos at the Instagram Story posts, make sure the aspect ratio is 9:16\. In the case of IGTV videos and Reels videos, maintain the aspect ratio as 9:16\. For IGTV cover photos, customize the sizes to 1:1:155
@@ -333,16 +287,14 @@ These are the Instagram aspect ratio sizes, and you must abide by these numbers 
 
 The dimensions and aspect ratio are crucial when uploading the media files on social media like Facebook. To post the Facebook stories, check whether your content satisfies the permittable range of aspect ratio 1:91:1 up to 9:16\. In the case of Facebook 360 videos, the aspect ratio must be from 1:1 up to 2:1\. If you want to post Facebook video ads at the news feeds, try to satisfy the aspect ratio value of 4:5.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ![Facebook-video-sizes](https://images.wondershare.com/filmora/article-images/2021/facebook-video-sizes.jpg)
 
 Please make a note on all sorts of Facebook posts such that you may not struggle while uploading the desired content at its wall. Meet the best video sizes for Facebook posts and make your content appear clearly on the screen without any issues. These permissible sizes help you get a clear picture of your videos in the desired space retaining the quality factors.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 3 How to adjust your Instagram video in proper aspect ratios?
 
 Here, you can explore three different methods to adjust the Instagram videos in proper aspect ratio values. Choose the perfect method that satisfies your needs and go for it without any hesitation.
@@ -363,14 +315,19 @@ Here are the steps to resize videos to desired aspect ratio using the Animaker a
 
 ##### Step3 The video fits the set dimension as soon as it enters the Animaker platform. You can perform minor manual adjustments and finally hit the Apply button to save the changes
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Apply-changes ](https://images.wondershare.com/filmora/article-images/2021/apply-changes.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Step4 At last, press the Download button at the top right corner of the screen. The adjusted video is stored at the desired storage space in your device
 
 ![Download-video ](https://images.wondershare.com/filmora/article-images/2021/download-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 2: Wondershare Filmora Video Editor
 
@@ -414,9 +371,6 @@ In the home screen, at the starting interface, you will find a drop-down list di
 
 Instagram is a renowned social media app that impresses users from all age groups. It connects people beyond boundaries and offers a space to share their media files effortlessly. To post the desired videos on Instagram, the media files must satisfy fixed aspect ratio attributes. In this article, you will learn about the Instagram video aspect ratio parameters in detail. Likewise, get some valuable insights on Facebook video sizes to ease your social media posting activities.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Aspect-ratio](https://images.wondershare.com/filmora/article-images/2021/aspect-ratio.jpg)
 
 Figure out the optimal aspect ratio values on these platforms and do not end up with error messages at the time of the posting process. Prepare your media files in pace with the guidelines provided by the social media platform. You must abide by their instructions to make the best out of this environment. You can adopt incredible video editor tools in the digital space to perform the desired edits on the videos. Surf below to enlighten the optimum aspect ratio values for the videos to upload at selected social media platforms.
@@ -443,10 +397,6 @@ Profile picture: The Instagram profile picture supports an aspect ratio of 1:1, 
 
 These are the Instagram aspect ratio sizes, and you must abide by these numbers to ensure the successful upload of desired videos on this social media platform.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## Part 2 What is the best video size for Facebook?
 
 The dimensions and aspect ratio are crucial when uploading the media files on social media like Facebook. To post the Facebook stories, check whether your content satisfies the permittable range of aspect ratio 1:91:1 up to 9:16\. In the case of Facebook 360 videos, the aspect ratio must be from 1:1 up to 2:1\. If you want to post Facebook video ads at the news feeds, try to satisfy the aspect ratio value of 4:5.
@@ -467,9 +417,6 @@ Here are the steps to resize videos to desired aspect ratio using the Animaker a
 
 ##### Step1 In the home screen, choose the desired aspect ratio dimension based on social media or select the Custom size option to set the video's aspect ratio values manually
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->
 ![Custom-size](https://images.wondershare.com/filmora/article-images/2021/custom-size.jpg)
 
 ##### Step2 Upload the video file into the Animaker app from the system drive or drag and drop the file at your convenience
@@ -485,15 +432,13 @@ Here are the steps to resize videos to desired aspect ratio using the Animaker a
 ![Download-video ](https://images.wondershare.com/filmora/article-images/2021/download-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Method 2: Wondershare Filmora Video Editor
 
 Here comes an incredible program, Wondershare Filmora. It has amazing video editing properties that enhance the overall appearance of the videos. This app has a simple interface and allows you to change the aspect ratio of the videos precisely. All the controls are explicit for quick access, and you can work on minute details on the videos like a pro. You do not require any technical skills to work on this sophisticated program, few clicks are sufficient to create an amazing impact on the videos.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![filmora box](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
 #### Wondershare Filmora - Best Video Editor for Mac/Windows
@@ -539,8 +484,6 @@ In the home screen, at the starting interface, you will find a drop-down list di
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -549,5 +492,26 @@ In the home screen, at the starting interface, you will find a drop-down list di
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-from-amateur-to-pro-excelling-at-instagram-editing/"><u>[New] 2024 Approved From Amateur to Pro Excelling at Instagram Editing</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-from-sideways-to-symmetry-the-instagram-chronicles-of-flipping-photos/"><u>[New] 2024 Approved From Sideways to Symmetry The Instagram Chronicles of Flipping Photos</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-instagram-illuminati-the-top-25-visionaries-you-need-to-see/"><u>[New] 2024 Approved Instagram Illuminati The Top 25 Visionaries You Need to See</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-frameitright-instagram-size-settings-explained-for-2024/"><u>[New] FrameItRight Instagram Size Settings Explained for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-how-to-duplicate-your-instagram-posts-for-2024/"><u>[New] How to Duplicate Your Instagram Posts for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-from-frames-to-frequencies-transforming-instagram-videos/"><u>[New] In 2024, From Frames to Frequencies Transforming Instagram Videos</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-infuse-style-in-vids-3-proven-methods-for-instagram-borders/"><u>[New] In 2024, Infuse Style in Vids 3 Proven Methods for Instagram Borders</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-insta-rotation-rituals-mastering-angles-that-engage-captivate-and-amaze/"><u>[New] In 2024, Insta Rotation Rituals Mastering Angles that Engage, Captivate, and Amaze</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-instagram-stories-secrets-for-success-for-2024/"><u>[New] Instagram Stories Secrets for Success for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-ranking-top-10-srt-modifications-for-pc-and-macos/"><u>[Updated] Ranking Top 10 SRT Modifications for PC & macOS</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/enhance-home-safety-with-the-latest-tp-link-tapo-video-doorbell-advanced-ai-alerts-and-no-monthly-cost-limited-offer-75-with-promo-code/"><u>Enhance Home Safety with the Latest TP-Link Tapo Video Doorbell - Advanced AI Alerts & No Monthly Cost! Limited Offer: $75 with [Promo Code]</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/exploring-the-benefits-of-the-fitbit-versa-2-a-complete-review-for-smartwatch-enthusiasts-seeking-fitness-solutions/"><u>Exploring the Benefits of the Fitbit Versa 2: A Complete Review for Smartwatch Enthusiasts Seeking Fitness Solutions</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-fix-mssfmtdll-not-found-problem-tips-and-solutions/"><u>How To Fix 'mssfmt.dll Not Found' Problem: Tips and Solutions</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-stop-my-spouse-from-spying-on-my-honor-x9b-drfone-by-drfone-virtual-android/"><u>How to Stop My Spouse from Spying on My Honor X9b | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-xiaomi-redmi-a2plus-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos From Xiaomi Redmi A2+ to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-tracking-apps-to-track-poco-x6-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Tracking Apps to Track Poco X6 without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-why-is-ipogo-not-working-on-apple-iphone-12-mini-fixed-drfone-by-drfone-virtual-ios/"><u>In 2024, Why is iPogo not working On Apple iPhone 12 mini? Fixed | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/twitreact-wisdom-a-complete-reference-book-for-2024/"><u>TwitReact Wisdom A Complete Reference Book for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-free-filmora-alternative-no-crack-no-risk-just-results/"><u>Updated 2024 Approved Free Filmora Alternative No Crack, No Risk, Just Results</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Step-by-Step to Turn Off IGTV\""
-date: 2025-01-13T16:36:59.848Z
-updated: 2025-01-20T10:47:59.996Z
+date: 2025-01-20T16:15:55.832Z
+updated: 2025-01-26T06:04:06.371Z
 tags:
   - ai video
   - ai instagram
@@ -28,7 +28,7 @@ thumbnail: https://thmb.techidaily.com/359889cca1fac1d0cab50a3e170aa122469e4b901
  There is nothing more frustrating than receiving notifications about posts on social media you have zero interest in. Fortunately for all of us, turning off notifications is a quick and simple process that can be completed in just a few clicks or taps. IGTV, Instagram’s latest mobile video platform is no exception, and if you decide to use it, you will occasionally stumble upon the content you don’t necessarily like and you will receive notifications about posts that really have nothing to do with your interests. In case you are looking for a way to get rid of IGTV suggestions, you’ve come to the right place because in this article we are going to show you how to hide videos you don’t want to see and how to switch off notifications.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Turn Off IGTV Notifications on Instagram
@@ -38,7 +38,7 @@ thumbnail: https://thmb.techidaily.com/359889cca1fac1d0cab50a3e170aa122469e4b901
  Select the **Push Notifications option**, and then scroll all the way down to the **IGTV Video Updates section** of the Push Notifications menu. Tap on the **Off** option, and you’re done, you’ll no longer receive notifications from IGTV. If at any point you change your mind and you decide that you want to receive notifications from IGTV you can return to the Push Notifications menu and select the **From People I Follow** or **From Everyone** option in the IGTV Video Update section of the Push Notifications menu.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Hide IGTV Videos?
@@ -56,7 +56,7 @@ thumbnail: https://thmb.techidaily.com/359889cca1fac1d0cab50a3e170aa122469e4b901
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -74,18 +74,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-apples-m1-pro-versus-the-powerhouse-m1-max-what-to-note-in-2024/"><u>[New] Apple's M1 Pro Versus the Powerhouse M1 Max - What to Note, In 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-tailor-videos-to-instagrams-preferred-format/"><u>[New] In 2024, Tailor Videos to Instagram's Preferred Format</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-unveiling-the-ultimate-methods-for-high-quality-video-conversion/"><u>[New] In 2024, Unveiling the Ultimate Methods for High Quality Video Conversion</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-optimal-method-for-incorporating-linktree-in-tiktok-profiles/"><u>[New] Optimal Method for Incorporating Linktree in TikTok Profiles</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-choosing-the-right-instagram-video-size-a-2023-guide-for-2024/"><u>[Updated] Choosing the Right Instagram Video Size - A 2023 Guide for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-key-applications-for-superior-vtuber-audible-identity/"><u>[Updated] Key Applications for Superior Vtuber Audible Identity</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-unleash-creativity-professional-insights-into-shooting-and-editing-stunning-slow-motion-content-for-instagram/"><u>[Updated] Unleash Creativity Professional Insights Into Shooting and Editing Stunning Slow Motion Content for Instagram</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-unleash-your-social-media-potential-with-insta-post-magic-for-2024/"><u>[Updated] Unleash Your Social Media Potential with Insta Post Magic for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/exploring-the-merits-of-obs-studio-and-fraps-for-recording-screens/"><u>Exploring the Merits of OBS Studio & Fraps for Recording Screens</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-honor-90-lite-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Hassle-Free Solutions to Fake Location on Find My Friends Of Honor 90 Lite | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/remedying-java-installer-problems-on-a-windows-pc/"><u>Remedying Java Installer Problems on a Windows PC</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-6-best-sim-unlock-services-that-actually-work-on-your-nokia-c32-device-by-drfone-android/"><u>The 6 Best SIM Unlock Services That Actually Work On Your Nokia C32 Device</u></a></li>
-<li><a href="https://some-skills.techidaily.com/top-3-tactics-converting-pins-to-audio-clips-for-2024/"><u>Top 3 Tactics Converting Pins to Audio Clips for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-a-journey-through-time-best-history-youtubes-for-scholars-and-enthusiasts/"><u>[New] 2024 Approved A Journey Through Time Best History YouTubes for Scholars & Enthusiasts</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-how-to-record-and-save-voices-on-iphone-efficiently/"><u>[New] How to Record & Save Voices on iPhone Efficiently</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-how-to-add-auto-captions-to-instagram-stories-and-reels/"><u>[Updated] How to Add Auto Captions to Instagram Stories and Reels?</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-avoid-social-stress-how-to-unfollow-people/"><u>2024 Approved Avoid Social Stress How to Unfollow People</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-beatify-your-content-adding-melodies-to-instagram-stories/"><u>2024 Approved Beatify Your Content Adding Melodies to Instagram Stories</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/become-an-instagram-reel-guru-with-these-proven-strategies-for-2024/"><u>Become an Instagram Reel Guru with These Proven Strategies for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/essential-budget-gaming-hardware-the-ultimate-keyboard-list-for-2024/"><u>Essential Budget Gaming Hardware The Ultimate Keyboard List for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578582227-hello-in-german-10plus-german-greetings-beyond-hallo/"><u>Hello In German: 10+ German Greetings Beyond Hallo</u></a></li>
+<li><a href="https://techtrends.techidaily.com/identify-anything-anywhere-8-key-search-engines-for-personal-locator-services/"><u>Identify Anything, Anywhere: 8 Key Search Engines for Personal Locator Services</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-8-best-instagram-scheduler-for-android-and-iphone/"><u>In 2024, 8 Best Instagram Scheduler for Android and iPhone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-becoming-an-instagram-editor-extraordinaire/"><u>In 2024, Becoming an Instagram Editor Extraordinaire</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-best-6-instagram-reels-downloaders-for-android-and-iphone/"><u>In 2024, Best 6 Instagram Reels Downloaders for Android and iPhone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-transform-your-images-with-freepaid-lut-bundles-for-canon/"><u>In 2024, Transform Your Images with Free/Paid LUT Bundles for Canon</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/resolving-lag-issues-in-pc-games-expert-advice-for-the-modern-player-2024-edition/"><u>Resolving Lag Issues in PC Games: Expert Advice for the Modern Player, 2024 Edition</u></a></li>
+<li><a href="https://extra-support.techidaily.com/serenity-through-stories-a-review-of-parent-driven-narrative-vids-for-2024/"><u>Serenity Through Stories A Review of Parent-Driven Narrative Vids for 2024</u></a></li>
 </ul></div>
 
