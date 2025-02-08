@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] FrameFinesse  A Detailed Guide on IG Image Dimensions\""
-date: 2025-01-22T16:15:37.604Z
-updated: 2025-01-26T10:06:12.509Z
+date: 2025-02-06T23:39:09.860Z
+updated: 2025-02-08T06:44:56.978Z
 tags:
   - ai video
   - ai instagram
@@ -30,7 +30,7 @@ Taking photos with iPhones and Android Smartphones and posting them to Instagram
 Troubles begin when you want to upload photos and videos that weren't captured with a Smartphone to Instagram. In most cases, the photos and videos produced by DSLR cameras and other semi-professional and professional equipment are much larger than the sizes supported by Instagram. That is the reason why we created this guide that will help you post visual content that is perfectly adjusted to Instagram in 2021.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Types of Files Accepted by Instagram
@@ -50,7 +50,7 @@ Duration of Videos on Instagram
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Best Image Sizes for Instagram Posts
@@ -62,7 +62,7 @@ A couple of years ago, Instagram has finally allowed its users to upload images 
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
@@ -90,7 +90,7 @@ The profile pictures on Instagram are tiny, and the optimum size for them is 160
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -108,21 +108,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-alight-motion-comprehensive-review/"><u>[New] Alight Motion Comprehensive Review</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/iscover-10-amazing-world-wanderlust-channels-for-2024/"><u>[New] Discover 10 Amazing World Wanderlust Channels for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-instagram-video-promotion-mastery-craft-your-winning-market-plan/"><u>[New] Instagram Video Promotion Mastery Craft Your Winning Market Plan</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-instagram-video-reduction-tips-for-mac-users/"><u>[New] Instagram Video Reduction Tips for Mac Users</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-instagram-visual-mastery-crop-and-edit-videos-like-pros/"><u>[New] Instagram Visual Mastery Crop and Edit Videos Like Pros</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-instantaneous-methods-for-video-to-mp3-on-instagram/"><u>[New] Instantaneous Methods for Video-to-MP3 on Instagram</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-top-6-instagram-money-calculator-safe-and-effective/"><u>[New] Top 6 Instagram Money Calculator - Safe & Effective</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-crop-chronicles-the-ultimate-farm-farewell-fest/"><u>[Updated] 2024 Approved Crop Chronicles The Ultimate Farm Farewell Fest</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-instagram-tv-shutdown-procedure/"><u>[Updated] Instagram TV Shutdown Procedure</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-navigating-picture-in-picture-on-safaris-ecosystem/"><u>[Updated] Navigating Picture-in-Picture on Safari's Ecosystem</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-tips-to-make-your-instagram-video-goes-viral/"><u>[Updated] Tips to Make Your Instagram Video Goes Viral</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-your-digital-footprint-the-impact-of-off-facebook-history/"><u>[Updated] Your Digital Footprint The Impact of Off-Facebook History</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/5-solutions-for-poco-c55-unlock-without-password-by-drfone-android/"><u>5 Solutions For Poco C55 Unlock Without Password</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-xiaomi-redmi-note-12-pro-5g-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on Xiaomi Redmi Note 12 Pro 5G</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/strategic-move-as-automattic-takes-over-beeper-unveiling-ambitious-goals-for-the-future-of-messaging-services/"><u>Strategic Move as Automattic Takes Over Beeper, Unveiling Ambitious Goals for the Future of Messaging Services</u></a></li>
-<li><a href="https://win11.techidaily.com/winning-cars-mouse-keys-and-acceleration-mastery/"><u>Winning Cars: Mouse, Keys, and Acceleration Mastery</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-the-secret-sauce-to-instagram-success-with-engaging-puzzles/"><u>[New] 2024 Approved The Secret Sauce to Instagram Success with Engaging Puzzles</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-the-ultimate-guide-to-instagram-desktop-video-upload/"><u>[New] 2024 Approved The Ultimate Guide to Instagram Desktop Video Upload</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-the-essence-of-insta-bokeh-a-step-by-step-guide-for-2024/"><u>[New] The Essence of Insta Bokeh - A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-the-ultimate-compendium-of-top-rated-instagram-analytics-applications-for-2024/"><u>[New] The Ultimate Compendium of Top-Rated Instagram Analytics Applications for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-becoming-one-in-the-tiktok-living-room-your-steps/"><u>[Updated] 2024 Approved Becoming One in the TikTok Living Room Your Steps</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-the-instagram-edge-a-quick-guide-to-editing-vertical-footage-in-final-cut/"><u>[Updated] 2024 Approved The Instagram Edge A Quick Guide to Editing Vertical Footage in Final Cut</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-the-instagram-follower-dilemrancy-guide/"><u>[Updated] In 2024, The Instagram Follower Dilemrancy Guide</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-step-by-step-guide-to-instagram-livestreaming-using-obs-for-2024/"><u>[Updated] Step-by-Step Guide to Instagram Livestreaming Using OBS for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-the-pathway-to-preserving-instagram-content-via-desktop-platforms-for-2024/"><u>[Updated] The Pathway to Preserving Instagram Content via Desktop Platforms for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-unveiling-top-rated-video-recorders-for-windows-for-2024/"><u>[Updated] Unveiling Top-Rated Video Recorders for Windows for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-unraveling-galaxy-s8s-enhanced-cinematic-capabilities/"><u>2024 Approved Unraveling Galaxy S8's Enhanced Cinematic Capabilities</u></a></li>
+<li><a href="https://win-reviews.techidaily.com/how-do-faulty-ram-and-other-memory-problems-affect-your-pcs-performance-expertise-by-yl-software/"><u>How Do Faulty RAM and Other Memory Problems Affect Your PC's Performance? - Expertise by YL Software</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-wintvrecorder-effortless-free-live-tv-saving-software/"><u>In 2024, WinTVRecorder Effortless, FREE Live TV Saving Software</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/the-ultimate-guide-to-cost-free-online-collaboration-tools/"><u>The Ultimate Guide to Cost-Free Online Collaboration Tools</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/transition-to-windows-11-without-a-hitch-top-8-tips/"><u>Transition to Windows 11 Without a Hitch: Top 8 Tips</u></a></li>
 </ul></div>
 

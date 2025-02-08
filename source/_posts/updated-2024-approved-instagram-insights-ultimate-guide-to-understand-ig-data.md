@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Instagram Insights  Ultimate Guide to Understand IG Data\""
-date: 2025-01-21T05:23:01.988Z
-updated: 2025-01-25T23:30:31.566Z
+date: 2025-02-02T09:02:49.500Z
+updated: 2025-02-08T01:10:54.139Z
 tags:
   - ai video
   - ai instagram
@@ -43,6 +43,10 @@ Insights from Instagram enables you to view your content, follower demographics 
 
 Here is how to access Instagram Insights –
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Access insights from business profile
 
 Impressions, profile visits, and reach can be visible with insights and can be tracked weekly. Followers’ most active time during the day, on your business profile can be traced to enhance your marketing campaign.
@@ -53,15 +57,15 @@ Impressions, profile visits, and reach can be visible with insights and can be t
 
 ![access insights from business](https://images.wondershare.com/filmora/article-images/access-instagram-insights-business.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Access insights from post
 
 On your business profile, click a post to view insights. A right tilted arrow on the bottom-right denotes a promoted post.
 
 On a promoted post click ‘Original’ to view its Instagram Insights, and tap ‘Promotion’ for viewing insights.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Access insights from story
 
@@ -69,10 +73,6 @@ Automatic chronological sorting of Stories helps to understand the pattern of co
 
 * Open ‘Stories’, and swipe up the post.
 * Click the vertical-bar icon and view your Story insights.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: View Posts Data
 
@@ -99,7 +99,7 @@ The ‘Discovery’ section’s first statistics denotes percentage of non-follo
 ![view ig data from posts](https://images.wondershare.com/filmora/article-images/view-ig-data-from-posts.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Filtering post data based on metric, timeframe, and content type
@@ -111,7 +111,7 @@ You can segregate the Instagram Insight data by clicking the blue links from the
 You can measure goals for a certain period through impressions and reach, engagement, ratio of engagement to reach, best and worst performing content types. Campaign goals are measured by timeframe.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: What does stories data mean
@@ -133,10 +133,14 @@ Only ‘Stories’ after subscribing to a business account will be offered insig
 **Exits** \- how many times people exit Stories to see their feed
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: Notes you should know
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### The difference between impressions and reach
 
@@ -149,7 +153,7 @@ A post can be a single video/photo or an album on Instagram. The Instagram Insig
 ## Part 5: Alternatives to Instagram insights
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1. [Keyhole](https://keyhole.co/instagram-analytics)
@@ -172,10 +176,6 @@ When you have a clear idea about Instagram Insights, achieving the best out of y
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -191,21 +191,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-drone-vfx-experience-try-no-cost-luts-on-mini-and-air-drones/"><u>[New] 2024 Approved Drone VFX Experience – Try No-Cost LUTS on Mini & Air Drones</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-flip-the-script-instagrams-video-trick/"><u>[New] 2024 Approved Flip the Script Instagram's Video Trick</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-from-bystander-to-leader-in-the-world-of-insta-essential-tips-and-examples/"><u>[New] 2024 Approved From Bystander to Leader in the World of Insta Essential Tips & Examples</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-how-to-hide-hashtags-on-instagram/"><u>[New] 2024 Approved How to Hide Hashtags on Instagram</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-explore-the-best-instagram-video-editors-for-android-devices/"><u>[New] In 2024, Explore the Best Instagram Video Editors for Android Devices</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-quick-steps-to-proficient-gif-design-for-2024/"><u>[New] Quick Steps to Proficient GIF Design for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-flip-the-script-learning-to-negative-play-in-instagram/"><u>[Updated] 2024 Approved Flip the Script Learning to Negative Play in Instagram</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-from-fast-paced-footage-to-staggeringly-slow-motion-videos-a-comprehensive-ig-reel-guide/"><u>[Updated] 2024 Approved From Fast-Paced Footage to Staggeringly Slow Motion Videos A Comprehensive IG Reel Guide</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-from-followers-to-brand-ambassadors-the-five-pillars-of-influencer-success/"><u>[Updated] 2024 Approved From Followers to Brand Ambassadors The Five Pillars of Influencer Success</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-the-complete-screen-recorders-playbook/"><u>[Updated] 2024 Approved The Complete Screen Recorder's Playbook</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-essential-free-apps-for-youtube-to-wav-transformation-for-2024/"><u>[Updated] Essential Free Apps for YouTube to WAV Transformation for 2024</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-fix-icloud-lock-on-your-iphone-15-plus-and-ipad-by-drfone-ios/"><u>In 2024, How to fix iCloud lock on your iPhone 15 Plus and iPad</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-a-realme-c67-4g-phone-that-is-locked-by-drfone-android/"><u>In 2024, How to Reset a Realme C67 4G Phone that is Locked?</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/speed-up-your-file-format-shift-from-srt-to-text-txt-for-2024/"><u>Speed-Up Your File Format Shift From SRT to Text (TXT) for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/ultimate-guide-tips-and-tricks-for-throwing-an-unforgettable-labor-day-bash-insights-from-zdnet/"><u>Ultimate Guide: Tips and Tricks for Throwing an Unforgettable Labor Day Bash - Insights From ZDNET</u></a></li>
-<li><a href="https://change-location.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-vivo-s17e-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Vivo S17e | Dr.fone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-how-to-achieve-negative-like-images-effectively/"><u>[New] In 2024, How to Achieve Negative-Like Images Effectively</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-swift-systems-for-capturing-content/"><u>[New] Swift Systems for Capturing Content</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-elevate-your-videography-with-top-instagram-techniques/"><u>[Updated] Elevate Your Videography with Top Instagram Techniques</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-expedited-guide-to-distinguishing-genuine-followers-on-instagram/"><u>[Updated] Expedited Guide to Distinguishing Genuine Followers on Instagram</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-comprehensive-io-recorder-explained-for-users/"><u>[Updated] In 2024, Comprehensive IO Recorder Explained for Users</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-enhance-your-photos-with-top-insta-editors/"><u>2024 Approved Enhance Your Photos with Top Insta Editors</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-from-ideas-to-influence-an-insider-look-at-strategic-instagram-videos/"><u>2024 Approved From Ideas to Influence An Insider Look at Strategic Instagram Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-your-pathway-to-instagram-stardom-top-video-strategies/"><u>2024 Approved Your Pathway to Instagram Stardom Top Video Strategies</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/expert-guide-to-shooting-awe-inspiring-igtv-content-on-mobile-and-dslrs-for-2024/"><u>Expert Guide to Shooting Awe-Inspiring IGTV Content on Mobile & DSLRs for 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/exploring-skagen-falster-2-sophisticated-competitor-to-apples-legacy-phones/"><u>Exploring Skagen Falster 2 - Sophisticated Competitor to Apple's Legacy Phones</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-find-ispoofer-pro-activation-key-on-oppo-reno-8t-5g-drfone-by-drfone-virtual-android/"><u>How to Find iSpoofer Pro Activation Key On Oppo Reno 8T 5G? | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/how-to-grant-permission-on-hidden-outlook-files-and-directories/"><u>How to Grant Permission on Hidden Outlook Files and Directories</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-on-honor-play-8t-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos on Honor Play 8T</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-ensure-your-video-fits-the-instagram-aesthetic-perfectly/"><u>In 2024, Ensure Your Video Fits the Instagram Aesthetic Perfectly</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] Unfollower Detection on Instagram for 2024"
-date: 2025-01-25T03:47:59.710Z
-updated: 2025-01-26T12:51:00.079Z
+date: 2025-02-07T05:15:39.540Z
+updated: 2025-02-07T17:15:00.904Z
 tags:
   - ai video
   - ai instagram
@@ -36,10 +36,6 @@ Whenever anyone wants to follow you on Instagram, you are notified and have the 
 
 ---
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How to Figure Out Who Unfollowed You On Instagram?
 
 Instagram is one of the most used social media websites in recent times. Many people are trying to become influencers on Instagram daily. To do that, they have to keep the check on their followers' counts. No one wants their follower count to decrease. But if that happens, then you would like to know who has unfollowed you. There are many ways to check it, but the most basic form of how to see who unfollowed you on Instagram is by inspecting manually. The following steps can assist you in that:
@@ -55,7 +51,7 @@ Now, look at the following box in the profile of the person you want to check ma
 ![Instagram following list](https://images.wondershare.com/filmora/article-images/instagram-following-list.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 3: Search the name**
@@ -63,6 +59,10 @@ Now, look at the following box in the profile of the person you want to check ma
 Go to the **Search bar** and search the person by that person's username. This will tell whether the person is following you or not as well.
 
 ![search in Instagram following list](https://images.wondershare.com/filmora/article-images/search-instagram-following-list.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Pros**
 
@@ -85,7 +85,7 @@ Open the Instagram app and go to **Profile.** You need to select the **three hor
 ![Instagram Security Option](https://images.wondershare.com/filmora/article-images/instagram-security-option.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 2: Download Data and Information from Instagram**
@@ -93,6 +93,10 @@ Open the Instagram app and go to **Profile.** You need to select the **three hor
 Now, you have to tap on **Download Data** from the panel, and a confirmation window will appear, tap on Download Data again. Instagram will email a copy of your data to you in about 48 hours. You need to download the data from there.
 
 ![download Instagram information](https://images.wondershare.com/filmora/article-images/download-instagram-information.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3: Copy followers and Following list**
 
@@ -106,10 +110,6 @@ Open [ListDiff.com](http://www.listdiff.com/) and paste the data copied from **F
 
 For the detailed information about checking who unfollowed you on Instagram 2021, you can watch the video tutorial made by YouTuber Ben Leavitt below.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3: Best Apps to Check Who Unfollowed You On Instagram
 
 There are quite a few apps to know who has unfollowed you on Instagram right now. These apps work as Third-party apps to keep track of people following you and the people who have unfollowed you. Instagram has modified its API over time, so it isn't easy to keep tabs on the followers. Many outdated apps have failed to do the job on updated Instagram versions due to their privacy modifications.
@@ -121,10 +121,6 @@ However, some third-party apps do the job without any security breach, so they a
 Follow Meter allows you to know about the popularity of your Instagram account, secret admirers, people who have unfollowed you, and your ghost followers. You will have to **log in** to your Instagram account once the app is downloaded. After that, you can see the accounts you're not following, the accounts that have not followed you back, and the accounts you are following on the dashboard. However, some of the features are limited, which can only be accessible any purchasing its premium packages.
 
 ![Follow Meter](https://images.wondershare.com/filmora/article-images/followmeter-for-instagram.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Features**
 
@@ -165,6 +161,10 @@ It offers one premium package that is $29.99 a year.
 This app helps you in being updated about your relationship with your followers. You can see individual interactions with your followers, including the likes and comments you two have done on each other's posts. It enables you to analyze your posts and tells you who has liked one picture and not the other. You can see the list of the accounts that have blocked you and the accounts that watch your story or interact on your posts but are not following you. This app enables the best chance for you to keep track of your follower's interactions with you.
 
 ![Followers Track, For Instagram](https://images.wondershare.com/filmora/article-images/followers-track-for-instagram.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Features**
 
@@ -207,6 +207,10 @@ If you are not staying active for whatever reason, there's a high chance people 
 
 Start engaging with your follower, reply to their comments on your posts with interactive stickers. Otherwise, they would think that you are rude and will start unfollowing you. Also, try to engage on their posts as well.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### FAQs about Instagram Followers Tracking
 
 #### 1\. Are you notified if someone unfollows you on Instagram?
@@ -223,10 +227,6 @@ To hide your content from someone on Instagram, you will have to go to their Pro
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -242,22 +242,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-seamless-social-media-execution-with-the-top-8-iphone-and-android-apps/"><u>[New] Seamless Social Media Execution with The Top 8 iPhone & Android Apps</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-securely-saving-your-instagram-videos-on-pc-and-macos-for-2024/"><u>[New] Securely Saving Your Instagram Videos on PC and MacOS for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-transform-srt-to-video-top-10-free-subtitle-tools-for-2024/"><u>[Updated] Transform SRT to Video - Top 10 FREE Subtitle Tools for 2024</u></a></li>
-<li><a href="https://location-fake.techidaily.com/11-best-location-changers-for-xiaomi-redmi-k70-pro-drfone-by-drfone-virtual-android/"><u>11 Best Location Changers for Xiaomi Redmi K70 Pro | Dr.fone</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-dissecting-metaverse-and-multimetase-what-sets-them-apart/"><u>2024 Approved Dissecting Metaverse and Multimetase What Sets Them Apart</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-ways-to-transfer-music-from-vivo-y77t-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Transfer Music from Vivo Y77t to Other Android Devices Easily | Dr.fone</u></a></li>
-<li><a href="https://fox-pages.techidaily.com/como-realizar-efectivamente-la-copia-de-seguridad-de-su-carpeta-con-facil-guia-del-usuario/"><u>Cómo Realizar Efectivamente La Cópia De Seguridad De Su Carpeta Con Fácil Guía Del Usuario</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/discover-how-to-activate-and-utilize-the-secret-file-navigation-feature-on-windows/"><u>Discover How to Activate & Utilize the Secret File Navigation Feature on Windows</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-photoperfect-optimizing-visuals-and-videos-in-instagram/"><u>In 2024, PhotoPerfect Optimizing Visuals and Videos in Instagram</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-revitalizing-past-moments-with-instagram-filters/"><u>In 2024, Revitalizing Past Moments with Instagram Filters</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-sharing-wisdom-the-art-of-insta-duplication/"><u>In 2024, Sharing Wisdom The Art of Insta Duplication</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-skyrocket-with-subscribers-5-proven-methods-for-igtv-success/"><u>In 2024, Skyrocket with Subscribers 5 Proven Methods for IGTV Success</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-snap-the-truth-your-manual-to-authenticity-on-instagram/"><u>In 2024, Snap the Truth Your Manual to Authenticity on Instagram</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/making-youtube-based-twitter-videos-hearable-for-2024/"><u>Making YouTube-Based Twitter Videos Hearable for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/perfecting-mp4-conversion-ipv-techniques-for-high-quality-videos-for-2024/"><u>Perfecting MP4 Conversion IPV Techniques for High-Quality Videos for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/rapid-4k-video-downsizer-utilize-powerful-hardware-to-quickly-compress-uhd-footage/"><u>Rapid 4K Video Downsizer: Utilize Powerful Hardware to Quickly Compress UHD Footage</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/reel-mastery-made-simple-with-these-free-apps-to-manage-instagram-videos-for-2024/"><u>Reel Mastery Made Simple with These Free Apps to Manage Instagram Videos for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-tapping-into-igtvs-potential-a-hashtag-guide-to-growth/"><u>[New] 2024 Approved Tapping Into IGTV's Potential A Hashtag Guide to Growth</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-the-a-list-playbook-swiftly-climb-the-social-ladder-on-instagram-with-these-essentials/"><u>[New] 2024 Approved The A-List Playbook Swiftly Climb the Social Ladder on Instagram with These Essentials</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-how-to-post-a-video-between-twitter-and-tumblr/"><u>[New] In 2024, How to Post a Video Between Twitter and Tumblr?</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-the-art-of-inspiration-crafting-captivating-ig-posts/"><u>[New] In 2024, The Art of Inspiration Crafting Captivating IG Posts</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-the-art-of-shooting-and-editing-slow-motion-content-for-instagram/"><u>[New] In 2024, The Art of Shooting and Editing Slow Motion Content for Instagram</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-the-essential-tutorial-for-creating-a-biz-focused-instagram/"><u>[New] In 2024, The Essential Tutorial for Creating a Biz-Focused Instagram</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-the-8-best-tips-for-perfecting-igtv-video-dimensions-and-layouts-for-2024/"><u>[New] The 8 Best Tips for Perfecting IGTV Video Dimensions and Layouts for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-telling-stories-vertically-video-editing-for-instagram-with-fcpx/"><u>[Updated] 2024 Approved Telling Stories Vertically Video Editing for Instagram with FCPX</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-the-guide-to-growing-instagram-video-audiences/"><u>[Updated] 2024 Approved The Guide to Growing Instagram Video Audiences</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-the-audio-avenger-your-pathway-to-sound-in-story-posts-for-2024/"><u>[Updated] The Audio Avenger Your Pathway to Sound in Story Posts for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-unlocking-your-facebook-video-potential-mp3-edition/"><u>2024 Approved Unlocking Your Facebook Video Potential - MP3 Edition</u></a></li>
+<li><a href="https://article-files.techidaily.com/engaging-with-snapchats-trending-personalities-for-2024/"><u>Engaging with Snapchat's Trending Personalities for 2024</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/how-to-detect-and-remove-spyware-on-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>How to Detect and Remove Spyware on Apple iPhone 15 Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-vivo-y100i-power-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Vivo Y100i Power 5G to iPhone | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-downloading-samfw-frp-tool-30-for-infinix-hot-40-by-drfone-android/"><u>In 2024, Downloading SamFw FRP Tool 3.0 for Infinix Hot 40</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-sim-unlock-code-generators-unlock-your-realme-gt-neo-5-phone-hassle-free-by-drfone-android/"><u>In 2024, The Best Android SIM Unlock Code Generators Unlock Your Realme GT Neo 5 Phone Hassle-Free</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-top-10-most-immersive-youtube-vr-films/"><u>In 2024, Top 10 Most Immersive YouTube VR Films</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-using-laptopsmobile-for-google-meet-join/"><u>In 2024, Using Laptops/Mobile for Google Meet Join</u></a></li>
+<li><a href="https://win-lab.techidaily.com/resolution-guide-ensuring-continuous-operation-of-windows-11-defender-protection/"><u>Resolution Guide: Ensuring Continuous Operation of Windows 11 Defender Protection</u></a></li>
 </ul></div>
 

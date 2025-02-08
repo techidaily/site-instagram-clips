@@ -1,7 +1,7 @@
 ---
 title: "Unlock the Full Potential of Instagram Stories"
-date: 2025-01-24T02:01:01.895Z
-updated: 2025-01-25T22:48:17.300Z
+date: 2025-02-04T19:36:14.581Z
+updated: 2025-02-07T17:01:17.024Z
 tags:
   - ai video
   - ai instagram
@@ -52,6 +52,10 @@ If you want to post a picture or video you have already in your mobile phone, yo
 
 ![](https://images.wondershare.com/filmora/article-images/create-insta-stories-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Image resource: Quora
 
 #### 3\.  Click and share right now
@@ -65,10 +69,6 @@ Note: By default the 'Normal' mode is ready to capture your subject. We bring yo
 After launching the Instagram Camera, you need to choose the following camera options as you desire –
 
 ![](https://images.wondershare.com/filmora/article-images/create-insta-stories-3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Image resource: Ryan Bilello
 
@@ -98,10 +98,6 @@ So, you have tried all the options with Instagram camera? Let's go through 'Hand
 
 After you have captured the video using any of the above lenses, you can share them as your Insta Story. We are sure that you have enjoyed reading about these cool camera lenses. It's time to go out and check how to use them for Instagram Stories. So, get ready with your smartphone and start capturing. Click! Click! Click!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Tips and Tricks
 
 Now that you have an idea about all the filters and lenses of Instagram, we thought of introducing you to some cool add-ons for your captivating Instagram Stories.
@@ -109,10 +105,6 @@ Now that you have an idea about all the filters and lenses of Instagram, we thou
 ![](https://images.wondershare.com/filmora/article-images/create-insta-stories-4.jpg)
 
 Image resource: Ryan Bilello
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Use Stickers
 
@@ -131,12 +123,16 @@ You can add 'Polls', 'Location', and 'Hashtags' to your Insta Stories by tapping
 To turn your own face into a sticker, you can tap the camera icon under the 'Stickers' section and take a selfie. Then tap on the selfie to pin it as a sticker on your picture or video, and then share as your Instagram Story.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Use your pen
 
 ![](https://images.wondershare.com/filmora/article-images/instagram-pen.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Now that you have used funny stickers to make your picture (for Insta Story) attractive, how about adding a cute personal note as well? Well, you can do that by tapping on the pen icon right next to 'Stickers'. Select the desired pen type (highlighter, airbrush, eraser, etc.) from the top and then color from the bottom of the screen. You can adjust the pen size using the slider found at the left side. After writing or doodling on the image, tap on the tick mark at the top right corner and you are good to go.
 
@@ -146,15 +142,19 @@ Whoa! You are becoming a sport at how to use Instagram Stories.
 
 ![](https://images.wondershare.com/filmora/article-images/add-text-to-instagram.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 You can also add text to make your Instagram Stories more attractive. Tap on the 'Aa' icon on the extreme right corner of your screen (in Instagram camera) and start typing. You can change the font style by tapping the style available on top of the screen, as well as select the color of the 'Text'. You can also tag people in 'Text' by typing '@' and then the handle name of the person, then click on their image.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Add color overlays
 
 ![](https://images.wondershare.com/filmora/article-images/instagram-pen.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Adorn your creative hat and weave some magic into the Insta Stories now. For adding color overlays to your Insta Story image or video you need to use the 'Pen' tool here and choose a color. Now, click anywhere on the screen and hold for a moment until the entire screen is covered with that color. After that tap on the 'Eraser' tool and uncover specific portions of the picture or video to create interesting Instagram Stories.
 
@@ -177,7 +177,7 @@ With this complete guide for Instagram Stories, we are hopeful that you are goin
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -195,21 +195,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-choosing-between-vimeo-free-premium-and-pro-membership-levels-for-2024/"><u>[New] Choosing Between Vimeo Free, Premium & Pro Membership Levels for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-prime-setup-the-finest-4k-dslr-shoulder-rigs-reviewed/"><u>[New] Prime Setup The Finest 4K DSLR Shoulder Rigs Reviewed</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-the-top-10-stealthy-story-audiences/"><u>[New] The Top 10 Stealthy Story Audiences</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-the-ultimate-guide-to-instas-trendy-filters/"><u>[New] The Ultimate Guide to Insta's Trendy Filters</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-the-ultimate-path-to-link-integration-on-instagrams-social-stage/"><u>[New] The Ultimate Path to Link Integration on Instagram's Social Stage</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-mastering-the-art-of-fbx-less-game-capture-techniques/"><u>[Updated] 2024 Approved Mastering the Art of FBX-Less Game Capture Techniques</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-broadcast-battleground-pick-your-preferred-livestreaming-champion-vmixwirecast/"><u>2024 Approved Broadcast Battleground Pick Your Preferred Livestreaming Champion (VMix/Wirecast)</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-crafting-immersive-experiences-with-audio-in-canva/"><u>2024 Approved Crafting Immersive Experiences with Audio in Canva</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-top-7-instagram-money-sources-a-comprehensive-guide/"><u>2024 Approved Top 7 Instagram Money Sources - A Comprehensive Guide</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/get-the-newest-logitech-k350-support-software-for-perfect-compatibility/"><u>Get the Newest Logitech K350 Support Software for Perfect Compatibility</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-beginners-guide-going-live-with-ease-on-facebook/"><u>In 2024, Beginner’s Guide Going Live with Ease on Facebook</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-step-by-step-to-becoming-a-9gag-meme-genius/"><u>In 2024, Step-by-Step to Becoming a 9GAG Meme Genius</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-the-instagram-video-edge-planning-for-maximum-marketing-success/"><u>In 2024, The Instagram Video Edge Planning for Maximum Marketing Success</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/the-essential-guide-for-instagram-video-uploads-from-pcmac-for-2024/"><u>The Essential Guide for Instagram Video Uploads From PC/Mac for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/the-essential-list-top-10-video-editors-to-elevate-reels-for-2024/"><u>The Essential List Top 10 Video Editors to Elevate Reels for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/top-9-risks-why-you-shouldnt-rely-on-ai-for-mental-health-counseling/"><u>Top 9 Risks: Why You Shouldn't Rely on AI for Mental Health Counseling</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-unlocking-the-code-to-perfect-instagrams-every-time/"><u>[New] 2024 Approved Unlocking the Code to Perfect Instagrams Every Time</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-video-twisting-techniques-boost-your-instagram-media-presentation/"><u>[New] In 2024, Video Twisting Techniques Boost Your Instagram Media Presentation</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-samsungs-new-edge-the-2023-bd-j5900-reviewed-for-2024/"><u>[New] Samsung's New Edge The 2023 BD-J5900 Reviewed for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-capture-your-best-moments-top-8-mirrorless-cameras-for-you/"><u>[Updated] 2024 Approved Capture Your Best Moments Top 8 Mirrorless Cameras For You</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-unseen-features-in-depth-look-at-instagrams-ask-emoji/"><u>[Updated] 2024 Approved Unseen Features In-Depth Look at Instagram’s Ask Emoji</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-use-of-analytics/"><u>[Updated] 2024 Approved Use of Analytics</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-cutting-edge-strategies-for-recording-online-classes/"><u>[Updated] In 2024, Cutting-Edge Strategies for Recording Online Classes</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-unveiling-todays-instagram-trends-and-tags/"><u>[Updated] In 2024, Unveiling Today's #Instagram Trends and Tags</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-upgrade-instagram-visuals-with-3-effective-borders/"><u>[Updated] In 2024, Upgrade Instagram Visuals with 3 Effective Borders</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-streamline-your-content-efficiently-adding-youtube-captions/"><u>[Updated] Streamline Your Content Efficiently Adding YouTube Captions</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-capturing-beats-studio-mac-basics/"><u>2024 Approved Capturing Beats Studio Mac Basics</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/a-comprehensible-guide-for-mastering-instagram-live-engagements/"><u>A Comprehensible Guide for Mastering Instagram Live Engagements</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-oneplus-nord-n30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On OnePlus Nord N30 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/melodic-moments-the-art-of-music-in-insta-videos/"><u>Melodic Moments The Art of Music in Insta-Videos</u></a></li>
+<li><a href="https://games-able.techidaily.com/securing-victory-resolving-valorants-frames-per-second-challenges-on-pc/"><u>Securing Victory: Resolving Valorant's Frames Per Second Challenges on PC</u></a></li>
 </ul></div>
 
