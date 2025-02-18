@@ -1,7 +1,7 @@
 ---
 title: "[New] Get Close or Farther with Ease on Instagram Stories"
-date: 2025-02-05T07:05:00.167Z
-updated: 2025-02-08T05:21:33.456Z
+date: 2025-02-16T18:10:23.987Z
+updated: 2025-02-17T18:55:26.864Z
 tags:
   - ai video
   - ai instagram
@@ -43,7 +43,7 @@ You can zoom in/out while clicking a picture for Instagram Stories, by pinching 
 ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-normal-mode.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Image resource: later.com
@@ -53,6 +53,10 @@ Image resource: later.com
 #### 2\. Rewind Mode
 
 ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-rewind-mode.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Image resource: techjunkie.com
 
@@ -70,10 +74,6 @@ Shooting a video in 'Boomerang' is exciting while creating Instagram Stories. We
 
 ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-hands-free-mode.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Image resource: later.com
 
 There are two-options while you want to zoom in/out using the 'Hands-Free' mode. You can pinch the screen and zoom in or out prior to recording the video. Now, tap the record button, the video will be automatically recorded after a few seconds. Remember! You are using the 'Hands-Free' mode, so no holding the record button. The second method is similar to the previous methods of zooming in/out videos for Instagram Stories. Tap the record button and wait till the point where you want to zoom in/out. At that very point, hold the record button and slide your finger up/down to zoom in/out the video. This is how to zoom in/out Instagram Stories using 'Hands-Free' mode.
@@ -81,7 +81,7 @@ There are two-options while you want to zoom in/out using the 'Hands-Free' mode.
 Be it a 'Boomerang', 'Rewind', 'Hands-Free', or 'Normal' mode video, learning how to zoom in Instagram Stories is sure to make your stories cool and funky.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Edit Instagram Videos with Wondershare Filmora
@@ -91,7 +91,7 @@ Editing Instagram videos is not difficult at all as long as you installed a powe
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Final Verdict
@@ -112,7 +112,7 @@ You May also like
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -130,21 +130,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-maximizing-engagement-from-tiktok-to-twitter/"><u>[New] 2024 Approved Maximizing Engagement From TikTok to Twitter</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-unlocking-the-realm-of-free-photo-frame-video-downloads/"><u>[New] In 2024, Unlocking the Realm of Free Photo Frame Video Downloads</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/new-spread-the-rhythm-sharing-playlists-in-minutes/"><u>[New] Spread the Rhythm Sharing Playlists in Minutes</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-the-best-hash-tracking-apps-a-comprehensive-review-fbtwitterinsta/"><u>[New] The Best Hash Tracking Apps A Comprehensive Review (FB/Twitter/Insta)</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-the-insiders-guide-to-instagrams-chroma-key-effect/"><u>[New] The Insider's Guide to Instagram’s Chroma Key Effect</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-the-insta-editors-playbook-video-cropping-for-maximum-visibility/"><u>[Updated] The Insta Editors' Playbook Video Cropping for Maximum Visibility</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-the-beat-of-instagram-music-strategies/"><u>2024 Approved The Beat of Instagram Music Strategies</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/experience-excellence-with-the-latest-free-update-to-google-gemini-version-15-enhancements-now-available/"><u>Experience Excellence with the Latest, FREE Update to Google Gemini - Version 1.5 Enhancements Now Available!</u></a></li>
-<li><a href="https://techidaily.com/hard-reset-samsung-galaxy-m34-in-3-efficient-ways-drfone-by-drfone-reset-android-reset-android/"><u>Hard Reset Samsung Galaxy M34 in 3 Efficient Ways | Dr.fone</u></a></li>
-<li><a href="https://discover-hacks.techidaily.com/how-essential-are-software-updates-and-driver-upgrades-for-enhancing-pc-speed-expert-advice-by-yl-software/"><u>How Essential Are Software Updates and Driver Upgrades for Enhancing PC Speed? Expert Advice by YL Software</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/how-to-resolve-the-0xc10100be-video-playback-issue/"><u>How to Resolve the 0xC10100BE Video Playback Issue</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-vivo-y36-by-drfone-android/"><u>In 2024, The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Vivo Y36</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/surveying-with-style-instagrams-polling-protocols-explained-for-2024/"><u>Surveying with Style Instagram's Polling Protocols Explained for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/tailor-videos-for-impact-on-instagram-feed-for-2024/"><u>Tailor Videos for Impact on Instagram Feed for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/the-cutest-and-most-informative-igtvs-now-for-2024/"><u>The Cutest & Most Informative IGTVs Now for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/unlocking-conversation-activate-bing-ai-chat-for-android-input-methods/"><u>Unlocking Conversation: Activate Bing AI Chat for Android Input Methods</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-elevate-your-feed-quality-with-these-tags/"><u>[New] Elevate Your Feed Quality with These Tags</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-enhance-your-ig-visuals-with-three-effective-video-descriptions/"><u>[New] Enhance Your IG Visuals with Three Effective Video Descriptions</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-orchestrate-acoustics-within-presentation-ppts/"><u>[New] Orchestrate Acoustics Within Presentation PPTS</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-snappy-narratives-on-the-social-scene-for-2024/"><u>[New] Snappy Narratives on the Social Scene for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-ending-your-insta-saga-a-comprehensive-guide-to-deactivation/"><u>[Updated] Ending Your Insta Saga A Comprehensive Guide to Deactivation</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-snap-happy-with-hero5-black-tips-for-stunning-visuals/"><u>[Updated] Snap-Happy with Hero5 Black Tips for Stunning Visuals</u></a></li>
+<li><a href="https://win11.techidaily.com/disabling-auto-triggered-cmd-openings-on-windows/"><u>Disabling Auto-Triggered CMD Openings on Windows</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/enhancing-viewer-experience-vertical-videos-in-final-cut-pro-x-for-2024/"><u>Enhancing Viewer Experience Vertical Videos in Final Cut Pro X for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/enhancing-visual-storytelling-on-instagram-with-loops-for-2024/"><u>Enhancing Visual Storytelling on Instagram With Loops for 2024</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/especificaciones-tecnicas-esenciales-para-optimizar-el-sistema-con-windows-11-procesador-ram-y-vga/"><u>Especificaciones Técnicas Esenciales Para Optimizar El Sistema Con Windows 11 - Procesador, RAM Y VGA</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/get-more-from-instagram-reels-top-8-downloaders-at-no-cost-for-2024/"><u>Get More From Instagram Reels - Top 8 Downloaders at No Cost for 2024</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/mastering-image-restoration-with-stellars-guide-and-standard-edition-on-windows-platform/"><u>Mastering Image Restoration with Stellar's Guide and Standard Edition on Windows Platform</u></a></li>
+<li><a href="https://discover-cheats.techidaily.com/wiederherstellung-von-fotos-aus-dem-papierkorb-ohne-spezielle-software/"><u>Wiederherstellung Von Fotos Aus Dem Papierkorb Ohne Spezielle Software</u></a></li>
 </ul></div>
 

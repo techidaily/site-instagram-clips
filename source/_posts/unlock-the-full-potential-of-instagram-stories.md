@@ -1,7 +1,7 @@
 ---
 title: "Unlock the Full Potential of Instagram Stories"
-date: 2025-02-04T19:36:14.581Z
-updated: 2025-02-07T17:01:17.024Z
+date: 2025-02-11T17:34:33.845Z
+updated: 2025-02-18T00:44:14.599Z
 tags:
   - ai video
   - ai instagram
@@ -53,7 +53,7 @@ If you want to post a picture or video you have already in your mobile phone, yo
 ![](https://images.wondershare.com/filmora/article-images/create-insta-stories-2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Image resource: Quora
@@ -122,39 +122,39 @@ You can add 'Polls', 'Location', and 'Hashtags' to your Insta Stories by tapping
 
 To turn your own face into a sticker, you can tap the camera icon under the 'Stickers' section and take a selfie. Then tap on the selfie to pin it as a sticker on your picture or video, and then share as your Instagram Story.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Use your pen
 
 ![](https://images.wondershare.com/filmora/article-images/instagram-pen.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Now that you have used funny stickers to make your picture (for Insta Story) attractive, how about adding a cute personal note as well? Well, you can do that by tapping on the pen icon right next to 'Stickers'. Select the desired pen type (highlighter, airbrush, eraser, etc.) from the top and then color from the bottom of the screen. You can adjust the pen size using the slider found at the left side. After writing or doodling on the image, tap on the tick mark at the top right corner and you are good to go.
 
 Whoa! You are becoming a sport at how to use Instagram Stories.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Add text
 
 ![](https://images.wondershare.com/filmora/article-images/add-text-to-instagram.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can also add text to make your Instagram Stories more attractive. Tap on the 'Aa' icon on the extreme right corner of your screen (in Instagram camera) and start typing. You can change the font style by tapping the style available on top of the screen, as well as select the color of the 'Text'. You can also tag people in 'Text' by typing '@' and then the handle name of the person, then click on their image.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Add color overlays
 
 ![](https://images.wondershare.com/filmora/article-images/instagram-pen.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Adorn your creative hat and weave some magic into the Insta Stories now. For adding color overlays to your Insta Story image or video you need to use the 'Pen' tool here and choose a color. Now, click anywhere on the screen and hold for a moment until the entire screen is covered with that color. After that tap on the 'Eraser' tool and uncover specific portions of the picture or video to create interesting Instagram Stories.
 
@@ -166,6 +166,10 @@ First add a video or picture and then click on the paperclip icon from the top r
 
 **You May Also Like:** [How to Post a Link to Instagram Stories and Posts](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Add music
 
 If adding 'Stickers', 'Text', and choosing filters aren't enough for your perfect Insta Story video, why don't you try adding your favorite music to it? First of all play an audio using the inbuilt player in your phone (you can stream online as well) and then move to Instagram and tap the camera icon to shoot the video. When your recording is complete, you can share this video along with your favorite track as your Instagram Story. Take care that the music icon is not muted ('X' mark over it).
@@ -175,10 +179,6 @@ If adding 'Stickers', 'Text', and choosing filters aren't enough for your perfec
 With this complete guide for Instagram Stories, we are hopeful that you are going to be a pro in how to use Instagram Stories. Bring out that creative soul in you and explore the world of Insta Stories with these amazingly cool features. Keep telling your stories through your camera lens (the Instagram one!).
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -195,20 +195,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-unlocking-the-code-to-perfect-instagrams-every-time/"><u>[New] 2024 Approved Unlocking the Code to Perfect Instagrams Every Time</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-video-twisting-techniques-boost-your-instagram-media-presentation/"><u>[New] In 2024, Video Twisting Techniques Boost Your Instagram Media Presentation</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-samsungs-new-edge-the-2023-bd-j5900-reviewed-for-2024/"><u>[New] Samsung's New Edge The 2023 BD-J5900 Reviewed for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-capture-your-best-moments-top-8-mirrorless-cameras-for-you/"><u>[Updated] 2024 Approved Capture Your Best Moments Top 8 Mirrorless Cameras For You</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-unseen-features-in-depth-look-at-instagrams-ask-emoji/"><u>[Updated] 2024 Approved Unseen Features In-Depth Look at Instagram’s Ask Emoji</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-use-of-analytics/"><u>[Updated] 2024 Approved Use of Analytics</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-cutting-edge-strategies-for-recording-online-classes/"><u>[Updated] In 2024, Cutting-Edge Strategies for Recording Online Classes</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-unveiling-todays-instagram-trends-and-tags/"><u>[Updated] In 2024, Unveiling Today's #Instagram Trends and Tags</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-upgrade-instagram-visuals-with-3-effective-borders/"><u>[Updated] In 2024, Upgrade Instagram Visuals with 3 Effective Borders</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-streamline-your-content-efficiently-adding-youtube-captions/"><u>[Updated] Streamline Your Content Efficiently Adding YouTube Captions</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-capturing-beats-studio-mac-basics/"><u>2024 Approved Capturing Beats Studio Mac Basics</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/a-comprehensible-guide-for-mastering-instagram-live-engagements/"><u>A Comprehensible Guide for Mastering Instagram Live Engagements</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-oneplus-nord-n30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On OnePlus Nord N30 5G? | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/melodic-moments-the-art-of-music-in-insta-videos/"><u>Melodic Moments The Art of Music in Insta-Videos</u></a></li>
-<li><a href="https://games-able.techidaily.com/securing-victory-resolving-valorants-frames-per-second-challenges-on-pc/"><u>Securing Victory: Resolving Valorant's Frames Per Second Challenges on PC</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-essential-igtv-picks-for-a-creative-edge/"><u>[New] 2024 Approved Essential IGTV Picks for a Creative Edge</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-expert-tips-top-free-tools-to-extract-and-save-instagram-videos-windowsos-x/"><u>[New] 2024 Approved Expert Tips Top Free Tools to Extract and Save Instagram Videos (Windows/OS X)</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-fast-guide-mastering-instagram-live-conversations/"><u>[New] 2024 Approved Fast Guide Mastering Instagram Live Conversations</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-enhancing-content-strategy-with-igtv-performance-metrics-for-2024/"><u>[Updated] Enhancing Content Strategy with IGTV Performance Metrics for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-essential-tips-for-instagram-photos-with-custom-watermarks-for-2024/"><u>[Updated] Essential Tips for Instagram Photos with Custom Watermarks for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-mastering-the-art-of-video-enhancement-from-sdr-basics-to-hdr-excellence/"><u>[Updated] Mastering the Art of Video Enhancement From SDR Basics to HDR Excellence</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721478244002-airpods-troubleshooting-guide-fix-no-sound-problem-in-just-9-simple-methods/"><u>AirPods Troubleshooting Guide: Fix No Sound Problem in Just 9 Simple Methods!</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/diy-methods-to-get-the-web-in-your-living-room-theater-system/"><u>DIY Methods to Get the Web in Your Living Room Theater System</u></a></li>
+<li><a href="https://change-location.techidaily.com/home-button-not-working-on-itel-p55t-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Itel P55T? Here Are Real Fixes | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-turn-off-find-my-apple-iphone-8-when-phone-is-broken-drfone-by-drfone-ios/"><u>In 2024, How to Turn Off Find My Apple iPhone 8 when Phone is Broken? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-top-independent-game-apps-for-screen-free-android-playing/"><u>In 2024, Top Independent Game Apps for Screen-Free Android Playing</u></a></li>
+<li><a href="https://win-able.techidaily.com/the-truth-behind-halving-frame-rates-a-deep-dive-into-pc-performance-issues/"><u>The Truth Behind Halving Frame Rates: A Deep-Dive Into PC Performance Issues</u></a></li>
+<li><a href="https://win-bytes.techidaily.com/understanding-windows-defender-vs-windows-security-the-core-protection-and-configuration-tools-in-windows-11-explore-by-yl-computing/"><u>Understanding Windows Defender Vs. Windows Security: The Core Protection & Configuration Tools in Windows 11 - Explore by YL Computing</u></a></li>
 </ul></div>
 

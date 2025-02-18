@@ -1,7 +1,7 @@
 ---
 title: Troubleshooting Your Console's Audio Issues - The Ultimate Mic Fix Guide for 2nD4!
-date: 2025-02-01T22:08:02.367Z
-updated: 2025-02-08T07:51:38.429Z
+date: 2025-02-10T22:27:23.320Z
+updated: 2025-02-17T20:36:36.476Z
 tags:
   - win11
   - win10
@@ -19,6 +19,10 @@ You may run into the_Path of Exile (PoE)_ freezing issue for several reasons, su
 
  The information here is a general guide that has proved useful to many players in fixing this issue. You may not have to try them all, just work your way down the list until you find the one that does the trick for you. (If none of the fixes here helped, at least you’ve ruled out all these simple fixes before contacting the game developer.)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Fixes to try
 
 1. **[End unnecessary programs](https://tools.techidaily.com/drivereasy/download/)**
@@ -30,6 +34,10 @@ You may run into the_Path of Exile (PoE)_ freezing issue for several reasons, su
 7. **[Reinstall Steam](https://tools.techidaily.com/drivereasy/download/)**
 8. **[Clean the interior of your PC](https://tools.techidaily.com/drivereasy/download/)**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Fix 1: End unnecessary programs
 
  The game freezing issue commonly occurs when you’re running multiple applications simultaneously on your PC. It’s probable that your computer doesn’t have enough power or memory to support all of the programs you’re opening. So, you should end unnecessary programs while gaming.
@@ -39,10 +47,6 @@ Follow the instructions below:
 **1)**  Right-click your taskbar and select **Task Manager** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_10-58-19.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **2)** Check your current **CPU and memory usage** to see what processes are consuming your resources most.
 
@@ -70,11 +74,19 @@ Follow the instructions below:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_11-02-53.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **3)** Click the **Update button** next to the graphics driver to automatically download the correct version of that driver, then you can manually install it (you can do this with the FREE version).
 
  Or click **Update All** to automatically download and install the correct version of all the drivers that are missing or out of date on your system. (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  which comes with full support and a 30-day money back guarantee. You’ll be prompted to upgrade when you click Update All.)
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_11-02-59.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **The Pro version of Driver Easy** comes with full technical support.  
  If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
@@ -93,19 +105,23 @@ If your issue continues to occur, move on and try the next fix.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_11-10-03.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **3)**  Click the **Compatibility tab** and check the box next to **Run this program as an administrator** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_11-10-11.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **4)** Click **Apply** , then **OK** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_11-10-18.jpg)
 
  Relaunch your game to test your issue. If this didn’t work, move on to the fix below.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 4: Verify the integrity of your game files
 
@@ -117,10 +133,6 @@ If your issue continues to occur, move on and try the next fix.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_11-15-04.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **3)**  Right-click **Path of Exile** and select **Properties.**
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_11-15-08-1.jpg)
@@ -129,10 +141,6 @@ If your issue continues to occur, move on and try the next fix.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_11-15-18.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Fix 5: Increase virtual memory
 
  Virtual memory combines your RAM with temporary space on your hard disk. If you’re running out of RAM and the default size of your virtual memory isn’t large enough for your needs, you’ll need to increase it manually.
@@ -140,10 +148,6 @@ If your issue continues to occur, move on and try the next fix.
 **1)** On your keyboard, press the **Windows logo** key and type **advanced system settings.** Then, click **View advanced system settings.**
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_11-29-35.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **2)** Click **Settings** .
 
@@ -154,16 +158,12 @@ If your issue continues to occur, move on and try the next fix.
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_11-31-38.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **4)** Uncheck the box next to **Automatically manage paging file size for all drives** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_11-31-44.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **6)** Select your **C drive** .
 
@@ -174,6 +174,10 @@ If your issue continues to occur, move on and try the next fix.
  Microsoft recommends that you set your virtual memory three times the size of your physical memory (RAM) or 4 GB (4096M), whichever is larger.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_11-33-50.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **8)** Click **Set** , and then click **OK** .
 
@@ -190,10 +194,6 @@ If your issue persists, then ahead with the fix below.
 **1)**  On your keyboard, press the **Windows logo**  key. Then, type **windows update** and select **Windows Update settings** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_11-47-57.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **2)**  Click **Check for updates,**  and then wait for Windows to download and install the updates automatically.
 
@@ -213,18 +213,18 @@ If your issue persists, then ahead with the fix below.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_11-51-32.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **3)** Right-click **Steam** , and then click **Uninstall** . Then, wait for the process to be complete.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-01_11-51-38.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  **4)[Download](https://store.steampowered.com/about/)**  and install Steam. Then, reinstall your game on Steam.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Fix 8: Clean the interior of your PC
@@ -254,21 +254,22 @@ Relaunch the game to see if this helped.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-incorporating-instagrams-cutting-edge-filters/"><u>[New] 2024 Approved Incorporating Instagram's Cutting Edge Filters</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-innovative-marker-use-in-digital-filmmaking/"><u>[New] 2024 Approved Innovative Marker Use in Digital Filmmaking</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-immediate-flagging-of-insta-de-following-events-for-2024/"><u>[New] Immediate Flagging of Insta De-Following Events for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-how-to-turn-off-suggested-posts-on-instagram/"><u>[New] In 2024, How to Turn Off Suggested Posts on Instagram?</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-influencer-innovation-the-top-5-instagram-tactics-for-maximum-impact/"><u>[New] In 2024, Influencer Innovation The Top 5 Instagram Tactics for Maximum Impact</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-innovative-10-ideas-thatll-boost-your-brand-on-igtv/"><u>[New] In 2024, Innovative 10 Ideas That'll Boost Your Brand on IGTV</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-streamline-your-creative-process-with-instagrams-audio-features/"><u>[New] Streamline Your Creative Process with Instagram's Audio Features</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-from-obscurity-to-star-in-3-simple-steps/"><u>[Updated] 2024 Approved From Obscurity to Star in 3 Simple Steps</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-how-to-zoom-inout-in-instagram-stories/"><u>[Updated] 2024 Approved How to Zoom In/Out in Instagram Stories</u></a></li>
-<li><a href="https://techtrends.techidaily.com/gpuwinxvideo-ai/"><u>利用GPU技術，WinxVideo AI爆發性提升影視轉化效率</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-visual-storytelling-enhanced-by-these-top-7-graders-flair/"><u>In 2024, Visual Storytelling Enhanced by These Top 7 Graders' Flair</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-what-you-want-to-know-about-two-factor-authentication-for-icloud-on-your-apple-iphone-15-pro-by-drfone-ios/"><u>In 2024, What You Want To Know About Two-Factor Authentication for iCloud On your Apple iPhone 15 Pro</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/install-official-drivers-for-the-epson-wf-2630-on-windows-operating-systems-win-7win-81win-10/"><u>Install Official Drivers for the Epson WF-2630 on Windows Operating Systems: Win 7/Win 8.1/Win 10</u></a></li>
-<li><a href="https://win-dash.techidaily.com/instantly-get-your-lexar-usb-drive-working-secure-download-now/"><u>Instantly Get Your Lexar USB Drive Working - Secure Download Now</u></a></li>
-<li><a href="https://win-answers.techidaily.com/troubleshooting-steps-for-persistent-crashes-when-relinking-granblue-fantasy-on-desktop/"><u>Troubleshooting Steps for Persistent Crashes when Relinking Granblue Fantasy on Desktop</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/troubleshooting-steps-for-resolving-corsair-icue-connectivity-issues-in-windows-11/"><u>Troubleshooting Steps for Resolving Corsair iCUE Connectivity Issues in Windows 11</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-avoiding-the-blank-thumbnail-scenario-in-shorts-for-2024/"><u>[New] Avoiding the Blank Thumbnail Scenario in Shorts for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-capture-the-thrill-essential-recording-tips-for-overwatch/"><u>[Updated] In 2024, Capture the Thrill Essential Recording Tips for Overwatch</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-the-ultimate-guide-to-free-multimedia-content-creation/"><u>[Updated] The Ultimate Guide to Free Multimedia Content Creation</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-thumbnail-insight-top-picks-for-maximizing-video-visibility/"><u>2024 Approved Thumbnail Insight Top Picks for Maximizing Video Visibility</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/digital-scribes-leveraging-ai-for-dynamic-game-dialogue-writing/"><u>Digital Scribes: Leveraging AI for Dynamic Game Dialogue Writing</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-a-complete-guide-to-downloading-and-backup-of-instagram-vids-on-pcmacos/"><u>In 2024, A Complete Guide to Downloading & Backup of Instagram Vids on PC/macOS</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-expedited-files-scanning-on-windows-os/"><u>In 2024, Expedited Files Scanning on Windows OS</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-generate-sharable-gifs-with-a-laugh-twist-giphy/"><u>In 2024, Generate Sharable Gifs with a Laugh Twist, Giphy</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-how-to-add-music-or-voiceover-to-instagram-reels/"><u>In 2024, How to Add Music or Voiceover to Instagram Reels?</u></a></li>
+<li><a href="https://fake-location.techidaily.com/read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-oneplus-nord-ce-3-lite-5g-drfone-by-drfone-virtual-android/"><u>Read This Guide to Find a Reliable Alternative to Fake GPS On OnePlus Nord CE 3 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/rising-stars-guide-essential-hashtags-to-increase-your-insta-presence/"><u>Rising Stars Guide Essential Hashtags to Increase Your Insta Presence</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/the-editors-playbook-top-tools-to-boost-your-ig-content/"><u>The Editor's Playbook Top Tools to Boost Your IG Content</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/the-journey-to-origin-how-to-utilize-reverse-image-functionality-on-instagram/"><u>The Journey to Origin How to Utilize Reverse Image Functionality on Instagram</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/tips-for-seamlessly-screening-instagram-stories/"><u>Tips for Seamlessly Screening Instagram Stories</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/transforming-your-igtv-presence-with-new-covers/"><u>Transforming Your IGTV Presence with New Covers</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/trendsetters-guide-selecting-best-tools-to-craft-instagram-videos/"><u>Trendsetters’ Guide Selecting Best Tools to Craft Instagram Videos</u></a></li>
+<li><a href="https://fox-pages.techidaily.com/ultimate-guide-to-selecting-superior-iphone-e-6-video-transcoder-software/"><u>Ultimate Guide to Selecting Superior iPhone E 6 Video Transcoder Software</u></a></li>
 </ul></div>
 

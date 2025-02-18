@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] FrameFinesse  A Detailed Guide on IG Image Dimensions\""
-date: 2025-02-06T23:39:09.860Z
-updated: 2025-02-08T06:44:56.978Z
+date: 2025-02-12T20:01:59.166Z
+updated: 2025-02-17T23:35:15.662Z
 tags:
   - ai video
   - ai instagram
@@ -30,7 +30,7 @@ Taking photos with iPhones and Android Smartphones and posting them to Instagram
 Troubles begin when you want to upload photos and videos that weren't captured with a Smartphone to Instagram. In most cases, the photos and videos produced by DSLR cameras and other semi-professional and professional equipment are much larger than the sizes supported by Instagram. That is the reason why we created this guide that will help you post visual content that is perfectly adjusted to Instagram in 2021.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Types of Files Accepted by Instagram
@@ -50,7 +50,7 @@ Duration of Videos on Instagram
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Best Image Sizes for Instagram Posts
@@ -62,7 +62,7 @@ A couple of years ago, Instagram has finally allowed its users to upload images 
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
@@ -90,7 +90,7 @@ The profile pictures on Instagram are tiny, and the optimum size for them is 160
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -108,20 +108,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-the-secret-sauce-to-instagram-success-with-engaging-puzzles/"><u>[New] 2024 Approved The Secret Sauce to Instagram Success with Engaging Puzzles</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-the-ultimate-guide-to-instagram-desktop-video-upload/"><u>[New] 2024 Approved The Ultimate Guide to Instagram Desktop Video Upload</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-the-essence-of-insta-bokeh-a-step-by-step-guide-for-2024/"><u>[New] The Essence of Insta Bokeh - A Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-the-ultimate-compendium-of-top-rated-instagram-analytics-applications-for-2024/"><u>[New] The Ultimate Compendium of Top-Rated Instagram Analytics Applications for 2024</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-becoming-one-in-the-tiktok-living-room-your-steps/"><u>[Updated] 2024 Approved Becoming One in the TikTok Living Room Your Steps</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-the-instagram-edge-a-quick-guide-to-editing-vertical-footage-in-final-cut/"><u>[Updated] 2024 Approved The Instagram Edge A Quick Guide to Editing Vertical Footage in Final Cut</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-the-instagram-follower-dilemrancy-guide/"><u>[Updated] In 2024, The Instagram Follower Dilemrancy Guide</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-step-by-step-guide-to-instagram-livestreaming-using-obs-for-2024/"><u>[Updated] Step-by-Step Guide to Instagram Livestreaming Using OBS for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-the-pathway-to-preserving-instagram-content-via-desktop-platforms-for-2024/"><u>[Updated] The Pathway to Preserving Instagram Content via Desktop Platforms for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-unveiling-top-rated-video-recorders-for-windows-for-2024/"><u>[Updated] Unveiling Top-Rated Video Recorders for Windows for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-unraveling-galaxy-s8s-enhanced-cinematic-capabilities/"><u>2024 Approved Unraveling Galaxy S8's Enhanced Cinematic Capabilities</u></a></li>
-<li><a href="https://win-reviews.techidaily.com/how-do-faulty-ram-and-other-memory-problems-affect-your-pcs-performance-expertise-by-yl-software/"><u>How Do Faulty RAM and Other Memory Problems Affect Your PC's Performance? - Expertise by YL Software</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-wintvrecorder-effortless-free-live-tv-saving-software/"><u>In 2024, WinTVRecorder Effortless, FREE Live TV Saving Software</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/the-ultimate-guide-to-cost-free-online-collaboration-tools/"><u>The Ultimate Guide to Cost-Free Online Collaboration Tools</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/transition-to-windows-11-without-a-hitch-top-8-tips/"><u>Transition to Windows 11 Without a Hitch: Top 8 Tips</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-efficient-tactics-for-recording-vimeo-media/"><u>[Updated] Efficient Tactics for Recording Vimeo Media</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-smartphone-skills-producing-engaging-youtube-thumbnails/"><u>[Updated] In 2024, Smartphone Skills Producing Engaging YouTube Thumbnails</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-step-by-step-voice-customization-in-free-fire-guide-included-no-cost/"><u>[Updated] Step-by-Step Voice Customization in Free Fire (Guide Included - No Cost)</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-the-worth-of-instagram-video-selfie-authenticity/"><u>[Updated] The Worth of Instagram Video Selfie Authenticity</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-top-pick-prodigious-insta-hlv-pages-creators/"><u>[Updated] Top Pick Prodigious Insta HLV Pages Creators</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-transforming-your-igtv-presence-with-new-covers/"><u>2024 Approved Transforming Your IGTV Presence with New Covers</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-top-insights-on-maximizing-business-engagement-on-insta/"><u>In 2024, Top Insights on Maximizing Business Engagement on Insta</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-turning-insta-vids-into-music-your-complete-guide/"><u>In 2024, Turning Insta Vids Into Music Your Complete Guide</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/into-the-fray-with-polaroid-cubeplus-action-recorder/"><u>Into the Fray with Polaroid Cube+ Action Recorder</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/latest-intel-usb-30-drivers-now-available-for-windows-11-users/"><u>Latest Intel USB 3.0 Drivers Now Available for Windows 11 Users!</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-xfinity-vs-tivo-a-comprehensive-comparison-of-dvr-options/"><u>New Xfinity vs TiVo A Comprehensive Comparison of DVR Options</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-tecno-pova-5-drfone-by-drfone-virtual-android/"><u>Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Tecno Pova 5 | Dr.fone</u></a></li>
 </ul></div>
 
