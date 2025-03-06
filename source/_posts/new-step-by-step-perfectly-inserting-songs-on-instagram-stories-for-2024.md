@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Step-by-Step  Perfectly Inserting Songs on Instagram Stories for 2024\""
-date: 2025-02-12T00:58:53.137Z
-updated: 2025-02-17T23:48:49.394Z
+date: 2025-03-03T17:28:09.969Z
+updated: 2025-03-06T16:27:10.174Z
 tags:
   - ai video
   - ai instagram
@@ -51,17 +51,9 @@ As of now, Instagram music has an extensive catalog with millions of songs in di
 
 ![ Select Taylor Swift Songs](https://images.wondershare.com/filmora/article-images/select-taylor-swift-songs.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Once you find the song of your choice, just tap on it and it will be loaded on the Instagram Story interface. Although the entire song would be loaded, you would now have to clip a snippet of at most 15 seconds from it. There is a slider at the bottom that you can move and adjust to clip the specific part and even view its lyrics sliding as you move.
 
 ![ View Lyrics](https://images.wondershare.com/filmora/article-images/view-lyrics.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 3. Make optional edits to customize the story
 
@@ -76,10 +68,6 @@ After when you add music to IG story, you can further change how it looks. You c
 If you don’t want to display the lyrics, then just swipe the text options at the bottom and select the sticker feature. This will only display the sticker of the track on the story. You can also tap on the sticker to get different display options for it.
 
 ![ Display Options of IG Story Music](https://images.wondershare.com/filmora/article-images/display-options-of-music.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 4. Post your IG Story on your Profile
 
@@ -103,19 +91,11 @@ Instagram also keeps rotating different filters that we can add to our stories. 
 
 ![ Inbuilt IG Filters](https://images.wondershare.com/filmora/article-images/inbuilt-ig-filters.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### Add polls, challenges, countdowns, and more
 
 Apart from adding music, Instagram also lets us add tons of other things to our story. You can mention any other user in your story or add a location to get more views. There are also options to add a hashtag or create a poll. You can also find different challenges to explore (like the ice bucket challenge) to post your story under a specific category.
 
 ![ Add Polls and More](https://images.wondershare.com/filmora/article-images/add-polls-challenges.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### Ask questions to interact with your audience
 
@@ -146,24 +126,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-expanding-reach-crafting-winning-tiktok-marketing-plans/"><u>[New] 2024 Approved Expanding Reach Crafting Winning TikTok Marketing Plans</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-crafting-captivating-content-the-instagram-reel-way/"><u>[New] Crafting Captivating Content The Instagram Reel Way</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-detecting-instagram-disconnections-fast/"><u>[New] Detecting Instagram Disconnections Fast</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-elevate-your-social-media-reach-fb-ad-mastery-techniques/"><u>[Updated] 2024 Approved Elevate Your Social Media Reach FB Ad Mastery Techniques</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-accelerated-fortnite-visualization-steps/"><u>[Updated] Accelerated Fortnite Visualization Steps</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-best-mkv-player-for-pc-and-mobile/"><u>[Updated] Best Mkv Player for PC and Mobile</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-constructing-unique-instagram-story-panels/"><u>[Updated] Constructing Unique Instagram Story Panels</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-social-media-gold-selecting-top-10-powerful-hashtags/"><u>2024 Approved Social Media Gold Selecting Top 10 Powerful Hashtags</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/craft-your-creative-identity-mastering-instagram-photowatermarking-for-2024/"><u>Craft Your Creative Identity Mastering Instagram Photowatermarking for 2024</u></a></li>
-<li><a href="https://driver-error.techidaily.com/dealing-with-disappearing-cpu-co-processor-drivers-in-windows-11-fixes-and-tips/"><u>Dealing with Disappearing CPU Co-Processor Drivers in Windows 11 – Fixes and Tips</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/decoding-the-audience-who-viewed-your-insta-post-in-2024/"><u>Decoding the Audience Who Viewed Your Insta Post, In 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/elevate-your-creativity-6-aplus-apps-for-instagram-reels-for-2024/"><u>Elevate Your Creativity 6 A+ Apps for Instagram Reels for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-realme-narzo-n53-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Hassle-Free Solutions to Fake Location on Find My Friends Of Realme Narzo N53 | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-climbing-the-feed-ladder-the-most-effective-hashtags-for-likes-and-followers-on-insta/"><u>In 2024, Climbing the Feed Ladder The Most Effective Hashtags for Likes and Followers on Insta</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-decoding-instagrams-max-video-length-policy/"><u>In 2024, Decoding Instagram's Max Video Length Policy</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-distinguished-pioneers-elite-insta-hlv-page-builders/"><u>In 2024, Distinguished Pioneers Elite Insta HLV Page Builders</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-maximizing-views-optimal-youtube-thumbnails/"><u>In 2024, Maximizing Views Optimal YouTube Thumbnails</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/install-steelseries-gaming-mouse-drivers-instantly-online/"><u>Install SteelSeries Gaming Mouse Drivers Instantly Online</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/play-store-not-working-on-honor-x50i-8-solutions-inside-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Not Working On Honor X50i? 8 Solutions Inside | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-become-a-design-pro-expertise-in-bypassing-backgrounds-with-canva-for-2024/"><u>[New] Become a Design Pro Expertise in Bypassing Backgrounds with Canva for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-from-disparate-pixels-constructing-splendid-imagery-weaves/"><u>[New] From Disparate Pixels Constructing Splendid Imagery Weaves</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-make-my-video-perfectly-fit-instagram/"><u>[New] Make My Video Perfectly Fit Instagram?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-complete-guide-to-mastering-games-with-kinemaster-android-for-2024/"><u>[Updated] The Complete Guide to Mastering Games with KineMaster Android for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-instagram-stories-harmonizing-photos-for-maximum-impact/"><u>2024 Approved Instagram Stories Harmonizing Photos for Maximum Impact</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-instagram-videos-enhance-your-watch-time/"><u>2024 Approved Instagram Videos Enhance Your Watch Time</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/in-2024-10-premier-websites-to-access-high-quality-bgm-libraries/"><u>In 2024, 10 Premier Websites to Access High-Quality BGM Libraries</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-instagram-archive-mastery-how-and-why/"><u>In 2024, Instagram Archive Mastery How and Why?</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-instagram-intonations-choosing-the-right-notes-for-your-snap/"><u>In 2024, Instagram Intonations Choosing the Right Notes for Your Snap</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-instagrams-hidden-treasure-securely-download-igtv-videos-on-pcmacos/"><u>In 2024, Instagram's Hidden Treasure Securely Download IGTV Videos on PC/MacOS</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-top-7-skype-hacker-to-hack-any-skype-account-on-your-xiaomi-civi-3-disney-100th-anniversary-edition-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Skype Hacker to Hack Any Skype Account On your Xiaomi Civi 3 Disney 100th Anniversary Edition | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/instagram-metrics-mastery-gain-more-followers-for-2024/"><u>Instagram Metrics Mastery - Gain More Followers for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/instagram-reels-crafting-exquisite-slow-motion-content-for-2024/"><u>Instagram Reels Crafting Exquisite Slow-Motion Content for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/join-the-hilarity-tearfulness-spectacle-of-top-memes-on-ig-for-2024/"><u>Join the Hilarity-Tearfulness Spectacle of Top Memes on IG for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/overcoming-installation-hurdles-how-to-enjoy-tiny-tinas-wonderlands-flawlessly-on-pc/"><u>Overcoming Installation Hurdles - How to Enjoy Tiny Tina's Wonderlands Flawlessly on PC</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/the-experts-selection-top-10-data-recovery-tools-for-iphones-running-ios-17/"><u>The Expert's Selection: Top 10 Data Recovery Tools for iPhones Running iOS 17</u></a></li>
+<li><a href="https://techtrends.techidaily.com/understanding-dts-virtualcx-and-its-impact-on-home-theater-systems/"><u>Understanding DTS Virtual:CX and Its Impact on Home Theater Systems</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/unveiling-5-premier-slumber-assistance-applications-for-your-apple-watch/"><u>Unveiling 5 Premier Slumber Assistance Applications for Your Apple Watch</u></a></li>
+<li><a href="https://change-location.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-samsung-galaxy-f15-5g-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Samsung Galaxy F15 5G? | Dr.fone</u></a></li>
 </ul></div>
 

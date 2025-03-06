@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Optimal Insta Video Sizes - 2023 Guide for 2024\""
-date: 2025-02-13T21:14:35.545Z
-updated: 2025-02-17T17:39:41.493Z
+date: 2025-02-27T16:02:36.777Z
+updated: 2025-03-06T17:36:43.264Z
 tags:
   - ai video
   - ai instagram
@@ -46,10 +46,6 @@ Knowing Instagram’ supported file formats, sizes, resolutions and frame rates 
 
 Before getting into the nitty-gritty of this article, it is prudent to understand the meaning of the key words concerning Instagram. These include video frame rate, aspect ratio, resolution and Image Size.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Aspect Ratio, Image Size, Resolution and Video Frame Rate Explained
 
 **Aspect ratio**  refers to the ratio of the width of an image to height. To indicate the aspect ratio of an image we use ratios in the form of 1:1, 2:3 or 5:4 depending on the variants. Instagram aspect ratio of a vertical video is 9:16 while the horizontal ratio is 16:9.
@@ -62,19 +58,11 @@ Before getting into the nitty-gritty of this article, it is prudent to understan
 
 Since you can now interpret video dimensions and photo sizes like a pro, do you know the recommended video dimensions for Instagram for each format?
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Best Instagram Video Dimensions Specifications for a Post
 
 Even though MP4 is the only supported Instagram video format, you can set the videos different orientations and forms. The main orientations are square, landscape (horizontal) and Portrait (vertical).
 
 ![instagram video dimensions](https://images.wondershare.com/filmora/instagram-video-format.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Since Instagram is not limited to videos, you might be puzzling about the required dimensions for Instagram photos, stories, IGTV, live videos and other supported features like ads. Keep calm, and find all the Instagram dimensions and sizes right in here.
 
@@ -197,10 +185,6 @@ This is how using extra small or larger photos than recommended affects quality.
 
 ![instagram story size](https://images.wondershare.com/filmora/instagram-portrait-photo-size.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 For images or photos whose height is naturally greater than width, the ideal Instagram photo format to use is portrait. To avoid cropping your photos, use the 4:5 aspect ratio. The photo dimension should not exceed 1080px by 1350px.
 
 Even though Instagram displays vertical photos at a maximum resolution of 480px by 600px or 960 X 1200, let your photo size 1080 X 1350\. Otherwise, the effects of enlargement and compression will occur.
@@ -208,10 +192,6 @@ Even though Instagram displays vertical photos at a maximum resolution of 480px 
 #### Instagram Landscape Photo Size
 
 ![instagram post size](https://images.wondershare.com/filmora/instagram-landscape-photo-size.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 How many photos or pictures have you seen on Instagram with a border above and below it? They are countless.
 
@@ -249,10 +229,6 @@ What sizes and dimensions do you use to take Instagram photos and stream videos?
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -268,22 +244,15 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-file-sharing-solutions-beyond-sharex/"><u>[New] In 2024, File Sharing Solutions Beyond ShareX</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-mac-tricks-for-dynamic-instagram-video-size-adjustment/"><u>[New] Mac Tricks for Dynamic Instagram Video Size Adjustment</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-mastering-instagrams-newest-feature-reels-explained/"><u>[New] Mastering Instagram's Newest Feature Reels Explained</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-master-the-art-of-file-acquisition-expert-guide-for-downloading-igtv/"><u>[Updated] Master the Art of File Acquisition Expert Guide for Downloading IGTV</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-mastering-instagrams-filter-techniques/"><u>[Updated] Mastering Instagram's Filter Techniques</u></a></li>
-<li><a href="https://fake-location.techidaily.com/apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-poco-c65-drfone-by-drfone-virtual-android/"><u>Apply These Techniques to Improve How to Detect Fake GPS Location On Poco C65 | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/bypass-icloud-activation-lock-with-imei-code-on-your-iphone-13-by-drfone-ios/"><u>Bypass iCloud Activation Lock with IMEI Code On your iPhone 13</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/free-gif-looping-software-the-best-options-for-2024/"><u>Free GIF Looping Software The Best Options for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-full-guide-on-mirroring-your-honor-90-lite-to-your-pcmac-drfone-by-drfone-android/"><u>In 2024, Full Guide on Mirroring Your Honor 90 Lite to Your PC/Mac | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-mastering-instagram-maximizing-post-engagement/"><u>In 2024, Mastering Instagram Maximizing Post Engagement</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-mastering-instagrams-hashtag-language-for-enhanced-engagement/"><u>In 2024, Mastering Instagram's Hashtag Language for Enhanced Engagement</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-maximize-style-with-premium-border-options-for-ig-posts/"><u>In 2024, Maximize Style with Premium Border Options for IG Posts</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/maximize-your-content-strategy-understanding-instagrams-video-limits-for-2024/"><u>Maximize Your Content Strategy Understanding Instagram's Video Limits for 2024</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/new-here-are-10-best-trailer-makers-for-mac-and-windows-to-creating-attractive-movie-trailers-for-2024/"><u>New Here Are 10 Best Trailer Makers for Mac and Windows to Creating Attractive Movie Trailers for 2024</u></a></li>
-<li><a href="https://win-news.techidaily.com/section-3c-qanda-with-solutions/"><u>Section 3C: Q&A with Solutions</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ltimate-platform-question-whos-the-best-vimeo-or-youtubeplusdailymotion-for-2024/"><u>The Ultimate Platform Question Who's the Best - Vimeo or YouTube+Dailymotion for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/tutorial-manage-comment-permissions-on-youtube-for-2024/"><u>Tutorial Manage Comment Permissions on YouTube for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-audience-level-sound-production-using-audacity/"><u>[New] 2024 Approved Audience-Level Sound Production Using Audacity</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-achieve-color-mastery-with-canons-freepaid-lut-variety-for-2024/"><u>[New] Achieve Color Mastery with Canon's Free/Paid LUT Variety for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-rhythm-and-reel-incorporating-tunes-on-instagram/"><u>[Updated] Rhythm & Reel Incorporating Tunes on Instagram</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-rhythm-and-reels-instagram-music-secrets/"><u>[Updated] Rhythm & Reels Instagram Music Secrets</u></a></li>
+<li><a href="https://win-tips.techidaily.com/effortless-cross-device-integration-merging-sticky-notes-across-multiple-computers/"><u>Effortless Cross-Device Integration: Merging Sticky Notes Across Multiple Computers</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-action-like-never-before-review-the-t5-eye-action-camera/"><u>In 2024, Action Like Never Before Review the T5 Eye Action Camera</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-smart-video-alteration-for-mac-users-seeking-insta-perfect-posts/"><u>In 2024, Smart Video Alteration for Mac Users Seeking Insta-Perfect Posts</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/saving-your-best-on-instagram-a-comprehensive-guide-for-2024/"><u>Saving Your Best on Instagram A Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/tailored-tools-focused-uninstall-strategies-for-windows-1011/"><u>Tailored Tools: Focused Uninstall Strategies for Windows 10/11</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210368477-9781098095840-the-perception-of-trauma/"><u>The Perception of Trauma | Free Book</u></a></li>
 </ul></div>
 

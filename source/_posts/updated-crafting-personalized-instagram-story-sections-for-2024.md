@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Crafting Personalized Instagram Story Sections for 2024"
-date: 2025-02-10T16:11:00.590Z
-updated: 2025-02-17T22:30:13.202Z
+date: 2025-03-05T17:20:11.058Z
+updated: 2025-03-06T18:03:27.050Z
 tags:
   - ai video
   - ai instagram
@@ -69,17 +69,9 @@ On the design page, click on **Add Page** and then on the upper left side, you w
 
 ![Add background to Canva highlight cover](https://images.wondershare.com/filmora/article-images/add-background-highlight-cover.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4: Choose an icon or add text**
 
 ![ Canva highlight cover elements](https://images.wondershare.com/filmora/article-images/canva-highlight-cover-elements-library.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Once you have a background color or photo, you can add an icon, emoji, or text. On the left-hand side of the page, click on Elements and then select Graphics. Scroll to check all the graphics or search for a specific one. Select the icon you want to use, and you can even change the color by clicking on the left-hand corner for the colors. To add text on your highlight covers, select the Text tab and add the one you want.
 
@@ -91,15 +83,7 @@ You can make as many highlights covers as you want. Just click on the +Add page 
 
 ![ download  highlight cover ](https://images.wondershare.com/filmora/article-images/download-canva-instagram-highlight-cover.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Once you are done making the Instagram highlight covers and are satisfied with the work, click on the Download button. Choose the file type like PNG or JPG, save your download settings, and hit the Download tab. Your highlight covers download as a zip file. Unzip them and transfer them to your phone via your preferred method.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: How to Upload a Highlight Cover on Instagram
 
@@ -139,10 +123,6 @@ Creating Instagram Highlight Covers is a quick and easy way to maintain your bra
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -158,17 +138,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-in-2024-best-breaks-and-takes-from-snowspeedcross-games/"><u>[New] In 2024, Best Breaks & Takes From Snowspeedcross Games</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-optimize-your-videos-for-instagram-mac-resizing-guide-for-2024/"><u>[New] Optimize Your Videos for Instagram Mac Resizing Guide for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-navigating-the-world-of-instagram-story-highlights/"><u>[Updated] 2024 Approved Navigating the World of Instagram Story Highlights</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-navigating-through-instagrams-new-features-reels-and-stories/"><u>[Updated] 2024 Approved Navigating Through Instagram's New Features Reels & Stories</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-hasten-your-srt-to-txt-conversion-process-with-these-tips/"><u>[Updated] Hasten Your SRT to TXT Conversion Process with These Tips</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-in-2024-avoid-interrupting-allow-the-speaker-to-finish-their-thoughts-before-responding-or-asking-questions/"><u>[Updated] In 2024, Avoid Interrupting Allow the Speaker to Finish Their Thoughts Before Responding or Asking Questions</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-navigating-instagrams-authenticity-rules/"><u>[Updated] In 2024, Navigating Instagram’s Authenticity Rules</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-navigating-the-maze-of-insta-story-downloads-for-2024/"><u>[Updated] Navigating the Maze of Insta Story Downloads for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/enhancing-imagery-a-look-at-samsung-image-studio-tools/"><u>Enhancing Imagery A Look at Samsung Image Studio Tools</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/online-accessory-fb-stories-capture-app/"><u>Online Accessory Fb Stories Capture App</u></a></li>
-<li><a href="https://fox-that.techidaily.com/top-5-solutions-for-troubleshooting-iphones-voice-recognition-issues/"><u>Top 5 Solutions for Troubleshooting iPhone's Voice Recognition Issues</u></a></li>
-<li><a href="https://common-error.techidaily.com/1723206851052-trouble-printer-proofing-your-pdfs-swift-solutions-to-the-rescue/"><u>Trouble Printer-Proofing Your PDFs? Swift Solutions to the Rescue</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/xclusive-access-prime-video-downloader-picks/"><u>[New] Exclusive Access Prime Video Downloader Picks</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-the-art-of-repeated-imagery-in-instagram-videos/"><u>[Updated] 2024 Approved The Art of Repeated Imagery in Instagram Videos</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-the-definitive-guide-to-instagram-to-mp4-transformation-2-ways/"><u>[Updated] 2024 Approved The Definitive Guide to Instagram-to-MP4 Transformation 2 Ways</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-the-a-list-of-ig-edits-essential-apps-for-marketers/"><u>[Updated] In 2024, The A-List of IG Edits Essential Apps for Marketers</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-the-art-of-crafting-engaging-igtv-titles/"><u>[Updated] In 2024, The Art of Crafting Engaging IGTV Titles</u></a></li>
+<li><a href="https://common-error.techidaily.com/detailed-strategies-to-overcome-and-repair-the-0x80072efd-error-in-windows-10/"><u>Detailed Strategies to Overcome and Repair the 0X80072EFD Error in Windows 10</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/immediate-subscribing-affect-content-recommendations-for-2024/"><u>Does Immediate Subscribing Affect Content Recommendations for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-hidefake-snapchat-location-on-your-nokia-g22-drfone-by-drfone-virtual-android/"><u>How to Hide/Fake Snapchat Location on Your Nokia G22 | Dr.fone</u></a></li>
+<li><a href="https://network-issues.techidaily.com/quick-fix-clarity-for-your-screen/"><u>Quick Fix: Clarity for Your Screen</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/rapid-restoration-of-reddit-archives-removed-for-2024/"><u>Rapid Restoration of Reddit Archives Removed for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/step-by-step-solution-for-fixing-activation-error-of-snip-and-sketch-shortcut-windows-plus-shift-plus-s-in-windows-1011/"><u>Step-by-Step Solution for Fixing Activation Error of Snip & Sketch Shortcut (Windows + Shift + S) in Windows 10/11</u></a></li>
 </ul></div>
 

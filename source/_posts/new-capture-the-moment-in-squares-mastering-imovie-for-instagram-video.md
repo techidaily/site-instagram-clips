@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Capture the Moment in Squares  Mastering iMovie for Instagram Video\""
-date: 2025-02-15T20:37:45.267Z
-updated: 2025-02-17T17:12:22.620Z
+date: 2025-03-03T17:45:09.562Z
+updated: 2025-03-06T16:45:33.161Z
 tags:
   - ai video
   - ai instagram
@@ -65,10 +65,6 @@ A guide to adding titles and credits to the cart is also included in the templat
 
 Let's look at how to generate square movies for Instagram with iMovie now.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1\. How to Make a Square Video for Instagram in iMovie on iPhone?
 
 Videos are a fantastic way to keep memories alive, but some social media platforms - specifically, Instagram - demand videos to be a certain size and length before they can be uploaded. Fortunately, cropping your video before sharing it is a straightforward process. Here are some pointers to help you crop a movie and modify the screen size to whatever you want. Cropping your films is useful for a variety of reasons. Perhaps you'd like to focus on a specific component of the film or get rid of your thumb from the screen's corner. You'll need iMovie, which comes preloaded on most iPhones, to crop a video on your iPhone. If your phone does not already have iMovie, you may get it for free from the App Store. The size or aspect ratio of your video will not change if you use this method. It will just zoom in on your video and possibly crop out any unwanted things.
@@ -95,10 +91,6 @@ To use the crop/zoom feature in iMovie on iPhone, follow these steps:
 
 **Step #10\.** To save your movie to your Camera Roll, tap the square with an arrow icon.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2\. How to Make a Square Video in iMovie on Mac?
 
 iMovie does not allow you to make square videos! You won't be able to convert your video to square dimensions because there isn't a way to do it. We'll edit the video in iMovie and then modify the proportions in Keynote. Only Keynote will be used to crop the video into square dimensions. On Mac OS, Keynote is a presentation program that comes preloaded. First, use iMovie to edit your video as you typically would. Make all of the necessary modifications to the audio and video. Make use of iMovie's special editing features. After you've finished editing the video, export it from iMovie.
@@ -122,10 +114,6 @@ Let's adjust the dimensions of your video to square using Keynote now that you'v
 **Step #8\.** Finally, click "File" > "Export To" > "Movie..." to export the video. There will be a popup window. Choose a video resolution and then click **Next**.
 
 **Step #9\.** Select a location to save your square video and then click **Export**.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Bonus Tip - How to Easily Make a Square Video for Social Media on Mac?
 
@@ -171,10 +159,6 @@ These steps have been written as an easy guide. Following them step by step is a
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -190,16 +174,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-tackling-tv-time-recording-and-editing-soccer-for-free/"><u>[New] Tackling TV Time Recording & Editing Soccer for FREE</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-unlocking-igtvs-potential-5-ways-to-surge-follower-count/"><u>[New] Unlocking IGTV's Potential 5 Ways to Surge Follower Count</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-zoom-mastery-for-selfie-success-in-instagram-stories/"><u>[New] Zoom Mastery for Selfie Success in Instagram Stories</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-upgrade-your-photo-presence-best-border-selection-tips-for-instagram/"><u>[Updated] Upgrade Your Photo Presence Best Border Selection Tips for Instagram</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-can-i-unlock-my-apple-iphone-8-after-forgetting-my-pin-code-by-drfone-ios/"><u>How Can I Unlock My Apple iPhone 8 After Forgetting my PIN Code?</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-xiaomi-redmi-note-12r-pictures-an-easy-method-explained-by-fonelab-android-recover-pictures/"><u>How to Restore Deleted Xiaomi Redmi Note 12R Pictures An Easy Method Explained.</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-nubia-z50-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on Nubia Z50 Ultra | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-unravel-the-secrets-to-successful-instagram-metrics-management-with-top-tools/"><u>In 2024, Unravel the Secrets to Successful Instagram Metrics Management with Top Tools</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/leveraging-obs-streaming-capabilities-on-facebook-platform/"><u>Leveraging OBS Streaming Capabilities on Facebook Platform</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/tips-of-transferring-messages-from-samsung-galaxy-s23-fe-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Tips of Transferring Messages from Samsung Galaxy S23 FE to iPhone 14/15 | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/unveiling-the-differences-between-ig-reels-vs-stories-for-2024/"><u>Unveiling the Differences Between IG Reels Vs Stories for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-action-camera-mics-top-tier-selection-unveiled/"><u>[New] 2024 Approved Action Camera Mics Top-Tier Selection Unveiled</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-from-content-creator-to-cash-magnet-instagrams-guide/"><u>[New] 2024 Approved From Content Creator to Cash Magnet Instagram's Guide</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-from-front-to-back-a-step-by-step-guide-for-instagram-video-angles/"><u>[New] 2024 Approved From Front to Back A Step-by-Step Guide for Instagram Video Angles</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-uncovering-basics-of-asmr-audio-experiences/"><u>[New] 2024 Approved Uncovering Basics of ASMR Audio Experiences</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-essential-techniques-for-recording-instagram-stories-for-2024/"><u>[New] Essential Techniques for Recording Instagram Stories for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-flipping-photos-for-followers-a-rotational-approach-for-insta-success-for-2024/"><u>[New] Flipping Photos for Followers A Rotational Approach for Insta Success for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-exploring-the-best-10-editors-to-craft-professional-reels/"><u>[Updated] 2024 Approved Exploring the Best 10 Editors to Craft Professional Reels</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-fast-and-free-strategies-for-authenticity-in-insta-circles/"><u>[Updated] 2024 Approved Fast & Free Strategies for Authenticity in Insta Circles</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-flip-to-impress-the-instagram-video-guide/"><u>[Updated] 2024 Approved Flip to Impress The Instagram Video Guide</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-essential-tips-for-crop-and-export-videos-for-instagram-for-2024/"><u>[Updated] Essential Tips for Crop & Export Videos for Instagram for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-exploration-comparison-gopros-hero5-black-and-sessions/"><u>2024 Approved Exploration Comparison GoPro's Hero5 Black & Sessions</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-immerse-in-tiktok-entertainment-with-ease-and-grace/"><u>2024 Approved Immerse in TikTok Entertainment with Ease and Grace</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-solutions-to-hard-reset-nokia-c12-plus-phone-using-pc-drfone-by-drfone-reset-android-reset-android/"><u>3 Solutions to Hard Reset Nokia C12 Plus Phone Using PC | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/capturing-radiance-advanced-techniques-in-ps-hdr-for-2024/"><u>Capturing Radiance Advanced Techniques in PS HDR for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/expert-advice-on-resolving-computers-missing-sound-dilemma-your-ultimate-fix-guide/"><u>Expert Advice on Resolving Computer's Missing Sound Dilemma – Your Ultimate Fix Guide</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-enable-windows-hello-authentication-on-incompatible-windows-10-systems/"><u>How To Enable Windows Hello Authentication on Incompatible Windows 10 Systems</u></a></li>
+<li><a href="https://article-tips.techidaily.com/youtube-comment-discovery-a-step-by-step-walkthrough-for-2024/"><u>YouTube Comment Discovery A Step-by-Step Walkthrough for 2024</u></a></li>
 </ul></div>
 

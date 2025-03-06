@@ -1,7 +1,7 @@
 ---
 title: "Fixing Persistent Freezing and Crashing in 'Indivisible': A Comprehensive Guide"
-date: 2025-02-11T17:29:49.125Z
-updated: 2025-02-17T23:04:38.153Z
+date: 2025-03-01T17:37:30.237Z
+updated: 2025-03-06T17:22:22.021Z
 tags:
   - win11
   - win10
@@ -17,10 +17,6 @@ thumbnail: https://thmb.techidaily.com/5d7dcfd1995cfb2b2cd35f38aacc2ff6a59f7f19a
 
 **The Division 2 keeps crashing?** Don’t worry… Although it’s incredibly frustrating, you’re definitely not the only person to experience this problem. Thousands of players have recently reported the very same issue. More importantly, you should be able to fix it pretty easily…
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Try these fixes
 
  Here’s a list of fixes that have resolved this problem for other players. You don’t have to try them all. Just work your way through the list until you find the one that does the trick for you.
@@ -34,10 +30,6 @@ thumbnail: https://thmb.techidaily.com/5d7dcfd1995cfb2b2cd35f38aacc2ff6a59f7f19a
 7. **[Lower in-game graphics settings](https://tools.techidaily.com/drivereasy/download/)**
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 1: Check if your system meets the specifications required for The Division 2
 
@@ -123,10 +115,6 @@ thumbnail: https://thmb.techidaily.com/5d7dcfd1995cfb2b2cd35f38aacc2ff6a59f7f19a
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-129.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  2) Select**Verify files** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-130.png)
@@ -140,10 +128,6 @@ thumbnail: https://thmb.techidaily.com/5d7dcfd1995cfb2b2cd35f38aacc2ff6a59f7f19a
  2) Click**the LOCAL FILES tab** , then click **VERIFY INTEGRITY OF GAME CACHE…** . After that, click **CLOSE** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-120.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### Epic Game Launcher
 
@@ -177,10 +161,6 @@ thumbnail: https://thmb.techidaily.com/5d7dcfd1995cfb2b2cd35f38aacc2ff6a59f7f19a
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-126.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  3)**Check the box** next to**Override high DPI scaling behavior** and select**Scaling performed by: Application** . Then click**OK** to save the changes.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-127.png)
@@ -213,10 +193,6 @@ Make sure you have disabled Steam Overlay and Ubisoft Overlay.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-151.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  4) Under**the Advanced tab** , click**Change…** in the**Virtual memory** section.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-152.png)
@@ -228,10 +204,6 @@ Make sure you have disabled Steam Overlay and Ubisoft Overlay.
  **Do not disable the paging file or modify it to 0 MB or a static value** even if your PC has sufficient RAM, since if you doing that, it usually causes crashes in the game.
 
  Launch The Division 2 to see if this issue gets fixed or not. If not, try the next fix, below.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 7: Lower in-game graphics settings
 
@@ -245,25 +217,13 @@ Make sure you have disabled Steam Overlay and Ubisoft Overlay.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-155-1024x744.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  3)**Turn off Contact Shadows** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-156-1024x776.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  4) Set**Particle Detail** to**High** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-157-1024x756.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  5) Set**Reflection Quality** to**Low** .
 
@@ -312,21 +272,18 @@ Make sure you have disabled Steam Overlay and Ubisoft Overlay.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-your-journey-to-1k-followers-in-one-month-secrets-from-top-influencers/"><u>[New] 2024 Approved Your Journey to 1K Followers in One Month Secrets From Top Influencers</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-exploring-the-distinctions-of-srgb-and-rgb/"><u>[New] Exploring the Distinctions of Srgb and Rgb</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-finding-and-obtaining-free-image-frame-content/"><u>[New] Finding and Obtaining Free Image Frame Content</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-easy-peasy-top-strategies-for-intense-ipad-recording/"><u>[New] In 2024, Easy Peasy Top Strategies for Intense iPad Recording</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-what-lies-unseen-in-instagram-story-watching/"><u>[New] In 2024, What Lies Unseen in Instagram Story Watching</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-top-10-mac-compatible-tiktok-videoshop-tools-free/"><u>[New] Top 10 Mac-Compatible TikTok Videoshop Tools (FREE)</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-weaving-external-pages-into-your-insta-narrative/"><u>[Updated] 2024 Approved Weaving External Pages Into Your Insta Narrative</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-commanding-stage-confidence-with-powerpoint-voiceover-skills/"><u>[Updated] In 2024, Commanding Stage Confidence with PowerPoint Voiceover Skills</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-your-step-by-step-roadmap-for-instagrams-latest-feature-sharing-gifs/"><u>[Updated] In 2024, Your Step-by-Step Roadmap for Instagram's Latest Feature - Sharing GIFs</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-mastering-content-and-connections-insta-follower-rise-for-2024/"><u>[Updated] Mastering Content & Connections Insta-Follower Rise for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-proven-instagram-analysis-apps-enhance-engagement-growth-and-conversion-rates/"><u>[Updated] Proven Instagram Analysis Apps Enhance Engagement, Growth & Conversion Rates</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-speedy-file-assessment-on-windows-pcs/"><u>[Updated] Speedy File Assessment on Windows PCs</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-transform-your-ig-story-with-melodic-elements-without-for-2024/"><u>[Updated] Transform Your IG Story with Melodic Elements (Without) for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-understanding-youtubes-monthly-revenue-options/"><u>[Updated] Understanding YouTube's Monthly Revenue Options</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-unlock-igtv-master-video-submission-for-2024/"><u>[Updated] Unlock IGTV Master Video Submission for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/6-effective-ways-of-resizing-your-igtv-videos/"><u>6 Effective Ways of Resizing Your IGTV Videos</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-navigating-instagrams-filter-features-for-high-quality-images/"><u>[New] 2024 Approved Navigating Instagram's Filter Features for High-Quality Images</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-navigating-the-world-of-instagram-story-highlights/"><u>[New] In 2024, Navigating the World of Instagram Story Highlights</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-optimize-visibility-choosing-the-right-hashtags-today/"><u>[New] In 2024, Optimize Visibility Choosing the Right Hashtags Today</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-motivational-moments-the-ultimate-list-for-insta/"><u>[Updated] In 2024, Motivational Moments The Ultimate List for Insta</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-magix-video-pro-x-a-deep-dive/"><u>2024 Approved Magix Video Pro X - A Deep Dive</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/best-anime-and-cartoon-masterpieces-of-now-and-everlasting-favorites/"><u>Best Anime and Cartoon Masterpieces of Now and Everlasting Favorites</u></a></li>
+<li><a href="https://fox-within.techidaily.com/elvis-presley-celebration-sing-your-favorites-with-karaoke-cloud-pro-fifty-songs-feature/"><u>Elvis Presley Celebration | Sing Your Favorites with Karaoke Cloud Pro - Fifty Songs Feature</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-introduction-to-plot-and-character-dynamics/"><u>In 2024, Introduction to Plot and Character Dynamics</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-revamping-screens-recording-the-future-on-spring/"><u>In 2024, Revamping Screens Recording The Future on Spring</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-videos-from-itel-by-fonelab-android-recover-video/"><u>Possible solutions to restore deleted videos from Itel</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solve-your-back-4-blood-voice-chat-problems-with-these-easy-steps/"><u>Solve Your 'Back # 4 Blood' Voice Chat Problems with These Easy Steps</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/tapping-into-chatgpt-potential-with-its-api/"><u>Tapping Into ChatGPT Potential with Its API</u></a></li>
+<li><a href="https://fox-links.techidaily.com/unleash-the-power-of-words-crafting-impactful-documentary-narratives/"><u>Unleash the Power of Words Crafting Impactful Documentary Narratives</u></a></li>
 </ul></div>
 

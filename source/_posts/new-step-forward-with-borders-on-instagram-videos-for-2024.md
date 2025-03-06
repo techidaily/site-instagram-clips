@@ -1,7 +1,7 @@
 ---
 title: "[New] Step Forward with Borders on Instagram Videos for 2024"
-date: 2025-02-15T17:40:59.007Z
-updated: 2025-02-18T00:18:13.191Z
+date: 2025-03-04T16:44:11.634Z
+updated: 2025-03-06T17:36:45.089Z
 tags:
   - ai video
   - ai instagram
@@ -80,10 +80,6 @@ Moreover, adding borders to your favorite Instagram videos is pretty much a stra
 
 ![add borders to instagram video](https://images.wondershare.com/filmora/article-images/add-border-to-instagram-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 8:** If you're not fond of the _white borders_ applied by default on your video, double-click on the video timeline and head over to the **Video** tab present on the top left corner of the interface, and tap on the **Video Effects**.
 
 ![adjust borders effects](https://images.wondershare.com/filmora/article-images/filmora-adjust-border-effects.jpg)
@@ -128,15 +124,7 @@ It's a free online application for editing photos, movies, and GIFs. It does not
 
 ![kapwing export video](https://images.wondershare.com/filmora/article-images/export-video-with-borders-kapwing.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Note: if you want to remove the watermark after exporting, you may need to sign in a new account or sign up.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Canva
 
@@ -150,19 +138,11 @@ Canva is a must-have software for anybody who modifies both pictures and videos.
 
 ![upload media to canva](https://images.wondershare.com/filmora/article-images/upload-media-canva.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3:** The clip will appear under the **Videos** section in the **Uploads** category. To view the clip in the editing window, click on it. You may move the video around by dragging it.
 
 (**Note:** If you'd rather use vibrant colors than plain old white borders, the color tab (top) provides a large color pallet to select from, as shown below).
 
 ![change background color in canva](https://images.wondershare.com/filmora/article-images/change-background-color-border-canva.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Conclusion**
 
@@ -224,10 +204,6 @@ Moreover, adding borders to your favorite Instagram videos is pretty much a stra
 **Step 7:** After locating the **Border** effect, tap and hold the effect to drag and drop onto the timeline, as shown in the picture below. You will now see your video with the **Border** effect applied to it.
 
 ![add borders to instagram video](https://images.wondershare.com/filmora/article-images/add-border-to-instagram-video.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 8:** If you're not fond of the _white borders_ applied by default on your video, double-click on the video timeline and head over to the **Video** tab present on the top left corner of the interface, and tap on the **Video Effects**.
 
@@ -394,17 +370,9 @@ It's a free online application for editing photos, movies, and GIFs. It does not
 
 ![kapwing add borders to video](https://images.wondershare.com/filmora/article-images/zoom-out-video-add-frame.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3**: When you're happy with the results, go to the top and select **Export Video** to save the video to your computer.
 
 ![kapwing export video](https://images.wondershare.com/filmora/article-images/export-video-with-borders-kapwing.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Note: if you want to remove the watermark after exporting, you may need to sign in a new account or sign up.
 
@@ -511,17 +479,9 @@ For macOS 10.12 or later
 
 _Learn more about [how to edit Instagram videos with Filmora](https://tools.techidaily.com/wondershare/filmora/download/)_.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3: How to Add Border to Video for Instagram Online?
 
 In this part of the guide, we will look at three methods and guide you on how to add border to video for Instagram online using Kapwing, Canva
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. Kapwing
 
@@ -586,14 +546,24 @@ That is why we decided to compile everything about those new users who cannot fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-becoming-an-influencer-entrepreneur-creating-a-business-profile-on-ig/"><u>[New] 2024 Approved Becoming an Influencer Entrepreneur Creating a Business Profile on IG</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-captivating-more-eyes-on-your-engaging-instagram-videos/"><u>[New] 2024 Approved Captivating More Eyes on Your Engaging Instagram Videos</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-becoming-an-smm-virtuoso-the-ultimate-pathway-of-10-strategic-steps-for-2024/"><u>[Updated] Becoming an SMM Virtuoso The Ultimate Pathway of 10 Strategic Steps for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-accelerating-your-ascension-to-instagram-a-list-status-our-fast-track-guide-of-15-must-try-strategies/"><u>[Updated] In 2024, Accelerating Your Ascension to Instagram A-List Status Our Fast Track Guide of 15 Must-Try Strategies</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-auditory-ambiance-elevating-your-instagram-creations/"><u>[Updated] In 2024, Auditory Ambiance Elevating Your Instagram Creations</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-channel-branding-made-simple-and-free/"><u>[Updated] In 2024, Channel Branding Made Simple & Free</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-cut-to-style-using-inshot-for-elegant-video-transitions/"><u>[Updated] In 2024, Cut to Style Using Inshot for Elegant Video Transitions</u></a></li>
-<li><a href="https://win-dash.techidaily.com/quick-fix-how-to-update-synaptics-ps2-touchpad-drivers-with-minimal-hassle/"><u>Quick Fix: How to Update Synaptics PS/2 Touchpad Drivers with Minimal Hassle</u></a></li>
-<li><a href="https://techidaily.com/this-is-how-you-can-recover-deleted-pictures-from-realme-c53-by-fonelab-android-recover-pictures/"><u>This is how you can recover deleted pictures from Realme C53.</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-how-to-effortlessly-share-vimeo-video-on-instagram/"><u>[New] 2024 Approved How to Effortlessly Share Vimeo Video on Instagram</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-igtv-techniques-seamlessly-transforming-vlogs-for-maximum-views/"><u>[New] 2024 Approved IGTV Techniques Seamlessly Transforming Vlogs for Maximum Views</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-seamlessly-embedding-youtube-subtitles-an-easy-to-follow-guide/"><u>[New] In 2024, Seamlessly Embedding YouTube Subtitles An Easy-to-Follow Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-4k-monitors-showdown-top-10-picks/"><u>[Updated] 2024 Approved 4K Monitors Showdown Top 10 Picks</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-from-basic-to-brilliant-a-complete-insta-cover-photo-course/"><u>[Updated] 2024 Approved From Basic to Brilliant A Complete Insta Cover Photo Course</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-from-raw-footage-to-social-stardom-the-art-of-video-cropping-on-instagram/"><u>[Updated] 2024 Approved From Raw Footage to Social Stardom The Art of Video Cropping on Instagram</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-go-from-camera-to-cellphone-vt-adjustments-in-fcpx/"><u>[Updated] 2024 Approved Go From Camera to Cellphone VT Adjustments in FCPX</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-insta-snap-authenticity-guide-unveiling-selfies-truths/"><u>[Updated] 2024 Approved Insta Snap Authenticity Guide Unveiling Selfies' Truths</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-cutting-the-excess-a-guide-to-shortening-youtube-videos-for-2024/"><u>[Updated] Cutting the Excess A Guide to Shortening YouTube Videos for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-igniting-instagram-interest-maximizing-content-reach-and-interactions-for-2024/"><u>[Updated] Igniting Instagram Interest Maximizing Content Reach and Interactions for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-how-to-download-instagram-highlights-in-2-ways/"><u>[Updated] In 2024, How to Download Instagram Highlights in 2 Ways?</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-impeccable-photo-editing-using-the-virtual-background-effect-on-instagram/"><u>[Updated] In 2024, Impeccable Photo Editing Using the Virtual Background Effect on Instagram</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-the-essential-guide-to-blurring-video-borders-in-teams/"><u>[Updated] The Essential Guide to Blurring Video Borders in Teams</u></a></li>
+<li><a href="https://blog-min.techidaily.com/boosting-video-clarity-a-step-by-step-guide-to-achieving-hd4k-resolution-on-pc-and-mac/"><u>Boosting Video Clarity: A Step-by-Step Guide to Achieving HD/4K Resolution on PC & Mac</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/device-manager-update-how-to-show-and-fix-bluetooth-issues-easily/"><u>Device Manager Update: How to Show and Fix Bluetooth Issues Easily</u></a></li>
+<li><a href="https://techtrends.techidaily.com/diagnose-and-repair-dealing-with-rockalldlldll-not-found-system-issues/"><u>Diagnose and Repair: Dealing with Rockalldll.dll Not Found System Issues</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/1725290463381-digiarty-dvd/"><u>Digiarty: 동영상, 비디오를 위한 전문 코딩 기술 – 사이트에서 DVD 관리 강화</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-hidefake-snapchat-location-on-your-xiaomi-redmi-note-12-5g-drfone-by-drfone-virtual-android/"><u>How to Hide/Fake Snapchat Location on Your Xiaomi Redmi Note 12 5G | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-which-is-the-best-fake-gps-joystick-app-on-infinix-zero-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Which is the Best Fake GPS Joystick App On Infinix Zero 30 5G? | Dr.fone</u></a></li>
 </ul></div>
 

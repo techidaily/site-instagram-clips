@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] FrameFinesse  A Detailed Guide on IG Image Dimensions\""
-date: 2025-02-12T20:01:59.166Z
-updated: 2025-02-17T23:35:15.662Z
+date: 2025-02-27T16:38:13.211Z
+updated: 2025-03-06T16:57:45.502Z
 tags:
   - ai video
   - ai instagram
@@ -29,10 +29,6 @@ Taking photos with iPhones and Android Smartphones and posting them to Instagram
 
 Troubles begin when you want to upload photos and videos that weren't captured with a Smartphone to Instagram. In most cases, the photos and videos produced by DSLR cameras and other semi-professional and professional equipment are much larger than the sizes supported by Instagram. That is the reason why we created this guide that will help you post visual content that is perfectly adjusted to Instagram in 2021.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Types of Files Accepted by Instagram
 
 The first thing you need to pay attention to when uploading images and videos to Instagram is that the files you are uploading are in one of the photo or video formats that Instagram supports.
@@ -49,10 +45,6 @@ Duration of Videos on Instagram
 
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Best Image Sizes for Instagram Posts
 
 A couple of years ago, Instagram has finally allowed its users to upload images that aren't square shaped. In 2021, you can also upload horizontally and vertically oriented photos in addition to the standard square shape. However, in order to create a perfect Instagram post, and prevent the platform from cropping your photos you need to use the Instagram image sizes featured below.
@@ -60,10 +52,6 @@ A couple of years ago, Instagram has finally allowed its users to upload images 
 #### Instagram's Main Feed
 
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
 
@@ -89,10 +77,6 @@ The profile pictures on Instagram are tiny, and the optimum size for them is 160
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -108,17 +92,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/updated-efficient-tactics-for-recording-vimeo-media/"><u>[Updated] Efficient Tactics for Recording Vimeo Media</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-smartphone-skills-producing-engaging-youtube-thumbnails/"><u>[Updated] In 2024, Smartphone Skills Producing Engaging YouTube Thumbnails</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-step-by-step-voice-customization-in-free-fire-guide-included-no-cost/"><u>[Updated] Step-by-Step Voice Customization in Free Fire (Guide Included - No Cost)</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-the-worth-of-instagram-video-selfie-authenticity/"><u>[Updated] The Worth of Instagram Video Selfie Authenticity</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-top-pick-prodigious-insta-hlv-pages-creators/"><u>[Updated] Top Pick Prodigious Insta HLV Pages Creators</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-transforming-your-igtv-presence-with-new-covers/"><u>2024 Approved Transforming Your IGTV Presence with New Covers</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-top-insights-on-maximizing-business-engagement-on-insta/"><u>In 2024, Top Insights on Maximizing Business Engagement on Insta</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-turning-insta-vids-into-music-your-complete-guide/"><u>In 2024, Turning Insta Vids Into Music Your Complete Guide</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/into-the-fray-with-polaroid-cubeplus-action-recorder/"><u>Into the Fray with Polaroid Cube+ Action Recorder</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/latest-intel-usb-30-drivers-now-available-for-windows-11-users/"><u>Latest Intel USB 3.0 Drivers Now Available for Windows 11 Users!</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/new-xfinity-vs-tivo-a-comprehensive-comparison-of-dvr-options/"><u>New Xfinity vs TiVo A Comprehensive Comparison of DVR Options</u></a></li>
-<li><a href="https://fake-location.techidaily.com/prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-tecno-pova-5-drfone-by-drfone-virtual-android/"><u>Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Tecno Pova 5 | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-no-limit-story-saving-at-the-tap-of-a-button/"><u>[New] No-Limit Story Saving at the Tap of a Button</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-art-of-dramatic-hdr-portraits-explained/"><u>[New] The Art of Dramatic HDR Portraits Explained</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-advanced-techniques-in-post-uploaded-youtube-content-enhancement-for-2024/"><u>[Updated] Advanced Techniques in Post-Uploaded YouTube Content Enhancement for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-depth-analysis-top-webinar-systems/"><u>[Updated] In-Depth Analysis Top Webinar Systems</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-sail-through-social-media-instagrams-reel-mastery-secrets/"><u>2024 Approved Sail Through Social Media Instagram's Reel Mastery Secrets</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-scoop-up-10-memes-that-balance-humor-with-heartfelt-emotions/"><u>2024 Approved Scoop Up 10 Memes That Balance Humor with Heartfelt Emotions</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-techniques-to-transfer-data-from-realme-12plus-5g-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Techniques to Transfer Data from Realme 12+ 5G to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/discover-the-ultimate-laptop-bargains-for-july-2e24-curated-by-zdnet/"><u>Discover the Ultimate Laptop Bargains for July 2E24 - Curated by ZDNet</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-pictureperfection-fine-tuning-image-sizes-on-insta/"><u>In 2024, PicturePerfection Fine-Tuning Image Sizes on Insta</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-reign-in-your-posts-the-ultimate-guide-to-choosing-8-best-timers/"><u>In 2024, Reign in Your Posts The Ultimate Guide to Choosing 8 Best Timers</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/professional-edge-in-instagram-videos-with-green-screen-tech-for-2024/"><u>Professional Edge in Instagram Videos with Green Screen Tech for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solving-the-issue-sea-of-thieves-microphone-and-speaker-troubleshooting-guide-pc-edition/"><u>Solving the Issue: Sea of Thieves Microphone & Speaker Troubleshooting Guide - PC Edition</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/ultimate-guide-on-tecno-spark-go-2023-frp-bypass-by-drfone-android/"><u>Ultimate Guide on Tecno Spark Go (2023) FRP Bypass</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-online-webm-video-shrinking-solutions/"><u>Updated 2024 Approved Online WebM Video Shrinking Solutions</u></a></li>
+<li><a href="https://win-rankings.techidaily.com/windows-11-how-to-fix-missing-bcd-file-errors/"><u>Windows 11: How to Fix Missing BCD File Errors</u></a></li>
 </ul></div>
 

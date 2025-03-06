@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Perfect Your Video Cropping Technique for Instagram Sharing"
-date: 2025-02-16T01:22:13.050Z
-updated: 2025-02-17T16:08:46.661Z
+date: 2025-03-04T17:20:57.651Z
+updated: 2025-03-06T18:08:03.395Z
 tags:
   - ai video
   - ai instagram
@@ -37,10 +37,6 @@ In order to create videos that will get thousands of likes on Instagram, you nee
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### **How to crop videos for instagram in Filmora**
 
 Unless you shoot your video directly from the Instagram app, the aspect ratio of your videos will not match the square aspect ratio used on Instagram. The only solution to this issue is to crop the video and change its aspect ratio so it fits one of the commonly used aspect ratios on Instagram.
@@ -51,15 +47,7 @@ In order to start cropping your videos, you first must install the Filmora video
 
 ![](https://images.wondershare.com/filmora/article-images/filmora-import.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 2: Drag and Drop the video file onto the Timeline**
 
@@ -87,10 +75,6 @@ In order to create a video that has a portrait aspect ratio, you need to crop it
 
 ![crop and zoom filmora](https://images.wondershare.com/filmora/article-images/crop-and-zoom-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Adjust the crop tool's position and click OK. The export process for landscape and portrait videos is nearly identical and the only thing you need to change is the resolution. Click on the Resolution drop-down menu and select the custom option and then enter the height and weight values you inserted in the cropping tool. Your portrait video is ready to be exported.
 
 **3\. Square (1:1)**
@@ -100,10 +84,6 @@ The process of creating a square video is the same as the process of creating a 
 The steps for exporting square videos are the same as the steps you need to take to export a portrait video. Make sure to change the resolution of the video to 1080X1080 before hitting the Export button and enjoy sharing your videos on Instagram.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -120,20 +100,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-customize-your-video-to-pique-instagram-interest-for-2024/"><u>[New] Customize Your Video to Pique Instagram Interest for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-diving-into-instagrams-visual-story-segments-for-2024/"><u>[New] Diving Into Instagram's Visual Story Segments for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-elevate-your-engagement-essential-apps-for-insta-growth-for-2024/"><u>[New] Elevate Your Engagement Essential Apps for Insta Growth for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-enhance-instagram-content-with-background-tracks-for-2024/"><u>[New] Enhance Instagram Content with Background Tracks for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-brighter-boundaries-three-strategies-for-instagram-spotlight/"><u>[New] In 2024, Brighter Boundaries Three Strategies for Instagram Spotlight</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-dissecting-instagrams-per-post-video-quota/"><u>[New] In 2024, Dissecting Instagram's Per-Post Video Quota</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-mastering-audio-capture-from-facetime-chats/"><u>[New] Mastering Audio Capture From FaceTime Chats</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-beatfinder-tools-tune-in-to-online-freshness/"><u>[Updated] Beatfinder Tools Tune in to Online Freshness</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-craft-your-own-story-the-top-5-instagram-tips-for-aspiring-social-stars-for-2024/"><u>[Updated] Craft Your Own Story The Top 5 Instagram Tips for Aspiring Social Stars for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/2024-1-top-11/"><u>2024의 1위: Top 11 동영상 인코딩 소피</u></a></li>
-<li><a href="https://discover-forum.techidaily.com/ameliorer-les-performances-comment-migrer-successivement-de-disques-dur-a-ssd-kingston-et-demarrer-en-succes/"><u>Améliorer Les Performances : Comment Migrer Successivement De Disques Dur À SSD Kingston Et Démarrer en Succès</u></a></li>
-<li><a href="https://win-dash.techidaily.com/effortless-installation-download-essential-lenovo-x220-driver-pack/"><u>Effortless Installation - Download Essential Lenovo X220 Driver Pack</u></a></li>
-<li><a href="https://techidaily.com/how-to-downgrade-apple-iphone-12-mini-without-losing-any-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade Apple iPhone 12 mini without Losing Any Data? | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-reset-a-locked-vivo-y55s-5g-2023-phone-by-drfone-android/"><u>How to Reset a Locked Vivo Y55s 5G (2023) Phone</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/in-2024-exploring-high-definition-chroma-blade-photography/"><u>In 2024, Exploring High-Definition Chroma Blade Photography</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-how-to-triple-down-on-instagrams-growth-metrics/"><u>[New] 2024 Approved How to Triple Down on Instagram's Growth Metrics</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-how-to-fix-common-instagram-video-errors-for-2024/"><u>[New] How to Fix Common Instagram Video Errors for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-how-to-speed-up-video-on-instagram-for-2024/"><u>[New] How to Speed Up Video on Instagram for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-ig-vids-mastery-for-effective-marketing-step-by-step-guide-to-success-for-2024/"><u>[New] IG Vids Mastery for Effective Marketing Step-by-Step Guide to Success for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-guide-to-instagram-video-backup-with-computer-or-laptop/"><u>[New] In 2024, Guide to Instagram Video Backup with Computer or Laptop</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-how-to-triple-down-on-instagrams-growth-metrics/"><u>[New] In 2024, How to Triple Down on Instagram's Growth Metrics</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-instagram-connectivity-adding-url-content/"><u>[New] In 2024, Instagram Connectivity Adding URL Content</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-elevate-note-taking-to-new-heights-with-mematic/"><u>[Updated] 2024 Approved Elevate Note-Taking to New Heights with Mematic</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-how-to-seamlessly-add-vimeo-videos-to-insta-feed-for-2024/"><u>[Updated] How to Seamlessly Add Vimeo Videos to Insta Feed for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-how-to-reverse-image-search-instagram/"><u>[Updated] In 2024, How To Reverse Image Search Instagram</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-mastering-speech-to-text-googles-perfect-translation-technique-for-2024/"><u>[Updated] Mastering Speech-to-Text Google's Perfect Translation Technique for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-swift-students-guide-to-bypassing-edgenuity-videos-for-2024/"><u>[Updated] The Swift Student's Guide to Bypassing Edgenuity Videos for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-prestigious-top-8-sites-combining-vivid-3d-graphics-and-luxe-text/"><u>2024 Approved Prestigious Top 8 Sites Combining Vivid 3D Graphics & Luxe Text</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/galaxy-fit2-by-samsung-the-perfectly-proportioned-health-monitor-for-on-the-go-fitness-enthusiasts/"><u>Galaxy Fit2 by Samsung: The Perfectly Proportioned Health Monitor for On-the-Go Fitness Enthusiasts</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-on-vivo-t2-pro-5g-by-drfone-android/"><u>How to Bypass FRP on Vivo T2 Pro 5G?</u></a></li>
+<li><a href="https://article-posts.techidaily.com/maximize-profits-the-top-13-no-experience-reddit-hacks-for-2024/"><u>Maximize Profits The Top 13 No-Experience Reddit Hacks for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/nvidia-driver-installation-packages-for-multiple-windows-versions-10-7-and-8/"><u>NVIDIA Driver Installation Packages for Multiple Windows Versions: 10, 7, and 8</u></a></li>
+<li><a href="https://extra-support.techidaily.com/retailing-revelations-and-methods-for-2024/"><u>Retailing Revelations and Methods for 2024</u></a></li>
+<li><a href="https://win-remarkable.techidaily.com/wiederherstellung-von-geloschten-dateien-erfolgreiches-retrieven-aus-dem-papierkorb-papierkorb-auf-ihrem-pc/"><u>Wiederherstellung Von Gelöschten Dateien: Erfolgreiches Retrieven Aus Dem Papierkorb (Papierkorb) Auf Ihrem PC</u></a></li>
 </ul></div>
 
